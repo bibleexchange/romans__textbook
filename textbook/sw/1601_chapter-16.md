@@ -72,15 +72,15 @@ Paulo anayasalimia makundi 16 ya watu huko Rumi:
 
 ## Busu takatifu (mst. 16)
 
-* "Busu takatifu" ni kitu cha mapokeo ya kiyahudi zamanni na salamu za Kikristo. Vile vile huitwa "busu la amani," "Busu la kindugu," au "busu la dada" miongoni mwa wanawake. 
-* Imetajwa mara 5 katika agano jipya: War 16:16; 1 Wakr 16:20 ; 2 Wakr 13:12 ; I Wathsl 5:26 ; 1 Petro 5:14. ("amani iwe nanyi", shaloomu"), "Shalom")
+* "Busu takatifu" ni kitu cha mapokeo ya kiyahudi zamani na salamu za Kikristo. Vile vile huitwa "busu la amani," "Busu la kindugu," au "busu la dada" miongoni mwa wanawake. 
+* Imetajwa mara 5 katika agano jipya: War 16:16; 1 Wakr 16:20; 2 Wakr 13:12; I Wathsl 5:26; 1 Petro 5:14. ("amani iwe nanyi", shaloomu"), "Shalom")
 * Angalau kwa karine kadhaa za kwanza, busu hili halikuwa la mdomo kwenda kwenye shavu bali lilikuwa la mdomo kwa mdomo. Tokea tarehe za mwanzoni, busu hili lililindwa dhidi ya uharibifu wowote wa muundo huu wa salamu, wanawake na wanume walitakiwa kukaa kwa kutengena, na busu la amani lilitolewa tu kwa wanawake kwa wanawake na wanaume kwa wanaume.
 * Makanisa mengi ya kiporostant yamechukuliana na busu takatifu kwa mfano (katika wale wanachama waliongozeka kama ukarimu safi wenye moto ambao hurejewa kama busu takatifu.
 
-## Onyo moja la mwisho (mst. 17-20)
+## Onyo moja la mwisho (mst. 17—20)
 
 Paulo anafuatana na baadhi miongozo ya kichungaji na maelekezo. Anasema na kuyatia "alama." Hili neno _alama_ humaanisha "kuchukua lengo, kuwa mwangalifu." Ni neno lile lile lililotumika katika Wafilippo 3:17.
 
-## Kufungu (mst. 21-27)
+## Kufunga (mst. 21—27)
 
 Paulo anamalizia na HALELUYA!

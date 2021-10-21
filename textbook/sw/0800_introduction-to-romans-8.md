@@ -4,11 +4,11 @@
 
 ### Dondoo
 
-* Wale walio kwa Kristo hawako kwenye hukumu (mst. 1-9 )
-* Wale walio kwa Kristo wamepokea Roho ya kutwaliwa (mst. 10-16)
-* Wale alio katika Kristo wanasaburi ya kusubiri kutwaliwa (mst. 17-25)
-* Wale walio katika Kristo waatatukuzwa kupitia huduma ya Roho Mtakatifu (mst. 26-30)
-* Wale walio katika Kristo wanao Mungu akiwa mtetezi wao (mst. 31-39)
+* Wale walio kwa Kristo hawako kwenye hukumu (mst. 1—9 )
+* Wale walio kwa Kristo wamepokea Roho ya kutwaliwa (mst. 10—16)
+* Wale alio katika Kristo wanasaburi ya kusubiri kutwaliwa (mst. 17—25)
+* Wale walio katika Kristo waatatukuzwa kupitia huduma ya Roho Mtakatifu (mst. 26—30)
+* Wale walio katika Kristo wanao Mungu akiwa mtetezi wao (mst. 31—39)
 
 ### Muhtasari
 
@@ -23,7 +23,7 @@ Ina maana gani kuwa ndani yua Kristo?
 * Wale walio katika Kristo hawawezi kutengwa na upendo wa Mungu (mst. 39)
 * Wale walio katika Kristo wako katika mwili mmoja na kila mmoja yuko ndani ya mwingine (12:5; IKor. 16:24)
 * Wale walio katika Kristo wanakua kama watoto wachanga hadi utu uzima (I Kor. 3:1)
-* Wale walio katika Kristo na watakaye kufa (lala) wana tumaini la Ufufuo (I Kor. 15:17-20)
+* Wale walio katika Kristo na watakaye kufa (lala) wana tumaini la Ufufuo (I Kor. 15:17—20)
 * Wale walio katika Kristo wanao ushindi katika Mungu (II Kor. 2:14)
 * Wale walio katika Kristo ni viumbe vipya (II Kor. 5:17; Gal. 6:15)
 * Wale walio katika Kristo wamepatanishwa na Mungu (II Kor. 5:19)
@@ -34,5 +34,5 @@ Ina maana gani kuwa ndani yua Kristo?
 * Wale walio katika Kristo wataketi pamoja katika mahali pa Mbinguni (Efes. 2:6)
 * Wale walio katika Kristo waliumbwa kwa kazi njema (Efes. 2:10)
 
-Kuwepo kwa Kristo ni kushirikishwa katika Mzabibu wa keli. Maisha yake aliyaweka kwetu na kile kilicho chake kimekuwa chetu. Mungu Baba ametuonyesha vile vilivyoko kwa Mwanawe wa pekee ambaye tumekuwa warithi wa Mungu. Kwa Kristo, hatushindani na mwili bali dhambi pekee, na wala hatupati ondoleo la dhambi pekee, bali tumempokea Kristo Mwenyewe. Waumini wako kwa Kristo na Kristo yuko kwa waumini (11:16-18).
+Kuwepo kwa Kristo ni kushirikishwa katika Mzabibu wa keli. Maisha yake aliyaweka kwetu na kile kilicho chake kimekuwa chetu. Mungu Baba ametuonyesha vile vilivyoko kwa Mwanawe wa pekee ambaye tumekuwa warithi wa Mungu. Kwa Kristo, hatushindani na mwili bali dhambi pekee, na wala hatupati ondoleo la dhambi pekee, bali tumempokea Kristo Mwenyewe. Waumini wako kwa Kristo na Kristo yuko kwa waumini (11:16—18).
 

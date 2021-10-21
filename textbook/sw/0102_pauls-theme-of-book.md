@@ -1,4 +1,4 @@
-## Dhamira ya Paulo: Injili (1:16-17)
+## Dhamira ya Paulo: Injili (1:16—17)
 
 Mistr ya 16 na 17 ni mistr ya ufunguo wa waraka huu na vifupusho vingi vya waraka.
 

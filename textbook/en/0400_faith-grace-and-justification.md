@@ -4,7 +4,7 @@
 
 The role of the law in justification is that it brings the knowledge of sin. A person is not justified through the works of the law. For justification takes place in the case of the believer "by grace through faith." By Grace a gift of eternal life is freely offered to the entire world and it is through faith that gift is received. God made the first move in the plan of redemption and for that plan to be effective in me, I must choose to receive that gift through faith. (God's grace is resistible by the nature of the free will given by God to man.) See also Ephesians 2:8 and Romans 4:16. Justification by Faith is Demonstrated in the life of Abraham.
 
-## Abraham was justified by Faith and not by Works (v. 1-8)
+## Abraham was justified by Faith and not by Works (v. 1—8)
 
 > Romans 4:3—...Abraham believed God, and it was counted unto him for righteousness.
 
@@ -34,7 +34,7 @@ NOTE: God requiring faith does not cancel God's grace. A justification condition
 
 ### David's Testimony (v. 6–8)
 
-Paul brings testimony from David to support the message of justification by faith. David was esteemed by the Jews as their great king. This quotation from the Psalms confirms that men are only justified by faith and not works (Psalms 32:1-2).
+Paul brings testimony from David to support the message of justification by faith. David was esteemed by the Jews as their great king. This quotation from the Psalms confirms that men are only justified by faith and not works (Psalms 32:1—2).
 
 David was thanking God that His sin was forgiven and the sin was not put to his account. If sin was not imputed to him and his sin was forgiven this means he was restored to a right relationship with God.
 

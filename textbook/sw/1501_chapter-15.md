@@ -34,7 +34,7 @@ Kwa nini mkristo ni lazima kuhusika na wengine badala yake mwenyewe? Tunapaswa k
 
 Tunaweza kuwa na faraja wakati mahitaji kwa kuyasoma maandiko. Tunaweza pia kuendelea mbele kwa tumaini. 
 
-#### Umoja katika mwili wa Kristo ni shabaha ya Mkristo (mst. 5-6)
+#### Umoja katika mwili wa Kristo ni shabaha ya Mkristo (mst. 5—6)
 
 Tunaswa kuunganika katika nia moja na kwa roho inayomtukuza Mungu ambaye ni lengo letu la maisha.
 
@@ -84,7 +84,7 @@ Kadiri Paulo alivyokuwa na ujasiri anaongea, haogopi kusema lakini kwa kile amba
 
 ### Sio kwa kwa bahati njema ya upendo, bali kwa ajili ya sababu kubwa nimezuiliwa (mst. 22–24)
 
-Kifungu "hizi nyakati nyingi" inaonyesha jinsi ani wakisto wa Roma kwa kuendelea walivyokuwa katika moyo wake na shauku zake. Kifungu "muda mrefu unaokuja" inaonyesha kwamba yeye alikuwa shauku kubwa ya kuwatembelea watu.
+Kifungu "hizi nyakati nyingi" inaonyesha jinsi gani wakisto wa Roma kwa kuendelea walivyokuwa katika moyo wake na shauku zake. Kifungu "muda mrefu unaokuja" inaonyesha kwamba yeye alikuwa shauku kubwa ya kuwatembelea watu.
 
 ### Ratiba ya Paulo (mst. 25–28)
 

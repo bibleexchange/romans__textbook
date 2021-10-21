@@ -1,4 +1,4 @@
-# Masikitiko ya mtume kwa ajili ya kukataa kwa Waisrael (9:1-5)
+# Masikitiko ya mtume kwa ajili ya kukataa kwa Waisrael (9:1—5)
 
 Warumi sura ya tisa inaongelea kuhusu masikitiko ya Paulo kwa ajili ya wayahudi. Tunapatakuwa sio wazao wote wa Ibrahimu walikuwa wana wa ahadi.
 
@@ -6,7 +6,7 @@ Warumi sura ya tisa inaongelea kuhusu masikitiko ya Paulo kwa ajili ya wayahudi.
 
 Masikitiko yake kwa waliopotea ilikuwa unyofu na uvuvio wa Kimungu.
 
-## Mkazo wa hisia yake (mst. 2-3a)
+## Mkazo wa hisia yake (mst. 2—3a)
 
 **Paulo aliubeba mzigo!** Masikitiko yake yalikuwa mkazo - uzito mkubwa wa kuendelea, kujitoa dhabihu - binafisi.
 
@@ -16,18 +16,18 @@ Paulo alipotia uzito mkubwa kwa kuisikitikia hali ya Waisrael kwa ujumla. Paulo 
 
 Paulo anamasikitiko makuu kwa ajili ya kutokuamini kwa Israel. Kutokuamini hasahasa kutokuwa na moyo kama walivyokumbushwa katika kutokuamini kwao na kutharau urithi wao mkuu. Paulo anatoa urithi wa Wayahudi kama kuwa na sehemu ya nane. Kwa mafungamana ya wayahudi:
 
-1. **KUKUBALIWAADOPTION** - faida ya kukubaliwa - uwana
-2. **UTUKUFUGLORY** - Shekinah ya uwepo wa Mungu
-3. **MAAGANOCOVENANTS** - Ahadi za Mungu zilifanywa kwa Israel
-4. **SHERIA LAW** - Sheria ilitolewa kwenye mlima Sinai
-5. **HUDUMA SERVICE** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
-6. **AHADI PROMISES** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria lakini walimtazamia Kristo.
-7. **MABABA FATHERS** - Uhusiano kwa Baba (Mababa wa kimwili)
-8. **MASIHA WA ISRAEL MESSIAH OF ISRAEL**
+1. **KUKUBALIWA** - faida ya kukubaliwa - uwana
+2. **UTUKUFU** - Shekinah ya uwepo wa Mungu
+3. **MAAGANO** - Ahadi za Mungu zilifanywa kwa Israel
+4. **SHERIA** - Sheria ilitolewa kwenye mlima Sinai
+5. **HUDUMA** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
+6. **AHADI** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria lakini walimtazamia Kristo.
+7. **MABABA** - Uhusiano kwa Baba (Mababa wa kimwili)
+8. **MASIHA WA ISRAEL**
 
-Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yoh. 14:15; 1 Pet. 2:7-8)
+Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yoh. 14:15; 1 Pet. 2:7—8)
 
 ## Haki ya hisia yake
 
-Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisrael waokolewe (War. 9:1-5; 11:26; 10:1). Shauku ya Mungu ni kwamba wenye dhambi wote waokolewe (1 Tim. 2:4; 2 Pet. 3:9; Ezekiel 18:23; Mat. 23:37). Paulo ni mwenye haki katika shauku yake na sio kwamba anapingana ufahamu na mapenzi ya Mungu.
+Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe (War. 9:1—5; 11:26; 10:1). Shauku ya Mungu ni kwamba wenye dhambi wote waokolewe (1 Tim. 2:4; 2 Pet. 3:9; Ezekiel 18:23; Mat. 23:37). Paulo ni mwenye haki katika shauku yake na sio kwamba anapingana ufahamu na mapenzi ya Mungu.
 

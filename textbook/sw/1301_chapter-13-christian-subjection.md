@@ -65,7 +65,7 @@ Kama wahudumu mnahitajiwa kuwaleta wengine kwenye kumjua Kristo; Iliwalitafute n
 
 ### Wasaa wetu
 
-furusa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kwenye mapenzi ya Mungu, tunakuwa vifaa katika mikono ya Bwana.
+Fursa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kwenye mapenzi ya Mungu, tunakuwa vifaa katika mikono ya Bwana.
 
 ## Hitimisho la sura ya 13
 

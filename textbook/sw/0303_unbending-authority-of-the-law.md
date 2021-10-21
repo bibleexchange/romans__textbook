@@ -1,6 +1,6 @@
-## Mamlaka yasiyopindika ya sheria (3:9-19)
+## Mamlaka yasiyopindika ya sheria (3:9—19)
 
-> *Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwa wale ambao wanaijua (mst. 20-30), haijafanywa kama kitu cha kuepuka bali inathibitishwa kwa imani yetu. (mst. 31)*
+> *Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwa wale ambao wanaijua (mst. 20—30), haijafanywa kama kitu cha kuepuka bali inathibitishwa kwa imani yetu. (mst. 31)*
 
 Dunia yote iko chini ya hukumu.
 
@@ -16,7 +16,7 @@ Mwenye dhambi ni nani? Tumeshathibitisha kuwa wote wayahudi na wamataifa wako ch
 
 ### Ushahidi wa amri (3:19)
  
-## Shitaka lililo somwa toka Maandiko (mst. 10-18)
+## Shitaka lililo somwa toka Maandiko (mst. 10—18)
 
 ### Kulingana na sheria za kimahakama shitaka rasimi lazima liwe limeandikwa
 

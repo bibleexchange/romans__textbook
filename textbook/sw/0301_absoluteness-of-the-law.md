@@ -1,14 +1,14 @@
-## Uhalisia wa sheria (3:3-8)
+## Uhalisia wa sheria (3:3—8)
 
->*Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwa wale ambao wanaijua (mst. 1-2), ni halisi katika asili yake (mst. 3-8), kutopindika katika, mamlaka yake (mst. 9-19),  inakusudi dhahiri (mst. 20-30), haikufanywa kwa ajili ya kuepukwa bali zaidi imethibitishwa katika mioyo yetu (mst. 31).*
+>*Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwa wale ambao wanaijua (mst. 1—2), ni halisi katika asili yake (mst. 3—8), kutopindika katika, mamlaka yake (mst. 9—19),  inakusudi dhahiri (mst. 20—30), haikufanywa kwa ajili ya kuepukwa bali zaidi imethibitishwa katika mioyo yetu (mst. 31).*
 
-> MFANO: Madireva wawili wa malori walikuwa wanasafiri kwa pamoja kwa kuburuza matrela ya urefu wa 12 na 4 walipofika eneo la alama ya kupita kwenye forodha alama ya 11 na 3. Wakwanza alimuuliza mwenzake, je unafikije? wa pili aliangalia pembeni ilikuona polisi hakuona mtu, ndipo alipendekeza kwamba twende tujaribu.
+> MFANO: Madireva wawili wa malori walikuwa wanasafiri kwa pamoja kwa kuburuza matrela ya urefu wa 12 na 4 walipofika eneo la alama ya kupita kwenye forodha alama ya 11 na 3. Wakwanza alimuuliza mwenzake, je unafikirije? wa pili aliangalia pembeni ilikuona polisi hakuona mtu, ndipo alipendekeza kwamba twende tujaribu.
 
 ### Kiwango ni Kristo asiyebadillika
 
 Tumeshafanya udhahiri kati ya maagizo maalumu yaliyotolewa kwa njia ya Musa yaakijumuishwa na Kusudi la Mungu. Ni kosa kubwa kuifanya sheria ya Musa kuwa ni maagizo ya mwisho ya mapenzi ya Mungu. Ukamilifu wa mapenzi ya Mungu ni mkubwa sana kuliko sheria iliotolewa kwa njia ya Musa.
 
-Iko katika Yesu, tunaona ukamilifu wa mapenzi ya Mungu. Bwana Yesu Kristo ni kiwango cha tarajio la Mungu (Waef. 4:11-16).
+Iko katika Yesu, tunaona ukamilifu wa mapenzi ya Mungu. Bwana Yesu Kristo ni kiwango cha tarajio la Mungu (Waef. 4:11—16).
 
 Kwa maana makusudi ya somo letu tumefafanua sheria ya Mungu kama:
 
@@ -18,7 +18,7 @@ Sheria ya Mungu inatawaliwa na asili yake. Kile kilicho ndani ya sheria ya Mungu
 
 > 2 Samuel 22:31—Mungu njia yake ni kamilifu; Ahadi ya Bwana imehakikishwa; Yeye ndiye ngao yao Wote wanaomkimbilia. (linganisha na Zab. 101)
 
-### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst.3-4) Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya wayahudi ni wabaya?kama baadhi yao hawa amini je itazuia mpango wa Mungu?
+### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst.3—4) Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya wayahudi ni wabaya?kama baadhi yao hawa amini je itazuia mpango wa Mungu?
 
 Je wasio amini hufuta mpango wa Mungu? Angali II Tim. 2:13.
 
@@ -32,7 +32,7 @@ Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kuba
 
 > II Tim. 2:13—Kama sisi hatuamini, yeye hudumu wa kuaminiwa. Kwa **maana hawezi kujikana mwenyewe.**
 
-Hii sio sababu, ya baadhi ya wayahudi ambayo hawakuwa waaminifu na ikahitajika imani katika kumwemini Yesu Kristo. Hii ni kwasababu ya ukamilifu wa mpango wa Mungu ambao muda wote uko katika Kristo.
+Hii sio sababu, ya baadhi ya wayahudi ambayo hawakuwa waaminifu na ikahitajika imani katika kumwamini Yesu Kristo. Hii ni kwasababu ya ukamilifu wa mpango wa Mungu ambao muda wote uko katika Kristo.
 
 > Uf. 13:8—Na watu wote wakaao juu ya nchi watamsujudu, kila ambaye jina lake halikuandikwa katika kitabu cha uzima cha Mwana-Kondoo, aliyechinjwa tangu kuwekwa misingi ya dunia.
 
@@ -42,7 +42,7 @@ Hii sio sababu, ya baadhi ya wayahudi ambayo hawakuwa waaminifu na ikahitajika i
 
 Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zab. 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
 
-### Ikiwa dhambi zetu zinaitukuza haki ya Mungu, je yeye atatuhukumuje? (mst. 5-7)
+### Ikiwa dhambi zetu zinaitukuza haki ya Mungu, je yeye atatuhukumuje? (mst. 5—7)
 
 #### Hebu tufahamu maana ya swali
 
@@ -54,7 +54,7 @@ Hii bado iko upande wetu kufahamu. Kukumbuka kwamba Mungu anashughulika na vizui
 
 #### Mungu amepinga: kwahiyo basi jinsi gani atauhukumu ulimwengu?
 
-Jibu ni: kwa hakika sio. Kama kanuni hii imetumika kisha itakkuwaje Mungu kuipitia hukumu juu y a ulimwengu? Ulimwengu hapa unarelewa kama mataifa. Wayahudi walikuwa bado wanajaribu kujitolea udhuru kutoka kwenye hukumu. Ni kitu maalumu kwa Mungu mwenye haki kuhukumu wasio haki wenye dhambi haijalishi ni Wayahudi ama Wamataifa.
+Jibu ni: kwa hakika sio. Kama kanuni hii imetumika kisha itakuwaje Mungu kuipitia hukumu juu y a ulimwengu? Ulimwengu hapa unalelewa kama mataifa. Wayahudi walikuwa bado wanajaribu kujitolea udhuru kutoka kwenye hukumu. Ni kitu maalumu kwa Mungu mwenye haki kuhukumu wasio haki wenye dhambi haijalishi ni Wayahudi ama Wamataifa.
 
 Ukweli ni, Mungu anaweza kuuhukumu ulimwengu kwasababu yeye ni mwenye haki.
 

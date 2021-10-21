@@ -1,16 +1,16 @@
-# WARUMI SURA YA 9-11
+# WARUMI SURA YA 9—11
 
-## Utangulizi kwa Warumi 9-11
+## Utangulizi kwa Warumi 9—11
 
-### Kiini The Theme
+### Kiini
 
  Kumbuka muundo wa Warumi? 
 
-- Utangulizi — 1:1-17
-- MGAWANYO WA KWANZA: Mafundisho — 1:18-8:29
-- MGAWANYO WA PILI: Mpango ukweli — 9:1-11:26
-- MGAWANYO WA TATU: Kutenda kazi — 12:1-15:33
-- Hitimisho — 16:1-2
+- Utangulizi — 1:1—17
+- MGAWANYO WA KWANZA: Mafundisho — 1:18—8:29
+- MGAWANYO WA PILI: Mpango ukweli — 9:1—11:26
+- MGAWANYO WA TATU: Kutenda kazi — 12:1—15:33
+- Hitimisho — 16:1—2
 
 Warumi 9 mwanzoni mwa mgawanyo wa pili kati ya migawanyo mitatu ya kitabu cha Warumi. Sura ya 8 imehitimishwa na Mgawanyo wa  kwanza ambao ni kimsingi wa kimafundisho na sura ya tisa imeanza na mgawanyo wa pili ambao ni mpango ukweli mkubwa.
 
@@ -20,9 +20,9 @@ Dhamira ya mgawanyo wa huu wa pili ni wakimpango ukweli kuhusiana na waisraeli h
 
 ## Mpango
 
-1. Sikitiko la mtume kwenye ukataaji wa waisrael (9:1-5)
-2. Kukataa kwa waisrael na utawala wa Mungu (9:6-29)
-3. Kukataa kwa waisrael na jukumu la mwanadamu (9:30-10:21)
-4. Kukataa kwa waisrael na kusudi la Mungu kwa ajili ya msitakabali wao (11:1-32)
-5. Maneno ya mtume ya kumsifu Mungu (11:33-36)
+1. Sikitiko la mtume kwenye ukataaji wa waisrael (9:1—5)
+2. Kukataa kwa waisrael na utawala wa Mungu (9:6—29)
+3. Kukataa kwa waisrael na jukumu la mwanadamu (9:30—10:21)
+4. Kukataa kwa waisrael na kusudi la Mungu kwa ajili ya msitakabali wao (11:1—32)
+5. Maneno ya mtume ya kumsifu Mungu (11:33—36)
 

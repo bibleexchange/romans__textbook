@@ -1,23 +1,23 @@
 # Utawala wa neema katika utumishi wa haki (sura ya 6)
 
-Katika surta ya sita, Paulo alianza kwa kuweka wazi mahusiano ambayo waumini waliokuwa na dhambi na kuhitimisha kwamba dhambi haitaendelea kutawala juu ya waumini na wale waumini wasiendelee katika dhambi. Paulo alijibu swali "Tufanye dhambi?" kwa kuwaliza na alitoa majibi mawili ya kufanana lakini maswali tofauti:
+Katika sura ya sita, Paulo alianza kwa kuweka wazi mahusiano ambayo waumini waliokuwa na dhambi na kuhitimisha kwamba dhambi haitaendelea kutawala juu ya waumini na wale waumini wasiendelee katika dhambi. Paulo alijibu swali "Tufanye dhambi?" kwa kuwaliza na alitoa majibu mawili ya kufanana lakini maswali tofauti:
 
-* Tudumu katiak dhambi, ili neema izidi? (mst. 1-14)
-* Tufanye dhambi, kwasababu hatuko chini ya sheria, bali chini neema? (mst. 15-23)
+* Tudumu katiak dhambi, ili neema izidi? (mst. 1—14)
+* Tufanye dhambi, kwasababu hatuko chini ya sheria, bali chini neema? (mst. 15—23)
 
 Paulo alithibitisha hilo kwa kuwa hakuna sababu nzuri ya kufanya dhambi. Hakuna sababu sahihi ya kufanya dhambi au ya kunufaisha.
 
-## Neema huongezeka wakati tunatembea katika upya wa uzima wa Kristo (mst. 1-14)
+## Neema huongezeka wakati tunatembea katika upya wa uzima wa Kristo (mst. 1—14)
 
 Paulo alifundisha kuwa kuishi katika dhambi lakini kama tutafia dhambini isiwezekane. Ama ufe katika dhambi au uwe hai katika dhambi. Wakati umeokoa hundi ya timu kwa faida, moyo wa mwathirika unaweza kusukuma damu au moyo wake unaweweza kutulia. Kama tutasulubiwa katika Kristo, Mungu hatainua tena ule utu wa kale, bali Mungu atatuinulia juu **upya wa uzima** kale.
 
-## Mahusiano ya wenye dhambi kwa dhambi (mst. 1-6)
+## Mahusiano ya wenye dhambi kwa dhambi (mst. 1—6)
 
 Paulo aliwaeleza waumini mahusiano ya kufanya dhambi kama "kifo" kwao.
 
 #### Ni lini tumeokolewa kweli kutoka dhambini au kutoka mautini?
 
-Wokovu ni dawa kamili kwa mwanadamu (mwili, nafsi, na roho). Mpango wa Mungu wa Wokovu hauwezi kuzuiliwa katika kuhesabiwa haki (kurekebisha mahusiano ya waumini katika sheria), bali kuendelea katika utakaso (kumrejesha mwanadamu kutembea na Mungu), ambaye ni kilele katika utimilifu (Wokovu umekamilishwa). Wokovu katika Biblia ni neno ambalo linajumuisha matendo yote ya ukombozi na ni umiliki wa Mungu: Kupitishwa, kuhesabiwa haki, ukombozi, kuzaliwa mara ya pili, neema, upatanisho, mkazo, kugawa, msamaha, utakaso, utukufu na ukamilifu. Soma Warumi 8:29-30.
+Wokovu ni dawa kamili kwa mwanadamu (mwili, nafsi, na roho). Mpango wa Mungu wa Wokovu hauwezi kuzuiliwa katika kuhesabiwa haki (kurekebisha mahusiano ya waumini katika sheria), bali kuendelea katika utakaso (kumrejesha mwanadamu kutembea na Mungu), ambaye ni kilele katika utimilifu (Wokovu umekamilishwa). Wokovu katika Biblia ni neno ambalo linajumuisha matendo yote ya ukombozi na ni umiliki wa Mungu: Kupitishwa, kuhesabiwa haki, ukombozi, kuzaliwa mara ya pili, neema, upatanisho, mkazo, kugawa, msamaha, utakaso, utukufu na ukamilifu. Soma Warumi 8:29—30.
 
 Agano Jipya linaeleza Wokovu katika nyakati tatu: uliopo, uliopita, na ujao:
 
@@ -26,7 +26,7 @@ Agano Jipya linaeleza Wokovu katika nyakati tatu: uliopo, uliopita, na ujao:
 |Tumeokolewa: alimaliza kwa wakati uliopita | Tunaokolewa: kitendo kinachoendelea | Tutaokolewa: itakamilika kwa wakati ujao |
 |Tumeokolewa kutoka kwenye adhabu ya dhambi na hatia: Kuhesabiwa haki, msamaha, kuokolewa | Kutoka nguvu ya dhambi: endelevu -> kutakaswa, kusafishwa | Kuokolewa mbali na dhambi kwa wakati uliopo: Alitukuzwa, imekamilika |
 | Nafsi, mwili, roho | Uzima, mazungumzo, mwenendo | Kukamilishwa, fanikishwa, kumaliza |
-| II Tim. 1:9; Tit.3:5; Efes. 2:8-9; Luk.7:50; Yoh.5:24; 6:47; | I Kor. 1:18 ("Tumeokolewa"), Filp. 2:12 II Kor. 2:15; II Kor. 15:2; Efes. 2:5, 8; Rum. 6:14; Gal. 2:19–20; IIKor. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yoh. 10:9; Rum. 10:13; IKor. 3:15, 5:15; Efes. 1:13, 14; I Thes. 5:8; Ebr. 10:36; I Tim. 2:4; I Petr. 1:5, 4:18; I Yoh. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
+| II Tim. 1:9; Tit.3:5; Efes. 2:8—9; Luk.7:50; Yoh.5:24; 6:47; | I Kor. 1:18 ("Tumeokolewa"), Filp. 2:12 II Kor. 2:15; II Kor. 15:2; Efes. 2:5, 8; Rum. 6:14; Gal. 2:19–20; IIKor. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yoh. 10:9; Rum. 10:13; IKor. 3:15, 5:15; Efes. 1:13, 14; I Thes. 5:8; Ebr. 10:36; I Tim. 2:4; I Petr. 1:5, 4:18; I Yoh. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
 
 Tunaweza kupata maelezo ya muhtasari katika II Wakorintho 1:10:
 
@@ -34,7 +34,7 @@ Tunaweza kupata maelezo ya muhtasari katika II Wakorintho 1:10:
 
 #### Tutakuaje wafu wa dhambi?
 
-Tume batizwa kupitia kifo cha Kristo, tumesulubiwa pamoja na Kristo, na kuifia dhambi (mst. 1-6).
+Tume batizwa kupitia kifo cha Kristo, tumesulubiwa pamoja na Kristo, na kuifia dhambi (mst. 1—6).
 
 ##### sababu ya kifo hiki
 
@@ -69,7 +69,7 @@ Kifo hiki kina mwisho kwa waumini wake wa asili ya dhambi. "Utu wa kale" hautafu
 1. Mme na mke (War. 7:2; I Kor. 7:39)
 2. Dhambi na sheria (War. 7:4)
 
-Kifo hiki ni mwisho wa waumini wenye mahusiano na dhambi (utu wa kale). Kabala hatujasulibishwa pamoja na Kristo tulikuwa watumishi (watumwa) wa dhambi (Mith. 13:15) na mlikuwa wafu katika dhambi (Efes. 2:1).
+Kifo hiki ni mwisho wa waumini wenye mahusiano na dhambi (utu wa kale). Kabla hatujasulibishwa pamoja na Kristo tulikuwa watumishi (watumwa) wa dhambi (Mith. 13:15) na mlikuwa wafu katika dhambi (Efes. 2:1).
 
 #### Uhusiano wa dhambi kwa muumini (mst. 6)
 
@@ -82,19 +82,19 @@ Hatufanani (Gal. 6:14). Tume:
 * tutakuwa pia katika ufanano wa ufufuko wake:
 * Utu wetu wa kale umesulibiwa pamoja naye, ambayo mwili wa dhambi utaharibiwa,
 
-### Tudumu katiak dhambi? (mst. 5, 7-14)
+### Tudumu katiak dhambi? (mst. 5, 7—14)
 
 Kwasababu tulikufa kwa ajili ya dhambi, tumekuwa huru mbali na dhambi (mst. 7). Kwasababu tulikufa pamoja na Kristo, tutaishi pamoja naye! 
 
-#### Kifo hakitawali tena juu ya Kristo (mst. 9-10)
+#### Kifo hakitawali tena juu ya Kristo (mst. 9—10)
 
 Tulikufa katika dhambi, bali tu hai kwa Mungu. Dhambi ilitisha na kushindana na Kristo.
 
-#### Muumini lazima ajitawale mwenyewe (mst. 11-14)
+#### Muumini lazima ajitawale mwenyewe (mst. 11—14)
 
 Chukua mamlaka juu ya akili yako katika jina la Yesu. Mstari wa 12 unasema, "Basi, dhambi **isitawale**...." Kuna nguvu katika Mungu (Neema yake) ile inayomwezesha mtu kuwa mfu wa dhambi na kuishi kwa haki. Muumini afanyie mazoezi imani yake kwa uthabiti wa maono ya Mungu ambayo muumini hatakuwa chini ya utawala wa dhambi. "kujitawala mwenyewe" ni muhumu kwa watakatifu ili kubaki chini ya neema na kutoka chini ya laana ya sheria. Zingatia maneno yanayotegemea matendo ya watakatifu katika mistari hii: "jifikirie ninyi wenyewe...," "Kwahiyo usiache dhambi itawale katika mwili wa mauti...," na "Wala ninyi msizalishe vyombo visivyo vya haki katika dhambi: bali vuneni yaliyo kwa Mungu..." Tunaishinda dhambi kwa Neno la Mungu—kwa kufanya kile anachokisema. Kujizalisha wenyewe kwa Mungu maana yake ni kwamba kujitafutia sababu ya mizizi yenu na kuing'oa kutoka katika maisha yenu.
 
-## Kuwa chini ya neema sio ruhusa ya kufanya dhambi (mst. 15-23)
+## Kuwa chini ya neema sio ruhusa ya kufanya dhambi (mst. 15—23)
 
 ### Kisa cha neema (mst. 15)
 
@@ -106,7 +106,7 @@ Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi 
 
 Maisha ya Mkristo ni ya hiyari, lakini tuwe wazalishaji wa hiyari sisi wenyewe kwa Mungu, tutakuwa **watumishi** na hivyo wajibu kama watumishi uko kwa bwana wao.
 
-### Tulikuwa watumishi wa dhambi, bali sasa ni watumishi wa haki (mst. 17-19)
+### Tulikuwa watumishi wa dhambi, bali sasa ni watumishi wa haki (mst. 17—19)
 
 "Tabia ya zamani ni ngumu kufa." Kitu kinachobadilisha utumishi wetu kutoka kwenye dhambi ni wewe mwenyewe kwa Mungu, tunatakiwa tuwe na tahadhari katika jitihada zetu za kumtumikia Bwana wetu kwa uaminifu. Tunaelekezwa kufanya baadhi ya mambo:
 
@@ -118,12 +118,12 @@ Maisha ya Mkristo ni ya hiyari, lakini tuwe wazalishaji wa hiyari sisi wenyewe k
 
 Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efes.5:12).
 
-### Linganisha matokeo ya dhambi na matokeo ya haki (mst. 20-23)
+### Linganisha matokeo ya dhambi na matokeo ya haki (mst. 20—23)
 
 | Mtumwa wa dhambi | Mtumwa wa Haki |
 | --- | --- |
 | Huru toka haki | Huru toka dhambi |
 | Tunda la aibu | Tunda la kumuadhimisha Mungu, utakatifu |
 | Kifo | Uzima wa milele |
-| Mshahara wa dhambi ni mauti | Karama ya Mungu ni uzima wa milele kupotia: Yesu Kristo BWANA Wetu. |
+| Mshahara wa dhambi ni mauti | Karama ya Mungu ni uzima wa milele kupitia: Yesu Kristo BWANA Wetu. |
 

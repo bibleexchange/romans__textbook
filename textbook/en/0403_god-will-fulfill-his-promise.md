@@ -1,10 +1,10 @@
-## God will Fulfill His Promise (4:18-25)
+## God will Fulfill His Promise (4:18—25)
 
-### The Promise to Abraham (vs. 18-22)
+### The Promise to Abraham (vs. 18—22)
 
 Abraham was given the promise of God. God promised Abraham he would have a son. Also, the Messiah would be a son of Abraham. Jesus fulfilled prophecy and was born according to his natural lineage as a descendant of Abraham. 
 
-### The Promise of Justification (v. 23-24)
+### The Promise of Justification (v. 23—24)
 
 ### The Condition of Justification (v. 24)
 
@@ -27,7 +27,7 @@ The following arguments are presented:
 1. Justification/Righteousness is by faith.
 2. Justification/Righteousness is not obtained by works.
 3. Justification/Righteousness is not acquired by circumcision.
-4. You cannot gain Justification/Righteousness through adherence of the law. 4:13-17
+4. You cannot gain Justification/Righteousness through adherence of the law. 4:13—17
 5. Abraham's faith shows us an example that we must follow.
 6. Paul reasoned that Justification/Righteousness by faith is the only way to please God.
 

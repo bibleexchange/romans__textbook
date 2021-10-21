@@ -39,11 +39,11 @@ Zungusha jibu sahihi.
 
 Jaza nafasi zilizo wazi.
 
-## Warumi iliandikwa kutoka **Korinto** mnamo **57-58** BK. (Pointi 1)
+## Warumi iliandikwa kutoka **Korinto** mnamo **57–58** BK. (Pointi 1)
 
 ## Ingawa wamataifa hawakuwa na neno lilioandikwa; lakini bado wanakanuni ileile ikiwa pamoja na neno **lililoandikwa** **katika** **mioyo** **yao**. (Pointi 4)
 
-## Wale walio katikla Kristo wamepokea Roho ya **kuhuishwa**. (Pointi 10)
+## Wale walio katika Kristo wamepokea Roho ya **kuhuishwa**. (Pointi 10)
 
 ## Warumi sura ya kumi na mbili inahusiana na **majukumu** ya **Wakristo**, ambapo mwishowe inapelekea **maisha** ya **kushindwa**. (Pointi 16)
 

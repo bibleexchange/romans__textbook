@@ -45,41 +45,41 @@ The historian Cassius Dio reports the following action taken by Claudius against
 
 > "As for the Jews, who had again increased so greatly that by reason of their multitude it would have been hard without raising a tumult to bar them from the city, he did not drive them out, but ordered them, while continuing their traditional mode of life, not to hold meetings."
 
-Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57-58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of Believers. Though their gathering places were 'decentralized', especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being 'one body' in Christ.
+Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57—58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of Believers. Though their gathering places were 'decentralized', especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being 'one body' in Christ.
 
 ## TIME & PLACE
 
-Romans was written from Corinth around 57-58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1-4; 2 Cor. 8-9) and Romans 15:25-28 looks upon it as just completed. Since in I Corinthians 16:3-4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57-58.
+Romans was written from Corinth around 57—58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1—4; 2 Cor. 8—9) and Romans 15:25—28 looks upon it as just completed. Since in I Corinthians 16:3—4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57—58.
 
 ## OCCASION
 
-Romans was written as Paul's introduction to the Christians at Rome preceding his journey to them. Apostle Paul had long been intending to visit the Roman Christians as soon as he accomplished the business he had at hand which was the collection for the poor at Jerusalem (1:13; 15:25, 26, 28). His work in the east was over; he was on the eve of his journey to Jerusalem. He wanted to introduce himself to the Christians at Rome before making his stop there so he wrote this epistle with the intention of sending it on the first favorable opportunity. Phoebe's voyage to Rome afforded Paul such an opportunity (16:1-2).
+Romans was written as Paul's introduction to the Christians at Rome preceding his journey to them. Apostle Paul had long been intending to visit the Roman Christians as soon as he accomplished the business he had at hand which was the collection for the poor at Jerusalem (1:13; 15:25, 26, 28). His work in the east was over; he was on the eve of his journey to Jerusalem. He wanted to introduce himself to the Christians at Rome before making his stop there so he wrote this epistle with the intention of sending it on the first favorable opportunity. Phoebe's voyage to Rome afforded Paul such an opportunity (16:1—2).
 
 ## PURPOSE
 
 Romans is a theological treatise of the meaning of the Gospel. Though the church is predominately Gentile, Judaism was a dominate influence early on. There were many Jews in Rome at the time of the writing of the Epistle to the Romans and even the Jewish Christians were heavily bound to the traditions and heritage of Judaism. The Jews believed because they had Moses's Law and the covenant of circumcision that they were guaranteed eternal life with God. They believed they were superior to the heathen Gentiles and that they did not need to submit to heathen rulers. Paul refutes the doctrines of the Jews which were inconsistent with Scripture.
 
-# Paul's Introduction to Romans (1:1-17)
+# Paul's Introduction to Romans (1:1—17)
 
-## Paul's Salutation (v. 1-7)
+## Paul's Salutation (v. 1—7)
 
-An apostle is one who has been SENT FORTH as a messenger or representative of and fully authorized by the sender—a delegate or ambassador. (Acts 9:3-9, 15-22, 28) Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts 1, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
+An apostle is one who has been SENT FORTH as a messenger or representative of and fully authorized by the sender—a delegate or ambassador. (Acts 9:3—9, 15—22, 28) Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts 1, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
 
 Paul was a "preacher of the Gospel." He was a separated messenger with a special Message. The Gospel is a mystery (Mark 4:11; I Tim. 3:9,16; Col. 2:2; 4:3; Eph. 1:9) and a Divine revelation. (Acts 9).
 
 Absolute consecration is spoken of in these words. Paul was set apart to preach one message and only one message. Paul did not declare a message that exalted himself nor did he do a work to further his position in the eyes of men. Paul declares that his purpose in life was the Gospel of God, and so should this be our purpose as ministers of the Gospel.
 
-### His Message (v. 1-5)
+### His Message (v. 1—5)
 
 Paul's message is the Gospel. The Gospel does not originate from Paul and is wholly concerned with Jesus Christ: our Lord, seed of David, Son of God, resurrected.
 
-### His Readers (v.6-7)
+### His Readers (v.6—7)
 
 Those connected to Jesus are connected with Him by His calling. The Called that Paul is writing to does not simply mean those invited, but means those invited that have come.
 
 It is unquestionable that the recipients of this epistle were the Roman Christians (v. 7, 15). Scripture seems to point to a predominantly Gentile Roman church as Paul's manner of addressing the church leaves hardly any doubt that he is writing to Gentiles. In chapter one, Paul speaks of his apostleship for obedience of the faith among all the nations (1:5). He refers to the recipients as "other gentiles" and also gives as his reason for being ready to preach the Gospel to them as that he is debtor both to the Greeks and to the barbarians (1:14), and that the Gospel is the power of God unto salvation, though to the Jew first, yet to the Greek also (1:16).
 
-When the position and prospects of the Jewish nation are under review and Paul comes to admonition, it is to the Gentile believers that he addresses it (1:13; 11:13; 15:15-16).
+When the position and prospects of the Jewish nation are under review and Paul comes to admonition, it is to the Gentile believers that he addresses it (1:13; 11:13; 15:15—16).
 
 The family of God comprises of saints called out of the world by God's grace to be His own people (I Cor. 1:2). Saints are those who are set apart for worship and praise. Another word key to understanding the meaning of "saints" is "sanctified." Saints are directly opposed to sin. Saints are those who allow holiness to become a reality in their lives. True righteousness is a phenomenon of the will. True righteousness always produces outward action and inward results. Every form of sin must be put out of the heart. As moral agents our intellect must disapprove of sin.
 
@@ -87,27 +87,27 @@ The family of God comprises of saints called out of the world by God's grace to 
 
 This is a common greeting of Paul in his epistles. The title "Jesus Christ our Lord" or "Lord Jesus Christ" is used ten times in Romans. Jesus is the personal name as Savior. Matt. 1:21. Christ is "God's anointed one" Lord denotes He is Lord of all things in heaven and earth (Acts 10:36). Jesus Christ our Lord is the Master of every situation!
 
-## Paul's Readiness (to Visit, Impart & Preach)	 (v. 8-15)
+## Paul's Readiness (to Visit, Impart & Preach)	 (v. 8—15)
 
-Verses 8-15 express Paul's personal feelings for the Roman saints.
+Verses 8—15 express Paul's personal feelings for the Roman saints.
 
-### Paul is thankful for the faith of the Roman saints and so prays for them (v. 8-9)
+### Paul is thankful for the faith of the Roman saints and so prays for them (v. 8—9)
 
 The whole world is in reference to the domain of the Roman Empire which often referred to itself as the whole world. It was Augustus who made the decree at the birth of Christ that the whole world should be taxed, which was in reference to the dominions of Rome.
 
 The faith of the saints in Rome was spoken of throughout the entire Empire. These Roman Christians are the "Beloved of God," "Called to be saints," and recipients of the grace and peace "from God our Father, and the Lord Jesus Christ." Their testimony bears out that they are separated unto God and represent the King of Glory. What a treasure a good testimony is! Paul stands on the battleground in prayer that their faith and testimony would continue.
 
-### He has a great desire to visit the Roman saints and impart spiritual gifts unto them because of his motive to see the church established (v. 10-12)
+### He has a great desire to visit the Roman saints and impart spiritual gifts unto them because of his motive to see the church established (v. 10—12)
 
 Rome was strategic, but Paul is led by the Spirit and not statistics. It is probable that Paul realized the strategic value of building up the church in the capital city of the Roman Empire, but Paul was a caliber of minister that would invest as heavily in a city no one ever heard of. He was blessed to hear that there were saints in Rome and desired to visit them to do his part to strengthen the church there. It is logical that a revival in the city of Rome would have impact on the entire Empire, but the truth is, God could choose any place to be the start of a revival that would turn the world upside down (Acts 17:6).
 
-### Paul had been hindered from going to Rome (v. 13-15)
+### Paul had been hindered from going to Rome (v. 13—15)
 
 He had wanted to and even planned to go, but he had been hindered. Paul would one day go to Rome as a prisoner to stand before the Roman leaders and proclaim the Gospel of Jesus Christ. The book of Acts tells us that Paul dwelt two years in Rome. It is believed that he was under house arrest during this time of being in Rome. He was beheaded in Rome in AD 67.
 
 Paul had great desire to preach the Gospel in Rome. He uses the word "debtor" in reference to himself to show that he is committed to preach to all men (v. 14). He was a debtor to the sinner to tell him about Christ. "Greeks" is used to refer to the wise Gentiles who have been educated in Greek culture and philosophy. "Barbarians" is used to refer to those outside of the Greek culture, that would not have been educated. Paul is ready to preach to everyone.
 
-## Paul's Theme: The Gospel (1:16-17)
+## Paul's Theme: The Gospel (1:16—17)
 
 Verses 16 and 17 are the key verses of this epistle and are a summary of the epistle. 
 
@@ -155,7 +155,7 @@ Light represents truth which guides the Christian on his journey (Pro. 4:18; Ps.
 
 > Galatians 2:20—I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.
 
-# All are guilty and under sin (1:18-32; 2:1-29)
+# All are guilty and under sin (1:18—32; 2:1—29)
 
 > Romans 3:9—... we have before proved both Jews and Gentiles, that they are all under sin;
 
@@ -163,25 +163,25 @@ Light represents truth which guides the Christian on his journey (Pro. 4:18; Ps.
 
 All mankind needs to be justified through Jesus, or the wrath of God will be revealed against it (1:18). Jesus is the only way to salvation and those who do not chose to accept the provision of Christ are condemned (John 3:18).
 
-## Gentile guilt (1:19-32)
+## Gentile guilt (1:19—32)
 
 The conclusion of this chapter continues on describing this people who are guilty and worthy of the wrath of God. They are without excuse.
 
-### They knew God (1:19-23)
+### They knew God (1:19—23)
 
 God has manifested Himself to them (v.19). Creation itself clearly declares the things of God (v.20). Even those who did not receive the Law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v.21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.
 
-## Jewish/religious guilt (2:1-29)
+## Jewish/religious guilt (2:1—29)
 
 Romans chapter two talks about the guilty Jew or the guilty religious person. The Jew refused to obey The Light of Revelation. In this chapter we see the Jew condemning others, just as the Pharisees did. This chapter also talks about the circumcision of the heart, which is most important.
 
-### The Principles of God's Judgment (v. 1-16)
+### The Principles of God's Judgment (v. 1—16)
 
 #### God's judgment is true (2:2)
 
 God's judgment is according to truth, unbiased, and absolute. A man may feel self-confident and sure of his own place at the time he judges another, but without a doubt he is without a defense--inexcusable--when the judgment of God comes.
 
-#### God's judgment is impartial (2:3-11)
+#### God's judgment is impartial (2:3—11)
 
 #### Those who have sinned without the Law will perish without it (2:12)
 
@@ -193,7 +193,7 @@ Those who have sinned in the Law will be judged by the Law. He stands in this pl
 
 Justification is now only provided by faith in Jesus Christ. Christ is the fulfillment of the law. Under the New Covenant of Grace men can only be justified through Jesus Christ. The sacrifices of the law looked forward to redemption through Christ's blood and justification which is by faith. So today the only way man can obey God is to accept the atonement of Jesus Christ (Galatians 3:24).
 
-### The Law of God is written on the hearts of men (2:14-16)
+### The Law of God is written on the hearts of men (2:14—16)
 
 Does verse 12 mean that a Gentile cannot be justified because he has not been given the law that he may obey it as the Jews have? No, absolutely not. The Gentile may do by nature the things contained in the law without ever having it because God has placed in every man a conscience whereas long as men guard it and keep it are a law unto themselves in the proper and true sense of the phrase. This law is written in their HEARTS and their conscience bears witness to it.
 
@@ -203,27 +203,27 @@ God created man with a conscience which is a natural sense of right and wrong. G
 
 ##### God will judge the secrets of men (2:16)
 
-### THE UNFAITHFUL JEW IS UNDER CONDEMNATION (2:17-25)
+### THE UNFAITHFUL JEW IS UNDER CONDEMNATION (2:17—25)
 
-#### The Jews rested in the Law (2:17-18)
+#### The Jews rested in the Law (2:17—18)
 
-The Jews claimed to be exempt from condemnation based on heritage. When Jesus condemned the Jews, they replied: We be Abrahams seed; Jesus responded: if ye were Abraham's children, ye would do the works of Abraham.—Jn. 8:33-39 The Jews believed they would receive eternal life on the merit of being a Jew and the covenant of circumcision. The old Rabbinical writings state that no circumcised man will be lost. The Jews had a tradition that Abraham stood at the gates of hell to insure that no circumcised man was ever cast there.
+The Jews claimed to be exempt from condemnation based on heritage. When Jesus condemned the Jews, they replied: We be Abrahams seed; Jesus responded: if ye were Abraham's children, ye would do the works of Abraham.—Jn. 8:33—39 The Jews believed they would receive eternal life on the merit of being a Jew and the covenant of circumcision. The old Rabbinical writings state that no circumcised man will be lost. The Jews had a tradition that Abraham stood at the gates of hell to insure that no circumcised man was ever cast there.
 
 Knowledge of the law cannot save the Jew. The Jew that boasts in the law believes he is a guide for the blind, but is blind himself. That is, he believes he knows the way, and no one else does. He stands in this place of great self-confidence because he KNOWS the law, but THERE IS NO RIGHTEOUSNESS IN KNOWING THE LAW. Paul speaks directly to emphasize his point, "Thou that preachest a man should not steal, dost thou steal?" Paul is clearly presenting that just as the Gentile is guilty because he DOES NOT the law and not that because he has not the law as the Jews do, so also are the Jews not pardoned from their guilt because they have and know the law, but they as well are judged for not DOING the law. Their self-confidence is fool hearty for they are the blind leading the blind.
 
-#### The Jews believed they were superior to the Gentiles (2:19-25)
+#### The Jews believed they were superior to the Gentiles (2:19—25)
 
-#### The True "Jew" is one that is so INWARDLY (heart, spirit) (2:26-29)
+#### The True "Jew" is one that is so INWARDLY (heart, spirit) (2:26—29)
 
 Circumcision was a sign of the cutting away of the flesh. The uncircumcised Gentile who obeyed God's law had more profit than the circumcised Jew who disobeyed it.
 
 Circumcision is of the heart. The issue for justification is not over if a man was born Jew or Gentile, whether he has been circumcised or not, or if he has the law or not, but has his HEART been circumcised? Has the hardness, impenitence, and sin been cut out of his heart? Paul concludes a true Jew is one who has faith inwardly, whose heart has been changed, and not one who merely follows outward ceremonies in the flesh. Every Jew needs to add to his physical circumcision a circumcision of the heart through repentance and a changed life.
 
-## Conclusion (3:9-19)
+## Conclusion (3:9—19)
 
 # The Law in a Right Perspective (chapter 3)
 
-Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established by our faith (v. 31).
+Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established by our faith (v. 31).
 
 ## Introduction
 
@@ -245,10 +245,10 @@ Paul sets the Law in its right perspective. The religious Jew clung to his knowl
 
 This conviction in the pre-eminence of the law is what fed the Jew's objection to Christ. The Holy Ghost knew the Jews were holding to their superiority and trying to justify their rejection of the Gospel. In Romans 3, we find refutations of the excuses of the Jews to further show they are condemned and in need of Jesus.
 
-- The True Advantage of Having the Law	(vs. 1-2)
-- The Absoluteness of the Law 			(vs. 3-8)
-- The Unbending Authority of the Law 	(vs. 9-19)
-- The True Purpose of the Law 			(vs. 20-30)
+- The True Advantage of Having the Law	(vs. 1—2)
+- The Absoluteness of the Law 			(vs. 3—8)
+- The Unbending Authority of the Law 	(vs. 9—19)
+- The True Purpose of the Law 			(vs. 20—30)
 - The Establishing of the Law			(v. 31)
 
 ### What Law?
@@ -259,8 +259,8 @@ Throughout Romans, Paul illustrates the weakness of the Law given to Moses and y
 
 Though we can find the same word "law" used in 52 verses in Romans, Paul is not always discussing the same set of principles or prescriptions.
 
-- Romans 2:12-13,17,18,20,23,25,26 : The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
-- Romans 2:14-15 : The Gentiles did have a law in their heart or their conscience
+- Romans 2:12—13,17,18,20,23,25,26 : The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
+- Romans 2:14—15 : The Gentiles did have a law in their heart or their conscience
 - Romans 3:27 : Law of faith.
 - Romans 7:2 : Law of her husband
 - Romans 7:22 : Law of God
@@ -278,9 +278,9 @@ A man can be justified in the eyes of God without the deeds of the law of Moses 
 
 > Romans 7:22—For I delight in the law of God after the inward man:
 
-## The True Advantage of Having the Law	(vs. 1-2)
+## The True Advantage of Having the Law	(vs. 1—2)
 
-Having Received the Law First, What Advantage does the Jew Have? (vs. 1-2)
+Having Received the Law First, What Advantage does the Jew Have? (vs. 1—2)
 
 ### The Advantage IS NOT that they are inherently superior to the Gentiles
 
@@ -300,9 +300,9 @@ Question: Is it an advantage to not know God's will?
 
 Answer: No. It is a blessing to have had the opportunity to know God's will. Peter is expressing the greatness of the degree of condemnation of backslider. Both the heathen and backslider are condemned.
 
-## The Absoluteness of the Law (Romans 3:3-8)
+## The Absoluteness of the Law (Romans 3:3—8)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
@@ -314,7 +314,7 @@ We have made a distinction between the specific prescriptions given through Mose
 
 It is in Jesus, we see the fullness of God&apos;s will. The Lord Jesus Christ is the standard of God&apos;s expectation.
 
-> Eph 4:11-16 And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers; 12 For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: 13 Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ: 14 That we henceforth be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; 15 But speaking the truth in love, may grow up into him in all things, which is the head, even Christ: 16 From whom the whole body fitly joined together and compacted by that which every joint supplieth, according to the effectual working in the measure of every part, maketh increase of the body unto the edifying of itself in love.
+> Eph 4:11—16 And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers; 12 For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: 13 Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ: 14 That we henceforth be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; 15 But speaking the truth in love, may grow up into him in all things, which is the head, even Christ: 16 From whom the whole body fitly joined together and compacted by that which every joint supplieth, according to the effectual working in the measure of every part, maketh increase of the body unto the edifying of itself in love.
 
 For the purposes of our study we have defined The Law of God as:
 
@@ -322,7 +322,7 @@ For the purposes of our study we have defined The Law of God as:
 
 God&apos;s Law is governed by the nature of God. What is in the Law of God is because of Who God is. God is absolute and therefore His Law is absolute--his expectations of the behavior of humanity are absolute. (The majority of the time, Human self-government is anything but absolute.)
 > 2 Samuel 22:31 As for God, his way is perfect; the word of the LORD is tried: he is a buckler to all them that trust in him. (Compare with Psalm 101)
-### If some do not believe, will God break his promise? vs. 3-4
+### If some do not believe, will God break his promise? vs. 3—4
 Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God&apos;s plan? Will unbelief cancel God&apos;s faithfulness? See II Timothy 2:13
 
 #### The Jews Cling to their Heritage as Abraham&apos;s Children as their Warranty. (v. 3)
@@ -330,7 +330,7 @@ Has God cancelled his covenant with Abraham because some Jews are bad? If some d
 Their objection was even though some did not believe; nothing can nullify our special promises we have been given by God through Abraham. They were in effect saying no matter what else we are, we are Abraham&apos;s seed and that will get us into heaven.
 #### The answer: Absolutely Not! (v.4)
 Will God be unfaithful because man is unfaithful? Absolutely Not!
-> vs. 4&mdash;God forbid: yea, let God be true, but every man a liar&hellip;
+> vs. 4—God forbid: yea, let God be true, but every man a liar&hellip;
 > 2 Timothy 2:13 If we believe not, yet he abideth faithful: he **cannot deny himself**.
 
 It is not because, some Jews were unfaithful that requires faith in Jesus Christ. It is because the fullness of God&apos;s plan of redemption has always been in Christ.
@@ -343,11 +343,11 @@ It is not because, some Jews were unfaithful that requires faith in Jesus Christ
 
 The Psalm of David is quoted which showed God to be righteous even when David was condemned for his sin. According to Psalm 51:4, God is just when He speaks and clear when He judges. This is used here to show that God is right to condemn the Jews because they rejected the Messiah who came from the seed of Abraham according to the promises. These promises they claimed would justify them in fact brought condemnation to the Jew because of their rejection of Jesus Christ.
 
-### If our sin commends God&apos;s righteousness, how can He judge us?-Vs. 5-7
+### If our sin commends God&apos;s righteousness, how can He judge us?-Vs. 5—7
 
 #### Let us first understand the meaning of the question.
 
-Commend -To represent as worthy of notice, regard, or kindness; to speak in favor of; to recommend. &mdash; Webster The Gk. word carries the meaning of to exhibit (as in a conspicuous manner), or to introduce, to stand with or to come into existence.
+Commend -To represent as worthy of notice, regard, or kindness; to speak in favor of; to recommend. — Webster The Gk. word carries the meaning of to exhibit (as in a conspicuous manner), or to introduce, to stand with or to come into existence.
 
 We must rely on the context to help us understand the meaning of this question. This is posed as two questions in the text and has been simplified for the purpose of study. The question is literally asking: if our unrighteousness magnifies or brings attention to God&apos;s righteousness and mercy; is God unrighteous if He judges us? 
 
@@ -355,35 +355,35 @@ This is still awkward for us to understand. Remember God is dealing with the act
 
 #### God forbid: for then how shall God judge the world?
 
-The answer is: Certainly not. For if this principle is used then how could God pass judgment on the world? The world here is referring to the Gentiles. The Jews were still trying to excuse themselves from condemnation. It is proper for a righteous God to judge the unrighteous sinner&mdash;whether Jew or Gentile.
+The answer is: Certainly not. For if this principle is used then how could God pass judgment on the world? The world here is referring to the Gentiles. The Jews were still trying to excuse themselves from condemnation. It is proper for a righteous God to judge the unrighteous sinner—whether Jew or Gentile.
 
 The truth is, God can judge the world because he is righteous.
 
-### Let us do evil that good may come? &mdash; Vs. 8
+### Let us do evil that good may come? — Vs. 8
 Some abuse the truth of God&apos;s mercy and boast that their sinful lives and God&apos;s unconditional acceptance, is illustrative of God&apos;s great Mercy. Paul was NOT preaching this false doctrine, but was being accused of doing so.
 
 This was an attack on Paul&apos;s preaching of justification by faith. The Jews were saying: you tell us God justifies the wicked, so why not continue to be evil so good can come out of it?
 Paul&apos;s description of those who did preach this was: whose damnation is just. Since the accusation was not true Paul did not go into a detailed answer; he only affirms that God&apos;s judgment on them is just.
 
-## The Unbending Authority of the Law (vs. 9-19)
+## The Unbending Authority of the Law (vs. 9—19)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
 The whole world is under the sentence of condemnation.
 
-## The charge is levied against the sinner. &mdash; v. 9
+## The charge is levied against the sinner. — v. 9
 
 Who is a sinner? We have proven both Jew and Gentile to be under sin as ALL are guilty of breaking the law.
 
 ## Witnesses are brought before the accused.
 
-### The witness of creation &mdash; 1:20
-### The witness of conscience &mdash; 2:15
-### The witness of commandment &mdash; 3:19
+### The witness of creation — 1:20
+### The witness of conscience — 2:15
+### The witness of commandment — 3:19
  
-## The indictment is read from the Scriptures. &mdash; vs. 10-18
+## The indictment is read from the Scriptures. — vs. 10—18
 
 ### According to the rules of the court the indictment had to be written.
 
@@ -397,14 +397,14 @@ The Jew boasted that he possessed the Scripture; now God is using that same Word
 
 ### Although the Gentile did not have the written word; they still had the same principals contained in the Word written on their heart 
 
-## The defense of the accused &mdash; V. 19
+## The defense of the accused — V. 19
 
 What is the defense of the accused?
 
 The accused has nothing to say; every mouth is stopped.
 The Day of Judgment will be a day of silence.
 
-## The verdict &mdash; V.20
+## The verdict — V.20
 
 ### GUILTY AS CHARGED!
 
@@ -414,9 +414,9 @@ This law refers to more than Moses Law; there is also reference to moral law and
 
 ### The death penalty has been levied against the condemned. Rom.6:23
 
-# The True Purpose of the Law (vs. 20-30)
+# The True Purpose of the Law (vs. 20—30)
 
-> ROMANS 3: *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> ROMANS 3: *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
@@ -434,7 +434,7 @@ The law is accusatory by nature against all mankind.The true purpose of the law 
 
 
 
-## The righteousness of God is manifested to men. &mdash; Vs. 21-23
+## The righteousness of God is manifested to men. — Vs. 21—23
 
 ### To manifest is to show forth or to declare.
 
@@ -442,7 +442,7 @@ The law is accusatory by nature against all mankind.The true purpose of the law 
 
 ### Declared Righteous
 	
-The meaning of "justify" is to declare righteous. To be justified is to be placed in a right relationship with God. Paul is telling men how they can be justified or declared righteous &mdash; through Jesus Christ. 
+The meaning of "justify" is to declare righteous. To be justified is to be placed in a right relationship with God. Paul is telling men how they can be justified or declared righteous — through Jesus Christ. 
 
 - justification: to render (show or regard as) just or innocent:--free, be righteous. 
 
@@ -460,7 +460,7 @@ It simply means to be right which is the opposite of being wrong. Sin is wrong a
 	
 This is not earned righteousness or even righteous works. Justification is the righteousness of God put to the account of a man; that is God counting him righteous solely due to the righteousness of Christ. This passage is showing man the source of righteousness which only comes from God. 
 
-## God&apos;s method of Justification &mdash; V. 24
+## God&apos;s method of Justification — V. 24
 ### Given by the Grace of God	
 
 Sinful man does not deserve to be justified. Man deserves to die because of sin. God freely justifies those who receive the provision of Christ by faith. Salvation is a gift of God to those who receive the provision of Christ by faith. 
@@ -468,7 +468,7 @@ Sinful man does not deserve to be justified. Man deserves to die because of sin.
 	
 Redemption means to purchase, to set free by the payment of a ransom. Jesus paid the price for our Salvation in His blood. Man is declared righteous solely on the merit of Jesus Christ.
 
-## The demands of the law have been satisfied. &mdash; V. 25 
+## The demands of the law have been satisfied. — V. 25 
 ### God still requires justice. 
 
 Justification is not merely God showing pity on the sinner and letting him go free without the penalty being paid. The word propitiation is used in reference to Christ satisfying the demands of the law. Propitiation is a reason for not executing judgment which is deserved. It corresponds to the Hebrew word rendered mercy seat which was the place the blood of atonement was sprinkled to satisfy the judgment of God. This sprinkled blood covered the Tables of the Law contained in the Ark. This is a figure of Him who was to come and shed Divine blood to satisfy the law. The blood of Jesus is the reason that judgment is not executed on the repentant sinner.
@@ -477,7 +477,7 @@ Justification is not merely God showing pity on the sinner and letting him go fr
 
 Propitiation properly signifies the removal of wrath by the offering of a gift. In the OT it is expressed by the verb kipper (ATONEMENT). The objection to propitiation arises largely from an objection to the whole idea of the wrath of God, which many exponents of this view relegate to the status of an archaism. They feel that modern men cannot hold such an idea. But the men of the OT had no such inhibitions. For them 'God is angry with the wicked every day&apos;s (Ps. 7:11, AV). They had no doubt that sin inevitably arouses the strongest reaction from God. He is vigorously opposed to evil in every shape and form while he may be 'slow to anger&apos;s. - New Bible Dictionary 
 
-> Romans 3:25&mdash;Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God;
+> Romans 3:25—Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God;
 > 
 ### Let us look at the phrase for the remission of sins that are past.
 	
@@ -493,7 +493,7 @@ Faith and Righteousness - Go hand in hand If you see a man with righteousness, y
 
 ## The Establishing of the Law (v. 31)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
@@ -512,7 +512,7 @@ The law brings the knowledge of sin to a man, and that man who has recognized hi
 
 The role of the law in justification is that it brings the knowledge of sin. A person is not justified through the works of the law. For justification takes place in the case of the believer "by grace through faith." By Grace a gift of eternal life is freely offered to the entire world and it is through faith that gift is received. God made the first move in the plan of redemption and for that plan to be effective in me, I must choose to receive that gift through faith. (God's grace is resistible by the nature of the free will given by God to man.) See also Ephesians 2:8 and Romans 4:16. Justification by Faith is Demonstrated in the life of Abraham.
 
-## Abraham was justified by Faith and not by Works (v. 1-8)
+## Abraham was justified by Faith and not by Works (v. 1—8)
 
 > Romans 4:3—...Abraham believed God, and it was counted unto him for righteousness.
 
@@ -542,7 +542,7 @@ NOTE: God requiring faith does not cancel God's grace. A justification condition
 
 ### David's Testimony (v. 6–8)
 
-Paul brings testimony from David to support the message of justification by faith. David was esteemed by the Jews as their great king. This quotation from the Psalms confirms that men are only justified by faith and not works (Psalms 32:1-2).
+Paul brings testimony from David to support the message of justification by faith. David was esteemed by the Jews as their great king. This quotation from the Psalms confirms that men are only justified by faith and not works (Psalms 32:1—2).
 
 David was thanking God that His sin was forgiven and the sin was not put to his account. If sin was not imputed to him and his sin was forgiven this means he was restored to a right relationship with God.
 
@@ -554,13 +554,13 @@ Circumcision did not justify Abraham. Circumcision was given as a sign of the pr
 
 The Law gives knowledge of sin (v. 15). For where there is no law there is no transgression refers to the fact that if there were no law then there would be no law to break. This also must have reference to the moral law as well as Moses Law. Abraham was justified by faith through grace (v. 16). He did not earn justification; it was given to him without merit because of his faith.
 
-## God will Fulfill His Promise (4:18-25)
+## God will Fulfill His Promise (4:18—25)
 
-### The Promise to Abraham (vs. 18-22)
+### The Promise to Abraham (vs. 18—22)
 
 Abraham was given the promise of God. God promised Abraham he would have a son. Also, the Messiah would be a son of Abraham. Jesus fulfilled prophecy and was born according to his natural lineage as a descendant of Abraham. 
 
-### The Promise of Justification (v. 23-24)
+### The Promise of Justification (v. 23—24)
 
 ### The Condition of Justification (v. 24)
 
@@ -583,7 +583,7 @@ The following arguments are presented:
 1. Justification/Righteousness is by faith.
 2. Justification/Righteousness is not obtained by works.
 3. Justification/Righteousness is not acquired by circumcision.
-4. You cannot gain Justification/Righteousness through adherence of the law. 4:13-17
+4. You cannot gain Justification/Righteousness through adherence of the law. 4:13—17
 5. Abraham's faith shows us an example that we must follow.
 6. Paul reasoned that Justification/Righteousness by faith is the only way to please God.
 
@@ -899,11 +899,11 @@ The law reveals the effect of sin. The effect of all sin is a spiritual death. T
 
 The Law is Holy, Just and good, so as the standard, the plumb-line, the commandment shows us where and what we are in the sight of God; sin is shown for what it is "exceeding sinful". Far off from the mark that God has set for us in Christ. Its purpose is to convict the sinner of sin and only through Christ find repentance. It condemns, convicts, constrains, and conducts an awakened sinner to Christ (3:19, 23; 7:8–11; 8:3; Gal.3:19–24). Sin can hide in society of men comparing one with another or else judging merely by the dictates of there own heart, but in the light of perfect holiness, sin becomes "exceedingly sinful."
 
-## Paul's captivity to the law of sin (v. 14-25)
+## Paul's captivity to the law of sin (v. 14—25)
 
-In Romans 7:14-25, Paul brings us to the root of the struggle; the cause of our constant defeat by sin is our own flesh, the "body of this death" (v. 24).
+In Romans 7:14—25, Paul brings us to the root of the struggle; the cause of our constant defeat by sin is our own flesh, the "body of this death" (v. 24).
 
-Every believer is privileged, enabled and obligated to live a holy life. For those resting in the law for justification and sanctification, it is necessary to convince them of their error. The law is insufficient for for these but grace through Jesus Christ is sufficient. A believing Jew is discharged from his obligations to the ceremonial rituals of the law, and is at liberty to come under the gospel of God through Jesus Christ our Lord and Savior (v. 1-4).
+Every believer is privileged, enabled and obligated to live a holy life. For those resting in the law for justification and sanctification, it is necessary to convince them of their error. The law is insufficient for for these but grace through Jesus Christ is sufficient. A believing Jew is discharged from his obligations to the ceremonial rituals of the law, and is at liberty to come under the gospel of God through Jesus Christ our Lord and Savior (v. 1—4).
 
 ### The "I's" in this section
 
@@ -932,11 +932,11 @@ The emphasis on self profoundly exhibits the inability of the flesh. Paul in his
 
 The 2 words in the Greek for carnal. One implies that which is purely material, and the other implies that which is ethical. The first suggests man's nature as weak, and the second suggests man's character as sinful.
 
-#### The Second Confession: "In my flesh dwelleth no good thing." (v. 18-20)
+#### The Second Confession: "In my flesh dwelleth no good thing." (v. 18—20)
 
 Here we see Paul describing a struggle. In him so far as his person was carnal, there dwelt no good thing because of the influence of sin.
 
-#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21-25)
+#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21—25)
 
 He is ever conscious of moral contraction and conflict within. He has a desire to do good and yet an evil is always present.
 
@@ -944,7 +944,7 @@ He is ever conscious of moral contraction and conflict within. He has a desire t
 
 On the one hand the inward man is delighted in God's law. On the other hand he saw a different law in his members warring against the law of his mind and bringing him into a spiritual bondage. **NOTE**: The "inward man" is not the same as "the new man", nor is the mind ever used of the renewed nature. It is the immaterial part of man.
 
-### There are four laws mentioned in verses 21-22
+### There are four laws mentioned in verses 21—22
 
 1. Law of God (moral law - written or unwritten)
 2. Law of sin (reigns since fall of man)
@@ -965,7 +965,7 @@ The body of this death—what a fearful description of the body! It is unredeeme
 
 > Romans 6:14—For sin shall not have dominion over you: for ye are not under the law, but under grace.
 
-Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:13; 2 Peter 2:20; 1 John 2:13; Col 3:1-3). Our mind does not have to be captive to sin (Romans 12:2). Verse 25 says, "I thank God, (for deliverance) through Jesus Christ our Lord." In summary, Paul discovered:
+Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:13; 2 Peter 2:20; 1 John 2:13; Col 3:1—3). Our mind does not have to be captive to sin (Romans 12:2). Verse 25 says, "I thank God, (for deliverance) through Jesus Christ our Lord." In summary, Paul discovered:
 
 1. That sin dwelt in him, even though he delighted in God's law.
 2. That his will was powerless against it.
@@ -978,11 +978,11 @@ Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:
 
 ### Outline
 
-* Those in Christ are no longer condemned (v. 1-9)
-* Those in Christ have received the Spirit of adoption (v. 10-16)
-* Those in Christ patiently wait for the adoption (v. 17-25)
-* Those in Christ will be glorified through the ministry of the Holy Ghost (v. 26-30)
-* Those in Christ have God as their advocate (v. 31-39)
+* Those in Christ are no longer condemned (v. 1—9)
+* Those in Christ have received the Spirit of adoption (v. 10—16)
+* Those in Christ patiently wait for the adoption (v. 17—25)
+* Those in Christ will be glorified through the ministry of the Holy Ghost (v. 26—30)
+* Those in Christ have God as their advocate (v. 31—39)
 
 ### Summary
 
@@ -997,7 +997,7 @@ What does it mean to be in Christ?
 * Those in Christ cannot be separated from the Love of God (v. 39)
 * Those in Christ are of one body and each one members one of another (12:5; 1 Cor. 16:24)
 * Those in Christ develop from as a babe to fully mature (1 Cor. 3:1)
-* Those in Christ and who die (sleep) have the hope of Resurrection (1 Cor. 15:17-20)
+* Those in Christ and who die (sleep) have the hope of Resurrection (1 Cor. 15:17—20)
 * Those in Christ have victory in God (2 Cor. 2:14)
 * Those in Christ are new creatures (2 Cor. 5:17; Gal. 6:15)
 * Those in Christ are reconciled to God (2 Cor. 5:19)
@@ -1008,9 +1008,9 @@ What does it mean to be in Christ?
 * Those in Christ are made to sit together in Heavenly places (Eph. 2:6)
 * Those in Christ are created unto good works (Eph. 2:10)
 
-To be in Christ is to be grafted into the true vine. His life flows into us and what it is His is ours. God the Father views those in His Son as He views the only begotten–heirs of God. In Christ, we do not struggle against the flesh and sin alone, and have not received alone the remission of sin, but have received Christ Himself. The Believer is in Christ and Christ is in them (11:16-18).
+To be in Christ is to be grafted into the true vine. His life flows into us and what it is His is ours. God the Father views those in His Son as He views the only begotten–heirs of God. In Christ, we do not struggle against the flesh and sin alone, and have not received alone the remission of sin, but have received Christ Himself. The Believer is in Christ and Christ is in them (11:16—18).
 
-## Those in Christ are no longer condemned (v. 1-9)
+## Those in Christ are no longer condemned (v. 1—9)
 
 ### They walk in liberty with no condemnation (v. 1)
 
@@ -1018,13 +1018,13 @@ The deliverance Paul cried for in 7:24 is announced in 8:1. The quality of life 
 
 ### They walk not after the flesh but after the Spirit
 
-The righteousness of the law is fulfilled in us through following Christ by the leading of the Holy Ghost. There are two ways to walk the path of life: 1) following after the flesh 2) following after the Spirit of God. My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16-26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
+The righteousness of the law is fulfilled in us through following Christ by the leading of the Holy Ghost. There are two ways to walk the path of life: 1) following after the flesh 2) following after the Spirit of God. My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16—26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
 
-### They walk according to a new law (v. 2-3)
+### They walk according to a new law (v. 2—3)
 
 #### There are three laws mentioned here
 
-1. **The law of sin and death**. It is like the law of gravity always pulling you down. It opposes that which is good and godly. It brings you into bondage and condemnation. Bondage to sin makes you a servant to Satan. Serving the law of sin brings death. (7:22-23)
+1. **The law of sin and death**. It is like the law of gravity always pulling you down. It opposes that which is good and godly. It brings you into bondage and condemnation. Bondage to sin makes you a servant to Satan. Serving the law of sin brings death. (7:22—23)
 2. **The law of God** (given Through Moses). It is Righteous, good and Holy. It opposes sin and the works of the flesh. It brings you to conviction and decision. The law being weak cannot save but does point to Christ.
 3. **The law of the Spirit of life**. This law is greater than the law of sin and death. It is the life of Jesus imparted to the believer by faith. Liberty is man's born again state—free to serve the Lord Jesus Christ. Serving the Lord brings more abundant life. Every Believer must manifest the Life of Jesus more and more.
 
@@ -1036,7 +1036,7 @@ It provides justification where the old law only condemned. It works liberty whe
 
 It is fulfilled in the one that walks not after the flesh, but after the Spirit. If the Spirit of God dwell in you then His life is fulfilled in you. You no longer try to serve God in the flesh, but you have the Spirit of Christ to inspire and insure life. This life is not your own, but is Christ's life (Gal. 2:20). This life is not debtor to the flesh, but to God to serve Him and obey Him (v. 12). This life is fulfilled in mortifying carnal deeds of the flesh (v. 13).
 
-### They walk with a new mind (v. 5-6) 
+### They walk with a new mind (v. 5—6) 
 
 Those in Christ do things differently—both actions and thoughts. They walk following after the Spirit of God. Walking after the Spirit also includes minding the things of the Spirit. The Spirit of God will lead us to life, but the flesh will lead to death and self-destruction.
 
@@ -1073,7 +1073,7 @@ Are we all God's children? All people are God's creation, but only those born ag
 
 #### The Spirit gives witness (v. 16)
 
-## Patiently wait for the adoption (v. 17-25)
+## Patiently wait for the adoption (v. 17—25)
 
 The believer has great things to look forward to in God. God has done great things in and for the believer and there is yet a redemption that we patiently wait for in hope or faith! What does the believer have to look forward to?
 
@@ -1083,9 +1083,9 @@ The believer receives the privileges and inheritance of a son because he shares 
 
 ### Suffering unto Glorification (v. 17b-18) 
 
-Trials prove the true character of the Christian. And although the suffering is not glorious, Paul brings our attention to glory that will follow. The Christian has hope in suffering, for if we suffer, we shall also reign. Christ is our example of suffering (1 Pet. 2:21; Heb. 2:10; 5:8-9; 1 Pet. 4:1; James 5:10).
+Trials prove the true character of the Christian. And although the suffering is not glorious, Paul brings our attention to glory that will follow. The Christian has hope in suffering, for if we suffer, we shall also reign. Christ is our example of suffering (1 Pet. 2:21; Heb. 2:10; 5:8—9; 1 Pet. 4:1; James 5:10).
 
-### The creature waits for the manifestation of the sons of God (v. 19-22)
+### The creature waits for the manifestation of the sons of God (v. 19—22)
 
 God has a vast plan and Hope lies ahead for Creation. In bondage because sin is in the world, but there will be a deliverance!
 
@@ -1118,19 +1118,19 @@ The end of the chapter deals with the Christian's hope, which is "If God be for 
 
 The two fold secret of Christian living is described by two phrases in verse 1 and verse 10: "in Christ Jesus" and "if Christ be in you." The Christian's will is to live in Christ an life pleasing to God. The Holy Spirit dwells in us, empowering us to live such a life.
 
-# ROMANS CHAPTERS 9-11
+# ROMANS CHAPTERS 9—11
 
-## Introduction to Romans 9-11
+## Introduction to Romans 9—11
 
 ### The Theme
 
 Remember the Structure of Romans?
 
-- Introduction ----------------- 1:1-17
-- DIVISION ONE:	Doctrinal ------ 1:18-8:29
-- DIVISION TWO: Dispensational - 9:1-11:26
-- DIVISION THREE: Practical ---- 12:1-15:33
-- Conclusion ------------------- 16:1-2
+- Introduction ----------------- 1:1—17
+- DIVISION ONE:	Doctrinal ------ 1:18—8:29
+- DIVISION TWO: Dispensational - 9:1—11:26
+- DIVISION THREE: Practical ---- 12:1—15:33
+- Conclusion ------------------- 16:1—2
 
 Romans 9 Begins a the second of three major divisions to the Book of Romans. Chapter 8 concluded Division 1 which is primarily Doctrinal and Chapter 9 begins with Division 2 which is largely Dispensational.
 
@@ -1140,25 +1140,25 @@ The Theme of this second Division is Dispensational in regards to Israel specifi
 
 ## The Structure
 
-1. The Sorrow of the Apostle at Israel's Rejection (9:1-5)
-2. The Rejection of Israel and God's Sovereignty (9:6-29)
-3. The Rejection of Israel and Human Responsibility (9:30-10:21)
-4. The Rejection of Israel and God's Purpose for their Future (11:1-32)
-5. The Apostle's Words of Praise of God (11:33-36)
+1. The Sorrow of the Apostle at Israel's Rejection (9:1—5)
+2. The Rejection of Israel and God's Sovereignty (9:6—29)
+3. The Rejection of Israel and Human Responsibility (9:30—10:21)
+4. The Rejection of Israel and God's Purpose for their Future (11:1—32)
+5. The Apostle's Words of Praise of God (11:33—36)
 
-# The Sorrow of the Apostle at Israel's Rejection (9:1-5)
+# The Sorrow of the Apostle at Israel's Rejection (9:1—5)
 
-Romans chapter nine talks about Paul's sorrow for the Jews. We find out that not all of Abraham's seed were the children of promise (9:7-8).
+Romans chapter nine talks about Paul's sorrow for the Jews. We find out that not all of Abraham's seed were the children of promise (9:7—8).
 
 ## The Sincerity of his feeling (1)
 
 Paul's Sorrow for the Lost was Sincere and Divinely Inspired.
 
-## The Intensity of his feeling (2-3a)
+## The Intensity of his feeling (2—3a)
 
 **Paul carried the burden!** His Sorrow was intense.
 
-Paul has experienced great heaviness in sorrowing over Israel's condition as a whole. Paul comes to the place that he would even be willing to be accursed from Christ that his brethren might be found in Christ. This is a selfless declaration, but the proposition is not even possible. The sinner's light in their darkness is the justified, sanctified, holy life of Believers that walk consistently in Christ and their own salvation is in Christ alone. Paul's proclamation is reminiscent of Moses in Exodus 32:32-33.
+Paul has experienced great heaviness in sorrowing over Israel's condition as a whole. Paul comes to the place that he would even be willing to be accursed from Christ that his brethren might be found in Christ. This is a selfless declaration, but the proposition is not even possible. The sinner's light in their darkness is the justified, sanctified, holy life of Believers that walk consistently in Christ and their own salvation is in Christ alone. Paul's proclamation is reminiscent of Moses in Exodus 32:32—33.
 
 ## The Basis of his feeling (3b-5)
 
@@ -1173,33 +1173,33 @@ Paul has great sorrow for unbelieving Israel. Their unbelief is especially dishe
 7. **FATHERS** - Relationship to the Father (Fathers of the flesh)
 8. **MESSIAH OF ISRAEL**
 
-Christ is a rock of stumbling to the Jew (Gal. 5:6; John 14:15; 1 Peter 2:7-8).
+Christ is a rock of stumbling to the Jew (Gal. 5:6; John 14:15; 1 Peter 2:7—8).
 
 ## The Righteousness of his Feeling
 
-Paul makes it clear that his intense and sincere desire is all Israel be saved (Romans 9:1-5; 11:26; 10:1). God desires that all sinners be saved (1 Timothy 2:4; 2 Peter 3:9; Ezekiel 18:23; Matthew 23:37). Paul is righteous in his desire and not contrary to mind and will of God.
+Paul makes it clear that his intense and sincere desire is all Israel be saved (Romans 9:1—5; 11:26; 10:1). God desires that all sinners be saved (1 Timothy 2:4; 2 Peter 3:9; Ezekiel 18:23; Matthew 23:37). Paul is righteous in his desire and not contrary to mind and will of God.
 
-# The Rejection of Israel and God's Sovereignty (9:6-29)
+# The Rejection of Israel and God's Sovereignty (9:6—29)
 
-## The True Israel is According to the Promise (v. 6-10)
+## The True Israel is According to the Promise (v. 6—10)
 
 The majority of Israel has missed the point. Christ is the fulfillment of the law, but Israel stumbles over him as if a stone and hold to their laws and religion. They think they are the children of God because they are the children of Abraham and Isaac and that they are the ones to whom the law was revealed.
 
 The fact that the Jews as a nation rejected the Messiah (Christ) raises the question "Did the Word of God fail?" "Did God fail to carry out His promises?" How does Paul answer these questions? In these next verses Paul is confident that Israel's rejection of the gospel is not unanimous and not permanent—God is able to graft back in again!
 
-The real Israel is the elect, not a natural seed. We see the plan of God as it unfolds. Not everyone that is born a part of the nationality of Israel are a part of Spiritual Israel. The children of the Israel are only children of the flesh, but the children of the promise are the children of God. (John 3:6 "born of the Spirit"). The New Testament Church is referred to as "the Israel of God" (Galatians 6:16) because of their faith in God and His Son, Jesus Christ—not because of their family lineage (10:1-4).
+The real Israel is the elect, not a natural seed. We see the plan of God as it unfolds. Not everyone that is born a part of the nationality of Israel are a part of Spiritual Israel. The children of the Israel are only children of the flesh, but the children of the promise are the children of God. (John 3:6 "born of the Spirit"). The New Testament Church is referred to as "the Israel of God" (Galatians 6:16) because of their faith in God and His Son, Jesus Christ—not because of their family lineage (10:1—4).
 
-## Election or Predestination is Not of Works of Him that Calleth (v. 11-13)
+## Election or Predestination is Not of Works of Him that Calleth (v. 11—13)
 
 Election is mentioned in verse eleven. Election or predestination is not an unrighteous act for God may justify whom He may and condemn whom he desires. All the good works of men cannot make them children of the promise, but that condition is dependent upon God showing mercy.
 
 It is important to understand from Scripture how predestination or election works. Predestination and election is based upon God's foreknowledge. He knows the end from the beginning He knows who will receive and who will reject before they are even born (8:29). Some are given 100 years and others only a few. It is man's responsibility to respond in the time of mercy for turning to God cannot happen just on a man's whim, but he must be drawn by the Father (John 6:44).
 
-## God is Righteous in Mercy and Hardening (v. 14-18)
+## God is Righteous in Mercy and Hardening (v. 14—18)
 
 How is God's sovereignty expressed? God is a sovereign God so therefore he is also a just God.
 
-## Clay in the Potters Hand (vs. 19-24)
+## Clay in the Potters Hand (vs. 19—24)
 
 ### God is Just (v. 19)
 
@@ -1210,13 +1210,13 @@ How is God's sovereignty expressed? God is a sovereign God so therefore he is al
 ### God is Right
 
 - Hypothetical "A" v.22
-- Hypothetical "B" vs.23-24
+- Hypothetical "B" vs.23—24
 
-Note well the word afore. For the whole process of our salvation is viewed from that blessed future day when we shall enter, through divine mercy, into that glory which God afore appointed us. 24 Even us, whom he hath called, not of the Jews only, but also of the Gentiles? (2 Timothy 2:20-21; 1 Peter 5:8; Matthew 25:1-10; Galatians 5:4)
+Note well the word afore. For the whole process of our salvation is viewed from that blessed future day when we shall enter, through divine mercy, into that glory which God afore appointed us. 24 Even us, whom he hath called, not of the Jews only, but also of the Gentiles? (2 Timothy 2:20—21; 1 Peter 5:8; Matthew 25:1—10; Galatians 5:4)
 
-## The Calling of God's People, v. 25-29
+## The Calling of God's People, v. 25—29
 
-In verse 25 Paul, takes from the prophet Hosea (2:23) a passage that is specifically spoken to Israel, but has not found a fulfillment in Israel but rather is seen fulfilled in the Gentiles receiving the Gospel. The sentences in the latter part of this verse are very abrupt, but exceedingly expressive; leaving out those words supplied by the translators: I will say to NOT MY PEOPLE, THOU MY PEOPLE; and they shall say, MY GOD (1 Peter 2:9-10).
+In verse 25 Paul, takes from the prophet Hosea (2:23) a passage that is specifically spoken to Israel, but has not found a fulfillment in Israel but rather is seen fulfilled in the Gentiles receiving the Gospel. The sentences in the latter part of this verse are very abrupt, but exceedingly expressive; leaving out those words supplied by the translators: I will say to NOT MY PEOPLE, THOU MY PEOPLE; and they shall say, MY GOD (1 Peter 2:9—10).
 
 In verse 26, we see the Gentile people. God's infinite grace takes up those who were once called "dogs" (Matthew 15:26) and gives them a heavenly calling "Called to be children of the living God."
 
@@ -1226,9 +1226,9 @@ The ways of God are not our ways. He waits long - He forbears - He is silent: th
 
 Verse 29 is a quote from Isaiah 1:9 shows that if God had not intervened by his grace, they would have all become as Sodom and Gomorrah (2 Thessalonians 2:7).
 
-# The Rejection of Israel and Human Responsibility (9:30-10:21)
+# The Rejection of Israel and Human Responsibility (9:30—10:21)
 
-## Stumbling and Overcoming: The Conclusion of Chapter 9 (9:30-33)
+## Stumbling and Overcoming: The Conclusion of Chapter 9 (9:30—33)
 
 ### Righteousness Through Faith (9:30)
 
@@ -1248,25 +1248,25 @@ They stumbled over the rock of offense. They stumbled over Jesus. NOTE: The only
 
 What is the message of the Gospel that is open to all? "And whosoever believeth on him shall not be ashamed." God's mercy is illustrated by His dealings with both Jew and Gentile. Humility and awe are the proper attitudes for both Jew and Gentile who experience the mercy and kindness of God. Whether a man is a Jew or a Gentile, his salvation depends upon more or less than what he thinks and does with Jesus. Submission to God's way of righteousness by personal acknowledgement of Jesus as the risen Lord, brings a man into "Right standing with God."
 
-## Salvation for the Jews (10:1-21)
+## Salvation for the Jews (10:1—21)
 
 #### THEY ARE NOT SAVED (10:1)
 
-The Gospel is for the Jew (Rom. 1:16; 2:9-10). The Majority of the Jews rejected the Gospel (Acts 2:22). The first persecution of Christians organised by the Roman government took place under the emperor Nero in 64 AD after the Great Fire of Rome. So the first, perseuction of Christians was largely from the Jews (Acts 9:1-2).
+The Gospel is for the Jew (Rom. 1:16; 2:9—10). The Majority of the Jews rejected the Gospel (Acts 2:22). The first persecution of Christians organised by the Roman government took place under the emperor Nero in 64 AD after the Great Fire of Rome. So the first, perseuction of Christians was largely from the Jews (Acts 9:1—2).
 
 ### The Jews' zeal (10:2)
 
-The Pharisees: Minute Prescriptions added to the Law (Acts 23:6; 26:5; Php. 3:5-6). Paul does not ignore their efforts. He witnesses to their "zeal of God."
+The Pharisees: Minute Prescriptions added to the Law (Acts 23:6; 26:5; Php. 3:5—6). Paul does not ignore their efforts. He witnesses to their "zeal of God."
 
-### The Jews' ignorance (10:3-11)
+### The Jews' ignorance (10:3—11)
 
 They had a zeal of God, but were missing important truth: The Righteousness of God which is by faith. The Object of this faith is Jesus Christ the only begotton Son of God Who is the End of the Law Through Faith. This faith comes by the Word of God and does not require ascending to Heaven or Hell first, but is already nigh.
 
-### The Jews' path to God (10:12-15)
+### The Jews' path to God (10:12—15)
 
-### The Jew's Rejection of the Gospel (10:16-21)
+### The Jew's Rejection of the Gospel (10:16—21)
 
-**Read Isaiah 65:1-10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the DISCONNECT? "They have not obeyed or heeded the Gospel."
+**Read Isaiah 65:1—10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the DISCONNECT? "They have not obeyed or heeded the Gospel."
 
 * Did God send a preacher? YES (v. 19, 20, Moses, Isaiah, etc.)
 * Did the Preacher Preach? YES (v. 16, report or PREACHING)
@@ -1274,32 +1274,32 @@ They had a zeal of God, but were missing important truth: The Righteousness of G
 
 The Hearers refused to believe. WE HAVE A RESPONSIBILITY IN GOD's PLAN OF REDEMPTION. God is using the Gentiles to provoke the Jew to Jealousy (10:19).
 
-# ROMANS CHAPTERS 9-11
+# ROMANS CHAPTERS 9—11
 
-## Review of the The Structure of Romans 9-11
+## Review of the The Structure of Romans 9—11
 
-1. The Sorrow of the Apostle at Israel's Rejection (9:1-5)
-2. The Rejection of Israel and God's Sovereignty (9:6-29)
-3. The Rejection of Israel and Human Responsibility (9:30-10:21)
-4. The Rejection of Israel and God's Purpose for their Future (11:1-32)
-5. The Apostle's Words of Praise of God (11:33-36)
+1. The Sorrow of the Apostle at Israel's Rejection (9:1—5)
+2. The Rejection of Israel and God's Sovereignty (9:6—29)
+3. The Rejection of Israel and Human Responsibility (9:30—10:21)
+4. The Rejection of Israel and God's Purpose for their Future (11:1—32)
+5. The Apostle's Words of Praise of God (11:33—36)
 
-## The Rejection of Israel and God's Purpose for their Future (11:1-32)
+## The Rejection of Israel and God's Purpose for their Future (11:1—32)
 
-### Israel's Rejection is not Universal (11:1-10)
+### Israel's Rejection is not Universal (11:1—10)
 
 The Rejection is of the UNBELIEVING Jew (Acts 14:2; Rev. 21:8).
 
-### The Blinding is Purposeful and Does not Have to be Permanent (11:11-21)
+### The Blinding is Purposeful and Does not Have to be Permanent (11:11—21)
 
-### God's Will is to Have Mercy Upon All (11:22-32)
+### God's Will is to Have Mercy Upon All (11:22—32)
 
 > "By rejecting the gospel, and by their indignation at its being preached to the Gentiles, the Jews were become enemies to God."  
 > —Matthew Henry
 
 God's Mercy (Ps 13:5; 89:2; James 5:11).
 
-## The apostle's words of praise of God (11:33-36)
+## The apostle's words of praise of God (11:33—36)
 
 > A solemn adoring of the wisdom, goodness, and justice of God.  
 > —Matthew Henry
@@ -1308,13 +1308,13 @@ God's Mercy (Ps 13:5; 89:2; James 5:11).
 
 ## Introduction
 
-Romans chapters 12-16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
+Romans chapters 12—16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
 
 Romans chapter twelve deals with the Christian's duties, which ultimately leads to a surrendered life. The church is compared to the human body. There should be unity among the body, if there is no unity, the body will not function properly. This chapter also deals with the different duties of the church. This chapter ends with the Christian spirit. We are not to overcome but not with evil but we are to overcome with good.
 
-## The living sacrifice (v. 1-2) 
+## The living sacrifice (v. 1—2) 
 
-### Special words and phrases in verses 1-2
+### Special words and phrases in verses 1—2
 
 Often times words lose their value with us with overuse. Let us look more closely at the vocabulary of the first two verses of this chapter that we may gain a deeper understanding of it:
 
@@ -1369,13 +1369,13 @@ The believer and his lifestyle is to be remarkably different than the world. The
 
 ### Renewed in the mind
 
-The renewing of the mind happens through the Word of God (Psalm 119:9, 105). It is a Work of the Holy Spirit. The entire mind must come under the spirits control (Ephesians 5:17-20—17). The renewed mind is the mind of Christ. It is not just a different mind or another mind, but the work of God in us produces the mind of Christ (Php. 2:5; 1 Cor. 2:14-16; Luke 19:10; 2 Tim. 1:7; John 8:50).
+The renewing of the mind happens through the Word of God (Psalm 119:9, 105). It is a Work of the Holy Spirit. The entire mind must come under the spirits control (Ephesians 5:17—20—17). The renewed mind is the mind of Christ. It is not just a different mind or another mind, but the work of God in us produces the mind of Christ (Php. 2:5; 1 Cor. 2:14—16; Luke 19:10; 2 Tim. 1:7; John 8:50).
 
-## The Christian's attitude toward other Christians (v. 3-8)
+## The Christian's attitude toward other Christians (v. 3—8)
 
 We are one body in Christ, with varying gifts. Everyone members one of another. What is the one possessing a gift supposed to do with it? The various gifts are bestowed by the Spirit. The working of the gifts are for prophecy, ministering, teaching, exhorting, etc. The possession of a gift is of no use unless it is put to use. It is the whole-hearted exercise of the gifts, when it is given, that is urged by the apostles. Gifts are a directly given of the Spirit. Faith is necessary to receive and use these gifts.
 
-## Commands to the believer (v. 9-21)
+## Commands to the believer (v. 9—21)
 
 ### Love truly (v. 9a)
 
@@ -1779,40 +1779,40 @@ The historian Cassius Dio reports the following action taken by Claudius against
 
 > "As for the Jews, who had again increased so greatly that by reason of their multitude it would have been hard without raising a tumult to bar them from the city, he did not drive them out, but ordered them, while continuing their traditional mode of life, not to hold meetings."
 
-Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57-58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of Believers. Though their gathering places were 'decentralized', especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being 'one body' in Christ.
+Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57—58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of Believers. Though their gathering places were 'decentralized', especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being 'one body' in Christ.
 
 ## TIME & PLACE
 
-Romans was written from Corinth around 57-58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1-4; 2 Cor. 8-9) and Romans 15:25-28 looks upon it as just completed. Since in I Corinthians 16:3-4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57-58.
+Romans was written from Corinth around 57—58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1—4; 2 Cor. 8—9) and Romans 15:25—28 looks upon it as just completed. Since in I Corinthians 16:3—4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57—58.
 
 ## OCCASION
 
-Romans was written as Paul's introduction to the Christians at Rome preceding his journey to them. Apostle Paul had long been intending to visit the Roman Christians as soon as he accomplished the business he had at hand which was the collection for the poor at Jerusalem (1:13; 15:25, 26, 28). His work in the east was over; he was on the eve of his journey to Jerusalem. He wanted to introduce himself to the Christians at Rome before making his stop there so he wrote this epistle with the intention of sending it on the first favorable opportunity. Phoebe's voyage to Rome afforded Paul such an opportunity (16:1-2).
+Romans was written as Paul's introduction to the Christians at Rome preceding his journey to them. Apostle Paul had long been intending to visit the Roman Christians as soon as he accomplished the business he had at hand which was the collection for the poor at Jerusalem (1:13; 15:25, 26, 28). His work in the east was over; he was on the eve of his journey to Jerusalem. He wanted to introduce himself to the Christians at Rome before making his stop there so he wrote this epistle with the intention of sending it on the first favorable opportunity. Phoebe's voyage to Rome afforded Paul such an opportunity (16:1—2).
 
 ## PURPOSE
 
 Romans is a theological treatise of the meaning of the Gospel. Though the church is predominately Gentile, Judaism was a dominate influence early on. There were many Jews in Rome at the time of the writing of the Epistle to the Romans and even the Jewish Christians were heavily bound to the traditions and heritage of Judaism. The Jews believed because they had Moses's Law and the covenant of circumcision that they were guaranteed eternal life with God. They believed they were superior to the heathen Gentiles and that they did not need to submit to heathen rulers. Paul refutes the doctrines of the Jews which were inconsistent with Scripture.
-# Paul's Introduction to Romans (1:1-17)
+# Paul's Introduction to Romans (1:1—17)
 
-## Paul's Salutation (v. 1-7)
+## Paul's Salutation (v. 1—7)
 
-An apostle is one who has been SENT FORTH as a messenger or representative of and fully authorized by the sender—a delegate or ambassador. (Acts 9:3-9, 15-22, 28) Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts 1, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
+An apostle is one who has been SENT FORTH as a messenger or representative of and fully authorized by the sender—a delegate or ambassador. (Acts 9:3—9, 15—22, 28) Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts 1, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
 
 Paul was a "preacher of the Gospel." He was a separated messenger with a special Message. The Gospel is a mystery (Mark 4:11; I Tim. 3:9,16; Col. 2:2; 4:3; Eph. 1:9) and a Divine revelation. (Acts 9).
 
 Absolute consecration is spoken of in these words. Paul was set apart to preach one message and only one message. Paul did not declare a message that exalted himself nor did he do a work to further his position in the eyes of men. Paul declares that his purpose in life was the Gospel of God, and so should this be our purpose as ministers of the Gospel.
 
-### His Message (v. 1-5)
+### His Message (v. 1—5)
 
 Paul's message is the Gospel. The Gospel does not originate from Paul and is wholly concerned with Jesus Christ: our Lord, seed of David, Son of God, resurrected.
 
-### His Readers (v.6-7)
+### His Readers (v.6—7)
 
 Those connected to Jesus are connected with Him by His calling. The Called that Paul is writing to does not simply mean those invited, but means those invited that have come.
 
 It is unquestionable that the recipients of this epistle were the Roman Christians (v. 7, 15). Scripture seems to point to a predominantly Gentile Roman church as Paul's manner of addressing the church leaves hardly any doubt that he is writing to Gentiles. In chapter one, Paul speaks of his apostleship for obedience of the faith among all the nations (1:5). He refers to the recipients as "other gentiles" and also gives as his reason for being ready to preach the Gospel to them as that he is debtor both to the Greeks and to the barbarians (1:14), and that the Gospel is the power of God unto salvation, though to the Jew first, yet to the Greek also (1:16).
 
-When the position and prospects of the Jewish nation are under review and Paul comes to admonition, it is to the Gentile believers that he addresses it (1:13; 11:13; 15:15-16).
+When the position and prospects of the Jewish nation are under review and Paul comes to admonition, it is to the Gentile believers that he addresses it (1:13; 11:13; 15:15—16).
 
 The family of God comprises of saints called out of the world by God's grace to be His own people (I Cor. 1:2). Saints are those who are set apart for worship and praise. Another word key to understanding the meaning of "saints" is "sanctified." Saints are directly opposed to sin. Saints are those who allow holiness to become a reality in their lives. True righteousness is a phenomenon of the will. True righteousness always produces outward action and inward results. Every form of sin must be put out of the heart. As moral agents our intellect must disapprove of sin.
 
@@ -1820,36 +1820,36 @@ The family of God comprises of saints called out of the world by God's grace to 
 
 This is a common greeting of Paul in his epistles. The title "Jesus Christ our Lord" or "Lord Jesus Christ" is used ten times in Romans. Jesus is the personal name as Savior. Matt. 1:21. Christ is "God's anointed one" Lord denotes He is Lord of all things in heaven and earth (Acts 10:36). Jesus Christ our Lord is the Master of every situation!
 
-## Paul's Readiness (to Visit, Impart & Preach)	 (v. 8-15)
+## Paul's Readiness (to Visit, Impart & Preach)	 (v. 8—15)
 
-Verses 8-15 express Paul's personal feelings for the Roman saints.
+Verses 8—15 express Paul's personal feelings for the Roman saints.
 
-### Paul is thankful for the faith of the Roman saints and so prays for them (v. 8-9)
+### Paul is thankful for the faith of the Roman saints and so prays for them (v. 8—9)
 
 The whole world is in reference to the domain of the Roman Empire which often referred to itself as the whole world. It was Augustus who made the decree at the birth of Christ that the whole world should be taxed, which was in reference to the dominions of Rome.
 
 The faith of the saints in Rome was spoken of throughout the entire Empire. These Roman Christians are the "Beloved of God," "Called to be saints," and recipients of the grace and peace "from God our Father, and the Lord Jesus Christ." Their testimony bears out that they are separated unto God and represent the King of Glory. What a treasure a good testimony is! Paul stands on the battleground in prayer that their faith and testimony would continue.
 
-### He has a great desire to visit the Roman saints and impart spiritual gifts unto them because of his motive to see the church established (v. 10-12)
+### He has a great desire to visit the Roman saints and impart spiritual gifts unto them because of his motive to see the church established (v. 10—12)
 
 Rome was strategic, but Paul is led by the Spirit and not statistics. It is probable that Paul realized the strategic value of building up the church in the capital city of the Roman Empire, but Paul was a caliber of minister that would invest as heavily in a city no one ever heard of. He was blessed to hear that there were saints in Rome and desired to visit them to do his part to strengthen the church there. It is logical that a revival in the city of Rome would have impact on the entire Empire, but the truth is, God could choose any place to be the start of a revival that would turn the world upside down (Acts 17:6).
 
-### Paul had been hindered from going to Rome (v. 13-15)
+### Paul had been hindered from going to Rome (v. 13—15)
 
 He had wanted to and even planned to go, but he had been hindered. Paul would one day go to Rome as a prisoner to stand before the Roman leaders and proclaim the Gospel of Jesus Christ. The book of Acts tells us that Paul dwelt two years in Rome. It is believed that he was under house arrest during this time of being in Rome. He was beheaded in Rome in AD 67.
 
 Paul had great desire to preach the Gospel in Rome. He uses the word "debtor" in reference to himself to show that he is committed to preach to all men (v. 14). He was a debtor to the sinner to tell him about Christ. "Greeks" is used to refer to the wise Gentiles who have been educated in Greek culture and philosophy. "Barbarians" is used to refer to those outside of the Greek culture, that would not have been educated. Paul is ready to preach to everyone.
-## Paul&apos;s Theme: The Gospel			1:16-17
+## Paul&apos;s Theme: The Gospel			1:16—17
 
 Verses 16 & 17 are the key verses of this epistle and are a summary of the epistle. 
 
-> Romans 1:16-17&mdash;For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek. For therein is the righteousness of God revealed from faith to faith: as it is written, The just shall live by faith. 
+> Romans 1:16—17—For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek. For therein is the righteousness of God revealed from faith to faith: as it is written, The just shall live by faith. 
 
 ### The Gospel is the power of God unto Salvation.
 
 #### All who believe can be changed by the power of God.
 
-The Scripture declares that the Gospel of Christ is to everyone that believes. Some falsely teach that God chooses only certain people to be saved. The Gospel is not for only a selected few, but for whosoever will come and drink of the waters of life. Whosoever believes in Jesus shall have everlasting life. &mdash; Jn. 3:16 All men have the ability of believing, but all men will not choose to believe in Jesus and accept the provision of redemption through His blood. 
+The Scripture declares that the Gospel of Christ is to everyone that believes. Some falsely teach that God chooses only certain people to be saved. The Gospel is not for only a selected few, but for whosoever will come and drink of the waters of life. Whosoever believes in Jesus shall have everlasting life. — Jn. 3:16 All men have the ability of believing, but all men will not choose to believe in Jesus and accept the provision of redemption through His blood. 
 
 #### Salvation is a work of God.
 
@@ -1865,7 +1865,7 @@ Paul is ready to preach to whosoever unashamed because he knows beyond all doubt
 
 ##### Man has no righteousness of his own.
 
-Isaiah 64:6&mdash;But we are all as an unclean thing, and all our righteousnesses are as filthy rags; and we all do fade as a leaf; and our iniquities, like the wind, have taken us away.
+Isaiah 64:6—But we are all as an unclean thing, and all our righteousnesses are as filthy rags; and we all do fade as a leaf; and our iniquities, like the wind, have taken us away.
 
 ##### The righteousness of Christ is put to the account of the 	sinner.
 
@@ -1875,17 +1875,17 @@ This is what is meant by imputed righteousness. Impute is a KJV word that means 
 
 There is a difference between imputed righteousness and imparted righteousness. To impart means to put into. God places His righteousness in man at Salvation. There is a change of nature that accompanies the new birth.
 
-> Philippians 3:9&mdash;And be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith:
+> Philippians 3:9—And be found in him, not having mine own righteousness, which is of the law, but that which is through the faith of Christ, the righteousness which is of God by faith:
 
 #### From faith to faith indicates a progression of faith to receive more revelation of the righteousness of God.
 
-The expression from faith to faith is referring to an increase of faith; showing growth from the initial faith of salvation to a greater faith in God that comes with Christian growth. The Scripture tells us that every man is given the measure of faith. &mdash; Rom. 12:3. All men have the ability to believe, yet all do not exercise their faith to believe in Jesus Christ. The apostles asked the Lord to increase their faith. - Lk. 17:5. Faith is increased as it is put into practice. With Christian maturity comes an increase in faith. The righteousness of God is revealed from faith to faith through the Gospel.
+The expression from faith to faith is referring to an increase of faith; showing growth from the initial faith of salvation to a greater faith in God that comes with Christian growth. The Scripture tells us that every man is given the measure of faith. — Rom. 12:3. All men have the ability to believe, yet all do not exercise their faith to believe in Jesus Christ. The apostles asked the Lord to increase their faith. - Lk. 17:5. Faith is increased as it is put into practice. With Christian maturity comes an increase in faith. The righteousness of God is revealed from faith to faith through the Gospel.
 
 #### The Righteousness of God is progressive in the life of Christians. 
 
 The revelation of God&apos;s character and nature is not something apart and separate from the Gospel, but is bound up in the Gospel that we as hearers may LIVE. This life and righteousness is not received all at once, but is revealed to us from faith to faith. As we obey and do as we have received, God gives us more and this continual progression in righteousness is the path of life of the JUST. The key to maintaining our experience with God is progression. Paul declares in Hebrews 6:1, &quot;Let us go on.&quot;
 
-> II Corinthians 5:21&mdash;For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
+> II Corinthians 5:21—For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
 
 ### The just shall live by faith.
 
@@ -1907,14 +1907,14 @@ The just remain so by the keeping power of God. In this world of sin, the Christ
 
 #### The path of the just leads to full maturity in Christ.
 
-> Proverbs 4:18&mdash;But the path of the just is as the shining light, that shineth more and more unto the perfect day.
-> Psalms 119:105&mdash;Thy word is a lamp unto my feet, and a light unto my path.
+> Proverbs 4:18—But the path of the just is as the shining light, that shineth more and more unto the perfect day.
+> Psalms 119:105—Thy word is a lamp unto my feet, and a light unto my path.
 
 Light represents truth which guides the Christian on his journey. The further we walk on the path the more truth that is received. God reveals more truth as we obey the truth that has already been received. The life of the just is to continue by faith to mature in Christ and receive the fullness of our inheritance as believers. 
 
 #### The Christian lives his life by faith in Christ.
 
-> Galatians 2:20&mdash;I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.
+> Galatians 2:20—I am crucified with Christ: nevertheless I live; yet not I, but Christ liveth in me: and the life which I now live in the flesh I live by the faith of the Son of God, who loved me, and gave himself for me.
 <!--
 //
 Get notes from sunday school lesson taught without notes on 3/13/2016
@@ -1923,24 +1923,24 @@ for more notes on "Gentile Guilt"
 //
 -->
 
-# All are Guilty and Under Sin - Ch. 1:18-32 & 2:1-29
+# All are Guilty and Under Sin - Ch. 1:18—32 & 2:1—29
 
-> 3:9&mdash;&hellip; we have before proved both Jews and Gentiles, that they are all under sin;
+> 3:9—&hellip; we have before proved both Jews and Gentiles, that they are all under sin;
 
 ## All Are Guilty
 
-All mankind needs to be justified through Jesus or the wrath of God will be revealed against it. &mdash; 1:18
+All mankind needs to be justified through Jesus or the wrath of God will be revealed against it. — 1:18
 Jesus is the only way to salvation and those who do not chose to accept the provision of Christ are condemned.
 
-> John 3:18&mdash;&hellip; he that believeth not is condemned already&hellip;
+> John 3:18—&hellip; he that believeth not is condemned already&hellip;
 The wrath of God is revealed against all ungodliness and unrighteousness of men. Those who are not justified by faith will receive the wrath of God. Those who hold the truth in unrighteousness. This refers to those who know the truth, but do not live by it. They possess knowledge of the truth yet live in unrighteousness. The revelation of God&apos;s wrath is upon those that hold the truth in unrighteousness. 
 
-## Gentile Guilt &mdash; 1:19-32
+## Gentile Guilt — 1:19—32
 
 (Sinners **Without** the Law are Deserving of God&apos;s Wrath)
 The conclusion of this chapter continues on describing this people who are guilty and worthy of the wrath of God. They are without excuse.
 
-### They knew God			1:19-23
+### They knew God			1:19—23
 
 God has manifested Himself to them (v.19)
 Someone has said: &quot;a fool in not an idiot, but one who has intellect and abuses it.&quot;
@@ -1957,38 +1957,38 @@ Birds - Eagle of the Romans.
 Four-footed beasts - Bulls of the Egyptians.
 Creeping things - serpent of the Assyrians.
 The word &quot;change&quot; means to forsake one thing for another, to change one thing into another. ( Psalm 106:20).
-God gave them up, and turned them over. 1:24-32
+God gave them up, and turned them over. 1:24—32
 
 Stifler says: &quot;Whatever morality there is in the world is due, not to human nature but to the restraining power of God.&quot; 
 The great good they once had is now turned to great corruption. Their corruption and guilt is clear and the judgment is set. &quot;&hellip;They which commit such things are worthy of death&hellip;&quot;
 Wherefore God gave them up not passively but actually. Because they forsook God He gave them up! Three times we read that &quot;God gave them up.&quot;
 
-### Turn to: uncleanness, lusts of their own hearts. Vs. 24-25
+### Turn to: uncleanness, lusts of their own hearts. Vs. 24—25
 
-### Turned to: a reprobate mind, things not convenient. Vs. 26-28
+### Turned to: a reprobate mind, things not convenient. Vs. 26—28
 
 Those who did not retain God in their knowledge are given over to a reprobate mind. These had knowledge of God, but rejected that knowledge. Reprobate means one who is rejected or cast away. God gave them over to a reprobate mind; a vain empty mind, worthless, good for nothing devoid of all true knowledge and judgment; incapable of approving what is truly good, or of disapproving that which is evil; a mind that has lost all conscience of things, and is disapproved of by God, and all good men: - Gill Bible Exposition There is a point when God will cut off a man that rejects the conviction of the Holy Ghost.
 
 Homosexuality is plainly denounced as sin. The Scripture is quite clear in the description of this wicked sin. This sin will invoke the wrath of God.This sin is result of rejecting God.
 
-Romans 1:26-27&mdash; For this cause God gave them up unto vile affections: for even their women did change the natural use into that which is against nature: And likewise also the men, leaving the natural use of the woman, burned in their lust one toward another; men with men working that which is unseemly, and receiving in themselves that recompence of their error which was meet.
+Romans 1:26—27— For this cause God gave them up unto vile affections: for even their women did change the natural use into that which is against nature: And likewise also the men, leaving the natural use of the woman, burned in their lust one toward another; men with men working that which is unseemly, and receiving in themselves that recompence of their error which was meet.
 
-To being filled with all unrighteousness. 1:29-31
+To being filled with all unrighteousness. 1:29—31
 all unrighteousness, fornication, wickedness, covetousness, maliciousness-(vicious) full of envy, murder, debate, deceit, malignity, whisperers, Backbiters, haters of God, despiteful, proud, boasters, inventors of evil things, disobedient to parents, Without understanding, covenantbreakers, without natural affection,, implacable-(never satisfied) unmerciful
 
 
-## Jewish/Religious Guilt &mdash; 2:1-29
+## Jewish/Religious Guilt — 2:1—29
 
 (Sinners **Within** the Law are Deserving of God&apos;s Wrath)
 
 Romans chapter two talks about the guilty Jew or the guilty religious person. The Jew refused to obey The Light of Revelation. In this chapter we see the Jew condemning others, just as the Pharisees did. This chapter also talks about the circumcision of the heart, which is most important.
 
-### GOD IS NO RESPECTER OF PERSONS			2:1-16
+### GOD IS NO RESPECTER OF PERSONS			2:1—16
 
 The opening word of the chapter: therefore connects this chapter to the first chapter. Those who could judge between right and wrong would have been totally in agreement with the condemnation of the heathen in Chapter 1. Those who considered themselves morally good whether Jew or Gentile could easily condemn the heathen, but here Paul charges the religious hypocrites that they have condemned themselves.
  Paul is addressing those who were self righteous.
 
-#### Those who judge others and do the same things have condemned themselves. &mdash; Vs. 1
+#### Those who judge others and do the same things have condemned themselves. — Vs. 1
 
 Moral man justifies himself saying he is not as bad as others. The man that condemns another for breaking the law and himself as well breaks the law is without a defense. This man condemns himself with the words he condemns another.
 
@@ -1996,7 +1996,7 @@ Moral man justifies himself saying he is not as bad as others. The man that cond
 
 Christians should make righteous judgment.
 
-> John 7:24&mdash;Judge not according to the appearance, but judge righteous judgment.
+> John 7:24—Judge not according to the appearance, but judge righteous judgment.
 
 It is the hypocrite who is warned of judging.
 
@@ -2004,21 +2004,21 @@ It is the hypocrite who is warned of judging.
 
 Those who judge and do the same thing are condemned by their own judgment. This is the definition of a hypocrite. For example if someone sees someone steal something and then evaluates that it is wrong to steal they have made a judgment that stealing is wrong. The man that condemns another for breaking the law while at the same time he as well breaks the law is without a defense. This man condemns himself with the words he intends to condemn another. We see here the inconsistency of human judgment and man&apos;s biased decision-making, but in verse two it is declared that God&apos;s judgment is according to truth against not just this group or that group, but against those that commit &quot;such things.&quot; God&apos;s judgment is according to truth, unbiased, and absolute. A man may feel self-confident and sure of his own place at the time he judges another, but without a doubt he is without a defense--inexcusable--when the judgment of God comes.
 
-### The Principles of God&apos;s Judgment &mdash; Vs.2- 16
+### The Principles of God&apos;s Judgment — Vs.2— 16
 
 #### God&apos;s judgment is true.			v. 2
 We see the inconsistency of human judgment and man&apos;s biased decision-making, but in verse two it is declared that God&apos;s judgment is according to truth, against not just this group or that group, but against those that commit &quot;such things.&quot;
 God&apos;s judgment is according to truth, unbiased, and absolute. A man may feel self-confident and sure of his own place at the time he judges another, but without a doubt he is without a defense--inexcusable--when the judgment of God comes.
 
-#### God&apos;s judgment is impartial. 		v. 3-11
+#### God&apos;s judgment is impartial. 		v. 3—11
 
 v. 4 &quot;**The goodness of God leads men to repentance**.&quot; Men too often respond so vainfully to the mercy of God. When God does not bring instantaneous judgment men often imagine they have escaped and have &quot;gotten away&quot; with it, but in so doing they despise God&apos;s goodness, forbearance, and longsuffering patience. They are without a flicker of understanding that the reprieve they enjoy is the goodness of God to lead them to and provide space for REPENTANCE. God is not interested in simply destroying men in anger, but His desire is that men would be saved and that could mean for some by as it were fire.
 Paul clearly explains that while the hard and impenitent heart imagines vainly that he has escaped, instead of taking advantage of the mercy and goodness of God he to the opposite effect stores up, treasures up, against himself the wrath of God.
 In a time when pardon is provided, the hard hearted and impenitent store up only more wrath and condemnation. They heap up treasures of destruction over a promise of treasures of righteousness. God is not blind and neither has He gone soft. God is longsuffering, but He also will judge righteously EVERY man according to HIS DEEDS.
 The righteous judgment of God will reward the obedient with eternal life, but will judge the disobedient with tribulation and anguish. (Ro.2:7, 9; 5:21; 6:17, 23)-1:30; 10:21
 
-> Romans 2:6&mdash;Who will render to every man according to his deeds:
-> Romans 2:11&mdash; For there is no respect of persons with God.
+> Romans 2:6—Who will render to every man according to his deeds:
+> Romans 2:11— For there is no respect of persons with God.
 
 This means that God is totally impartial in all His dealings with men including His judgment. 
 
@@ -2046,9 +2046,9 @@ Because the Jews had not obeyed the Law they will be condemned by the law. Many 
 Obeying the law required the sacrificing of animals. The law included provision for the atonement of sins through the blood of an animal. We understand these sacrifices were a shadow of Jesus death upon the cross which were only accepted by God as a figure of Him who was to come and pay the price in full for the sins of all humanity. Man has only been justified by the blood of Jesus Christ. Under the Old Covenant the Jew could be justified if he obeyed the law which included animal sacrifice for sin. The works of the law have never justified man. 
 Justification is now only provided by faith in Jesus Christ. Christ is the fulfillment of the law. Under the New Covenant of Grace men can only be justified through Jesus Christ. The sacrifices of the law looked forward to redemption through Christ&apos;s blood and justification which is by faith. So today the only way man can obey God is to accept the atonement of Jesus Christ. 
 
-> Galatians 3:24&mdash;Wherefore the law was our schoolmaster to bring us unto Christ, that we might be justified by faith.
+> Galatians 3:24—Wherefore the law was our schoolmaster to bring us unto Christ, that we might be justified by faith.
 
-### The Law of God is written on the hearts of men. - Vs. 14-16
+### The Law of God is written on the hearts of men. - Vs. 14—16
 
 #### The Gentiles can by nature do that which is contained in the law.
 
@@ -2072,19 +2072,19 @@ Men will be judged by Jesus Christ. - Jn.5:27
 
 Paul&apos;s Gospel is not the standard of God&apos;s judgment. &quot;My Gospel&quot; refers to the teaching and preaching of Paul. The righteous judgment of God is an essential ingredient of the Gospel Paul preached.
 
-### THE UNFAITHFUL JEW IS UNDER CONDEMNATION &mdash; Vs. 17-25
+### THE UNFAITHFUL JEW IS UNDER CONDEMNATION — Vs. 17—25
 
-#### The Jews rested in the Law. Vs. 17-18
+#### The Jews rested in the Law. Vs. 17—18
 
 ##### The Jews claimed to be exempt from condemnation based on heritage.
 
-When Jesus condemned the Jews, they replied: We be Abrahams seed; Jesus responded: if ye were Abraham&apos;s children, ye would do the works of Abraham.&mdash;Jn. 8:33-39 The Jews believed they would receive eternal life on the merit of being a Jew and the covenant of circumcision. The old Rabbinical writings state that no circumcised man will be lost. The Jews had a tradition that Abraham stood at the gates of hell to insure that no circumcised man was ever cast there.
+When Jesus condemned the Jews, they replied: We be Abrahams seed; Jesus responded: if ye were Abraham&apos;s children, ye would do the works of Abraham.—Jn. 8:33—39 The Jews believed they would receive eternal life on the merit of being a Jew and the covenant of circumcision. The old Rabbinical writings state that no circumcised man will be lost. The Jews had a tradition that Abraham stood at the gates of hell to insure that no circumcised man was ever cast there.
 
 ##### Knowledge of the law cannot save the Jew.
 
 The Jew that boasts in the law believes he is a guide for the blind, but is blind himself. That is, he believes he knows the way, and no one else does. He stands in this place of great self-confidence because he KNOWS the law, but THERE IS NO RIGHTEOUSNESS IN KNOWING THE LAW. Paul speaks directly to emphasize his point, &quot;Thou that preachest a man should not steal, dost thou steal?&quot; Paul is clearly presenting that just as the Gentile is guilty because he DOES NOT the law and not that because he has not the law as the Jews do, so also are the Jews not pardoned from their guilt because they have and know the law, but they as well are judged for not DOING the law. Their self-confidence is fool hearty for they are the blind leading the blind.
 
-#### The Jews believed they were superior to the Gentiles. Vs. 19-25
+#### The Jews believed they were superior to the Gentiles. Vs. 19—25
 
 ##### The Gentiles were considered blind and ignorant.
 
@@ -2093,7 +2093,7 @@ Thus the questions concerning the guiding of the blind and instructing the babes
 
 He was driving his message to the conscience of the Jew. You who tell others not to sin: do you sin? You boast in the law yet dishonor God by breaking the law. 
 
-#### The True &quot;Jew&quot; is one that is so INWARDLY (heart, spirit) Vs. 26-29.
+#### The True &quot;Jew&quot; is one that is so INWARDLY (heart, spirit) Vs. 26—29.
 
 ##### Circumcision was a sign of the cutting away of the flesh.
 
@@ -2105,10 +2105,10 @@ The issue for justification is not over if a man was born Jew or Gentile, whethe
 
 ## Conclusion
 
-> Romans 3:9-18&mdash;What then? are we better than they? No, in no wise: for we have before proved both Jews and Gentiles, that they are all under sin;Ro 3:10 As it is written, There is none righteous, no, not one: 11 There is none that understandeth, there is none that seeketh after God. 12 They are all gone out of the way, they are together become unprofitable; there is none that doeth good, no, not one. 13 Their throat is an open sepulchre; with their tongues they have used deceit; the poison of asps is under their lips: 14 Whose mouth is full of cursing and bitterness: 15 Their feet are swift to shed blood: 16 Destruction and misery are in their ways: 17 And the way of peace have they not known: 18 There is no fear of God before their eyes.
+> Romans 3:9—18—What then? are we better than they? No, in no wise: for we have before proved both Jews and Gentiles, that they are all under sin;Ro 3:10 As it is written, There is none righteous, no, not one: 11 There is none that understandeth, there is none that seeketh after God. 12 They are all gone out of the way, they are together become unprofitable; there is none that doeth good, no, not one. 13 Their throat is an open sepulchre; with their tongues they have used deceit; the poison of asps is under their lips: 14 Whose mouth is full of cursing and bitterness: 15 Their feet are swift to shed blood: 16 Destruction and misery are in their ways: 17 And the way of peace have they not known: 18 There is no fear of God before their eyes.
 # The Law in a Right Perspective (chapter 3)
 
-Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established by our faith (v. 31).
+Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established by our faith (v. 31).
 
 ## Introduction
 
@@ -2130,10 +2130,10 @@ Paul sets the Law in its right perspective. The religious Jew clung to his knowl
 
 This conviction in the pre-eminence of the law is what fed the Jew's objection to Christ. The Holy Ghost knew the Jews were holding to their superiority and trying to justify their rejection of the Gospel. In Romans 3, we find refutations of the excuses of the Jews to further show they are condemned and in need of Jesus.
 
-- The True Advantage of Having the Law	(vs. 1-2)
-- The Absoluteness of the Law 			(vs. 3-8)
-- The Unbending Authority of the Law 	(vs. 9-19)
-- The True Purpose of the Law 			(vs. 20-30)
+- The True Advantage of Having the Law	(vs. 1—2)
+- The Absoluteness of the Law 			(vs. 3—8)
+- The Unbending Authority of the Law 	(vs. 9—19)
+- The True Purpose of the Law 			(vs. 20—30)
 - The Establishing of the Law			(v. 31)
 
 ### What Law?
@@ -2144,8 +2144,8 @@ Throughout Romans, Paul illustrates the weakness of the Law given to Moses and y
 
 Though we can find the same word "law" used in 52 verses in Romans, Paul is not always discussing the same set of principles or prescriptions.
 
-- Romans 2:12-13,17,18,20,23,25,26 : The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
-- Romans 2:14-15 : The Gentiles did have a law in their heart or their conscience
+- Romans 2:12—13,17,18,20,23,25,26 : The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
+- Romans 2:14—15 : The Gentiles did have a law in their heart or their conscience
 - Romans 3:27 : Law of faith.
 - Romans 7:2 : Law of her husband
 - Romans 7:22 : Law of God
@@ -2163,9 +2163,9 @@ A man can be justified in the eyes of God without the deeds of the law of Moses 
 
 > Romans 7:22—For I delight in the law of God after the inward man:
 
-## The True Advantage of Having the Law	(vs. 1-2)
+## The True Advantage of Having the Law	(vs. 1—2)
 
-Having Received the Law First, What Advantage does the Jew Have? (vs. 1-2)
+Having Received the Law First, What Advantage does the Jew Have? (vs. 1—2)
 
 ### The Advantage IS NOT that they are inherently superior to the Gentiles
 
@@ -2183,9 +2183,9 @@ The advantage of knowing the law is not that that knowledge justifies us, but is
 
 Question: Is it an advantage to not know God's will?
 
-Answer: No. It is a blessing to have had the opportunity to know God's will. Peter is expressing the greatness of the degree of condemnation of backslider. Both the heathen and backslider are condemned.## The Absoluteness of the Law (Romans 3:3-8)
+Answer: No. It is a blessing to have had the opportunity to know God's will. Peter is expressing the greatness of the degree of condemnation of backslider. Both the heathen and backslider are condemned.## The Absoluteness of the Law (Romans 3:3—8)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
@@ -2197,7 +2197,7 @@ We have made a distinction between the specific prescriptions given through Mose
 
 It is in Jesus, we see the fullness of God&apos;s will. The Lord Jesus Christ is the standard of God&apos;s expectation.
 
-> Eph 4:11-16 And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers; 12 For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: 13 Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ: 14 That we henceforth be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; 15 But speaking the truth in love, may grow up into him in all things, which is the head, even Christ: 16 From whom the whole body fitly joined together and compacted by that which every joint supplieth, according to the effectual working in the measure of every part, maketh increase of the body unto the edifying of itself in love.
+> Eph 4:11—16 And he gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers; 12 For the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: 13 Till we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fulness of Christ: 14 That we henceforth be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive; 15 But speaking the truth in love, may grow up into him in all things, which is the head, even Christ: 16 From whom the whole body fitly joined together and compacted by that which every joint supplieth, according to the effectual working in the measure of every part, maketh increase of the body unto the edifying of itself in love.
 
 For the purposes of our study we have defined The Law of God as:
 
@@ -2205,7 +2205,7 @@ For the purposes of our study we have defined The Law of God as:
 
 God&apos;s Law is governed by the nature of God. What is in the Law of God is because of Who God is. God is absolute and therefore His Law is absolute--his expectations of the behavior of humanity are absolute. (The majority of the time, Human self-government is anything but absolute.)
 > 2 Samuel 22:31 As for God, his way is perfect; the word of the LORD is tried: he is a buckler to all them that trust in him. (Compare with Psalm 101)
-### If some do not believe, will God break his promise? vs. 3-4
+### If some do not believe, will God break his promise? vs. 3—4
 Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God&apos;s plan? Will unbelief cancel God&apos;s faithfulness? See II Timothy 2:13
 
 #### The Jews Cling to their Heritage as Abraham&apos;s Children as their Warranty. (v. 3)
@@ -2213,7 +2213,7 @@ Has God cancelled his covenant with Abraham because some Jews are bad? If some d
 Their objection was even though some did not believe; nothing can nullify our special promises we have been given by God through Abraham. They were in effect saying no matter what else we are, we are Abraham&apos;s seed and that will get us into heaven.
 #### The answer: Absolutely Not! (v.4)
 Will God be unfaithful because man is unfaithful? Absolutely Not!
-> vs. 4&mdash;God forbid: yea, let God be true, but every man a liar&hellip;
+> vs. 4—God forbid: yea, let God be true, but every man a liar&hellip;
 > 2 Timothy 2:13 If we believe not, yet he abideth faithful: he **cannot deny himself**.
 
 It is not because, some Jews were unfaithful that requires faith in Jesus Christ. It is because the fullness of God&apos;s plan of redemption has always been in Christ.
@@ -2226,11 +2226,11 @@ It is not because, some Jews were unfaithful that requires faith in Jesus Christ
 
 The Psalm of David is quoted which showed God to be righteous even when David was condemned for his sin. According to Psalm 51:4, God is just when He speaks and clear when He judges. This is used here to show that God is right to condemn the Jews because they rejected the Messiah who came from the seed of Abraham according to the promises. These promises they claimed would justify them in fact brought condemnation to the Jew because of their rejection of Jesus Christ.
 
-### If our sin commends God&apos;s righteousness, how can He judge us?-Vs. 5-7
+### If our sin commends God&apos;s righteousness, how can He judge us?-Vs. 5—7
 
 #### Let us first understand the meaning of the question.
 
-Commend -To represent as worthy of notice, regard, or kindness; to speak in favor of; to recommend. &mdash; Webster The Gk. word carries the meaning of to exhibit (as in a conspicuous manner), or to introduce, to stand with or to come into existence.
+Commend -To represent as worthy of notice, regard, or kindness; to speak in favor of; to recommend. — Webster The Gk. word carries the meaning of to exhibit (as in a conspicuous manner), or to introduce, to stand with or to come into existence.
 
 We must rely on the context to help us understand the meaning of this question. This is posed as two questions in the text and has been simplified for the purpose of study. The question is literally asking: if our unrighteousness magnifies or brings attention to God&apos;s righteousness and mercy; is God unrighteous if He judges us? 
 
@@ -2238,34 +2238,34 @@ This is still awkward for us to understand. Remember God is dealing with the act
 
 #### God forbid: for then how shall God judge the world?
 
-The answer is: Certainly not. For if this principle is used then how could God pass judgment on the world? The world here is referring to the Gentiles. The Jews were still trying to excuse themselves from condemnation. It is proper for a righteous God to judge the unrighteous sinner&mdash;whether Jew or Gentile.
+The answer is: Certainly not. For if this principle is used then how could God pass judgment on the world? The world here is referring to the Gentiles. The Jews were still trying to excuse themselves from condemnation. It is proper for a righteous God to judge the unrighteous sinner—whether Jew or Gentile.
 
 The truth is, God can judge the world because he is righteous.
 
-### Let us do evil that good may come? &mdash; Vs. 8
+### Let us do evil that good may come? — Vs. 8
 Some abuse the truth of God&apos;s mercy and boast that their sinful lives and God&apos;s unconditional acceptance, is illustrative of God&apos;s great Mercy. Paul was NOT preaching this false doctrine, but was being accused of doing so.
 
 This was an attack on Paul&apos;s preaching of justification by faith. The Jews were saying: you tell us God justifies the wicked, so why not continue to be evil so good can come out of it?
 Paul&apos;s description of those who did preach this was: whose damnation is just. Since the accusation was not true Paul did not go into a detailed answer; he only affirms that God&apos;s judgment on them is just.
-## The Unbending Authority of the Law (vs. 9-19)
+## The Unbending Authority of the Law (vs. 9—19)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
 The whole world is under the sentence of condemnation.
 
-## The charge is levied against the sinner. &mdash; v. 9
+## The charge is levied against the sinner. — v. 9
 
 Who is a sinner? We have proven both Jew and Gentile to be under sin as ALL are guilty of breaking the law.
 
 ## Witnesses are brought before the accused.
 
-### The witness of creation &mdash; 1:20
-### The witness of conscience &mdash; 2:15
-### The witness of commandment &mdash; 3:19
+### The witness of creation — 1:20
+### The witness of conscience — 2:15
+### The witness of commandment — 3:19
  
-## The indictment is read from the Scriptures. &mdash; vs. 10-18
+## The indictment is read from the Scriptures. — vs. 10—18
 
 ### According to the rules of the court the indictment had to be written.
 
@@ -2279,14 +2279,14 @@ The Jew boasted that he possessed the Scripture; now God is using that same Word
 
 ### Although the Gentile did not have the written word; they still had the same principals contained in the Word written on their heart 
 
-## The defense of the accused &mdash; V. 19
+## The defense of the accused — V. 19
 
 What is the defense of the accused?
 
 The accused has nothing to say; every mouth is stopped.
 The Day of Judgment will be a day of silence.
 
-## The verdict &mdash; V.20
+## The verdict — V.20
 
 ### GUILTY AS CHARGED!
 
@@ -2295,9 +2295,9 @@ The Day of Judgment will be a day of silence.
 This law refers to more than Moses Law; there is also reference to moral law and the law of conscience. The Gentile did not posses Moses&apos;s Law, but every man has the moral law of God written on his heart and testified to by his conscience.
 
 ### The death penalty has been levied against the condemned. Rom.6:23
-# The True Purpose of the Law (vs. 20-30)
+# The True Purpose of the Law (vs. 20—30)
 
-> ROMANS 3: *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> ROMANS 3: *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
@@ -2315,7 +2315,7 @@ The law is accusatory by nature against all mankind.The true purpose of the law 
 
 
 
-## The righteousness of God is manifested to men. &mdash; Vs. 21-23
+## The righteousness of God is manifested to men. — Vs. 21—23
 
 ### To manifest is to show forth or to declare.
 
@@ -2323,7 +2323,7 @@ The law is accusatory by nature against all mankind.The true purpose of the law 
 
 ### Declared Righteous
 	
-The meaning of "justify" is to declare righteous. To be justified is to be placed in a right relationship with God. Paul is telling men how they can be justified or declared righteous &mdash; through Jesus Christ. 
+The meaning of "justify" is to declare righteous. To be justified is to be placed in a right relationship with God. Paul is telling men how they can be justified or declared righteous — through Jesus Christ. 
 
 - justification: to render (show or regard as) just or innocent:--free, be righteous. 
 
@@ -2341,7 +2341,7 @@ It simply means to be right which is the opposite of being wrong. Sin is wrong a
 	
 This is not earned righteousness or even righteous works. Justification is the righteousness of God put to the account of a man; that is God counting him righteous solely due to the righteousness of Christ. This passage is showing man the source of righteousness which only comes from God. 
 
-## God&apos;s method of Justification &mdash; V. 24
+## God&apos;s method of Justification — V. 24
 ### Given by the Grace of God	
 
 Sinful man does not deserve to be justified. Man deserves to die because of sin. God freely justifies those who receive the provision of Christ by faith. Salvation is a gift of God to those who receive the provision of Christ by faith. 
@@ -2349,7 +2349,7 @@ Sinful man does not deserve to be justified. Man deserves to die because of sin.
 	
 Redemption means to purchase, to set free by the payment of a ransom. Jesus paid the price for our Salvation in His blood. Man is declared righteous solely on the merit of Jesus Christ.
 
-## The demands of the law have been satisfied. &mdash; V. 25 
+## The demands of the law have been satisfied. — V. 25 
 ### God still requires justice. 
 
 Justification is not merely God showing pity on the sinner and letting him go free without the penalty being paid. The word propitiation is used in reference to Christ satisfying the demands of the law. Propitiation is a reason for not executing judgment which is deserved. It corresponds to the Hebrew word rendered mercy seat which was the place the blood of atonement was sprinkled to satisfy the judgment of God. This sprinkled blood covered the Tables of the Law contained in the Ark. This is a figure of Him who was to come and shed Divine blood to satisfy the law. The blood of Jesus is the reason that judgment is not executed on the repentant sinner.
@@ -2358,7 +2358,7 @@ Justification is not merely God showing pity on the sinner and letting him go fr
 
 Propitiation properly signifies the removal of wrath by the offering of a gift. In the OT it is expressed by the verb kipper (ATONEMENT). The objection to propitiation arises largely from an objection to the whole idea of the wrath of God, which many exponents of this view relegate to the status of an archaism. They feel that modern men cannot hold such an idea. But the men of the OT had no such inhibitions. For them 'God is angry with the wicked every day&apos;s (Ps. 7:11, AV). They had no doubt that sin inevitably arouses the strongest reaction from God. He is vigorously opposed to evil in every shape and form while he may be 'slow to anger&apos;s. - New Bible Dictionary 
 
-> Romans 3:25&mdash;Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God;
+> Romans 3:25—Whom God hath set forth to be a propitiation through faith in his blood, to declare his righteousness for the remission of sins that are past, through the forbearance of God;
 > 
 ### Let us look at the phrase for the remission of sins that are past.
 	
@@ -2374,7 +2374,7 @@ Faith and Righteousness - Go hand in hand If you see a man with righteousness, y
 
 ## The Establishing of the Law (v. 31)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
@@ -2387,28 +2387,28 @@ The law of faith does not make the law useless or void, but establishes it. Fait
 
 The law brings the knowledge of sin to a man, and that man who has recognized his condition may be justified by faith. Without the law that man would have no knowledge of sin, and therefore would see no need for justification, redemption, or atonement. The law which was once broken is established through faith in the finished work of Christ. For through His righteousness it is SATISFIED.
 
-# Faith, Grace & Justification &mdash; Romans 4
+# Faith, Grace & Justification — Romans 4
 
 JUSTIFICATION IS OF FAITH THAT IT MIGHT BE BY GRACE
 
-## Introduction &mdash; &quot;Justification By Grace Through Faith&quot;
+## Introduction — &quot;Justification By Grace Through Faith&quot;
 
 The role of the law in justification is that it brings the knowledge of sin. A person is not justified through the works of the law. For justification takes place in the case of the Believer &quot;by grace through faith&quot;.
 
 By Grace a gift of eternal life is freely offered to the entire world and it is through faith that gift is received. God made the first move in the plan of redemption and for that plan to be effective in me, I must choose to receive that gift through faith. (God&apos;s grace is resistible by the nature of the free will given by God to man.)
 
-> Ephesians 2:8&mdash;For by grace are ye saved through faith; and that not of yourselves: it is the gift of God:
+> Ephesians 2:8—For by grace are ye saved through faith; and that not of yourselves: it is the gift of God:
 
-> Romans 4:16&mdash;Therefore it is of faith, that it might be by grace; to the end the promise might be sure to all the seed; not to that only which is of the law, but to that also which is of the faith of Abraham; who is the father of us all.
+> Romans 4:16—Therefore it is of faith, that it might be by grace; to the end the promise might be sure to all the seed; not to that only which is of the law, but to that also which is of the faith of Abraham; who is the father of us all.
 
 Justification by Faith is Demonstrated in the life of Abraham.
 
 <!-- -- -- -->
 <!-- -- -- -->
 <!-- -- -- -->
-## I. Abraham was justified by Faith and not by Works. &mdash; Vs. 1&mdash;8
+## I. Abraham was justified by Faith and not by Works. — Vs. 1—8
 
-> Romans 4:3&mdash;&hellip;Abraham believed God, and it was counted unto him for righteousness.
+> Romans 4:3—&hellip;Abraham believed God, and it was counted unto him for righteousness.
 
 ### A. Paul is Addressing a Question of the Jews
 
@@ -2420,12 +2420,12 @@ Abraham is referenced as &quot;our father&quot; in verses 1,12 and 17. Abraham w
 
 The Jews were holding to their relationship to Abraham (&quot;abraham&apos;s children according to the flesh&quot;) as their guarantee to eternal life. The Jews placed great confidence in Abraham the Father of their nation and it is the Jewish questions, Paul is addressing:
 
-&mdash; What about Abraham our Father?
-&mdash; What about the covenant of circumcision given to Abraham, doesn&apos;t that make us righteous?
+— What about Abraham our Father?
+— What about the covenant of circumcision given to Abraham, doesn&apos;t that make us righteous?
 
 ##### b. What saith the Scripture?
 
-> Romans 4:3 &mdash;For what saith the scripture? &hellip;
+> Romans 4:3 —For what saith the scripture? &hellip;
 
 Romans chapter 4 deals with &quot;Abraham&apos;s Righteousness&quot;. Abraham is an example of justification by grace through faith. Paul uses Abraham&apos;s life as recorded in SCRIPTURE to explain the doctrine of righteousness by faith. In both Chapter 3 and Chapter 4, Paul is bringing out the truth that he is not teaching a Gospel that is in competition with the Scriptures (Old Testament), but rather a Gospel that is a continuation of God&apos;s Eternal Purpose.
 
@@ -2434,17 +2434,17 @@ Romans chapter 4 deals with &quot;Abraham&apos;s Righteousness&quot;. Abraham is
 
 #### 2. What is the Question?
 
-&mdash; **Question**:
+— **Question**:
 What shall we say then that Abraham our father, as pertaining to the flesh, hath found? v.1
 
-&mdash; **Answer**:
+— **Answer**:
 For the promise, that he should be the heir of the world, was not to Abraham, or to his seed, through the law, but through the righteousness of faith. v.13
 
-God is using the example of Abraham to explain to the Jewish Christians how men are justified&mdash;&mdash;declared righteous/just by God.
+God is using the example of Abraham to explain to the Jewish Christians how men are justified——declared righteous/just by God.
 
 Paul was using the Scripture as the authority to refute the questions of the Jews. So should the Christian today look to the Word of God as the final authority in settling questions.
 
-### B. Before the Torah was Given, Abraham was counted as righteous! vs. 1&mdash;4
+### B. Before the Torah was Given, Abraham was counted as righteous! vs. 1—4
 
 Moses who was esteemed by the Jews as the writer of the Torah is called as a witness to the justification of Abraham by faith.
 
@@ -2460,17 +2460,17 @@ What does God OWE humanity? Judgment. Keeping the Law does not obligate God to j
 
 ### C. God justifies the ungodly. v. 5
 
-Those who are not born&mdash;again are sinners and ungodly. The repentant sinner is declared righteous by God through the blood of Jesus. The ungodly do nothing to earn their salvation. They are justified &quot;by grace alone through faith alone&quot;.
+Those who are not born—again are sinners and ungodly. The repentant sinner is declared righteous by God through the blood of Jesus. The ungodly do nothing to earn their salvation. They are justified &quot;by grace alone through faith alone&quot;.
 
 NOTE: God requiring faith does not cancel God&apos;s grace. A justification conditional by works is in competition with the grace of God which is His goodness extended only for the reason that God is good. The condition to justification is a response of faith. Faith is absolutely required and our justification is still to the glory of God as it He Who has given to us the gift of faith with which we may respond to His grace. Justification is by grace and is conditional: by grace through faith.
 
-### D. David&apos;s Testimony vs. 6&mdash;8
+### D. David&apos;s Testimony vs. 6—8
 
 Paul brings testimony from David to support the message of justification by faith.
 
 David was esteemed by the Jews as their great king. This quotation from the Psalms confirms that men are only justified by faith and not works.
 
-> Psalms 32:1&mdash;2&mdash;A Psalm of David, Maschil. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity, and in whose spirit there is no guile.
+> Psalms 32:1—2—A Psalm of David, Maschil. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity, and in whose spirit there is no guile.
 
 David was thanking God that His sin was forgiven and the sin was not put to his account. If sin was not imputed to him and his sin was forgiven this means he was restored to a right relationship with God.
 
@@ -2479,7 +2479,7 @@ Justification is the Divine action of being placed in a right relationship with 
 <!-- -- -- -->
 <!-- -- -- -->
 <!-- -- -- -->
-## II. Abraham was justified by Grace and not Circumcision. &mdash; Vs 9&mdash;17
+## II. Abraham was justified by Grace and not Circumcision. — Vs 9—17
 
 The Jews looked to circumcision and the Law as their source of righteousness. Abraham was justified before he received the covenant of circumcision. He was counted as righteous in chapter 15 and he was 86 in chapter 16 when Ishmael was born. Genesis 17:24 records Abraham was circumcised when he was 99 years old. It is quite clear that he was justified before he was circumcised. This passage is telling the Jews that Abraham was counted as righteous before he received the covenant of circumcision.
 
@@ -2489,20 +2489,20 @@ Abraham was counted as righteous by Grace totally separate from the Law. He was 
 
 Abraham could not have earned any justification through keeping the Law since it had not yet been given to Moses. The Jews put so much emphasis on the Law; Paul is showing them that the Law had nothing to do with Abraham being counted as righteous.
 
-The Law gives knowledge of sin. &mdash; V.15 For where there is no law there is no transgression refers to the fact that if there were no law then there would be no law to break. This also must have reference to the moral law as well as Moses Law.
+The Law gives knowledge of sin. — V.15 For where there is no law there is no transgression refers to the fact that if there were no law then there would be no law to break. This also must have reference to the moral law as well as Moses Law.
 Abraham was justified by faith through grace. V.16 If he was not justified by the works of the law then the only alternative is that he was declared righteous by the grace of God. He did not earn justification; it was given to him without merit because of his faith.
 
-He received the promise that he should be the heir of the world through the righteousness of faith. &mdash; V. 13 The righteousness of faith is in reference to justification by faith. Justification is the declaration of righteousness by faith. Abraham did nothing to receive the promise; it was given to him by grace.
+He received the promise that he should be the heir of the world through the righteousness of faith. — V. 13 The righteousness of faith is in reference to justification by faith. Justification is the declaration of righteousness by faith. Abraham did nothing to receive the promise; it was given to him by grace.
 
-The promise was to make of him a great nation and from his seed would all nations of the world be blessed. &mdash; Gen. 12:1&mdash;3 This is a prophecy of the nation of Israel that would descend from Abraham. Even more important it is a promise of the Messiah that would come to provide salvation to all both Jew and Gentile.
+The promise was to make of him a great nation and from his seed would all nations of the world be blessed. — Gen. 12:1—3 This is a prophecy of the nation of Israel that would descend from Abraham. Even more important it is a promise of the Messiah that would come to provide salvation to all both Jew and Gentile.
 
-The Jew looked for an earthly inheritance. In the minds of most of the Jews, the Messiah would overthrow the Romans and re&mdash;establish the nation of Israel. Paul is showing them the provision of righteousness available not just to the Jew, but to the entire world through Jesus the Messiah.
+The Jew looked for an earthly inheritance. In the minds of most of the Jews, the Messiah would overthrow the Romans and re—establish the nation of Israel. Paul is showing them the provision of righteousness available not just to the Jew, but to the entire world through Jesus the Messiah.
 
 <!--
 
 Review and glean:
 
-A.	IT IS OF FAITH THAT IT MIGHT BE BY GRACE &mdash; 4:1&mdash;25
+A.	IT IS OF FAITH THAT IT MIGHT BE BY GRACE — 4:1—25
 
 	Romans chapter four deals with Abraham&apos;s Righteousness. Abraham is an example of justification by faith. Paul uses Abraham&apos;s life to explain the doctrine of righteousness by faith. Abraham&apos;s Faith is recorded.
 Abraham is mentioned as our Father (1:1; 1:12; 1:17)
@@ -2516,15 +2516,15 @@ Abraham is used to support Paul&apos;s doctrine.
 3.	Covenant with Abraham extended beyond Mosaic covenant of works.
 4.	Covenant of Grace precedes covenant of works.
 5.	Whole chapter is occupied with God&apos;s dealing with Abraham.
-Paul&apos;s arguments are presented. (Verses 1&mdash;25)
+Paul&apos;s arguments are presented. (Verses 1—25)
 1.	Righteousness is by faith.
 2.	Righteousness is not obtained by works.
 3.	It is not acquired by circumcision.
-4.	You cannot gain it through adherence of the law. 4:13&mdash;17
+4.	You cannot gain it through adherence of the law. 4:13—17
 5.	Abraham&apos;s faith shows us an example that we must follow.
 6.	Paul reasoned that righteousness by faith is the only way to please God.
 
-1.	Justification by Faith is illustrated in the life of Abraham. Vs. 1&mdash;8
+1.	Justification by Faith is illustrated in the life of Abraham. Vs. 1—8
 
 Question: What shall we say then that Abraham our father, as pertaining to the flesh, hath found? v.1
 Answer: For the promise, that he should be the heir of the world, was not to Abraham, or to his seed, through the law, but through the righteousness of faith. v.13
@@ -2542,41 +2542,41 @@ Abraham was justified by faith and not by works.
 Genesis 15:6 And he believed in the LORD; and he counted it to him for righteousness
 	This is a passage the Jews would have been well familiar with. Paul is using their own Scriptures to preach to the Jews justification by faith. The word counted carries the same meaning in Hebrew as it does on Greek. Righteousness was put to his account by faith. This is the meaning of Justification. Abraham was justified by faith the same way the Christians are today. God gave Abraham a promise; he believed God and it was counted unto him for righteousness.
 4)	God justifies the ungodly. V. 5
-	 Those who are not born&mdash;again are sinners and ungodly. The repentant sinner is declared righteous by God through the blood of Jesus. The ungodly do nothing to earn their salvation. They are justified totally by faith.
+	 Those who are not born—again are sinners and ungodly. The repentant sinner is declared righteous by God through the blood of Jesus. The ungodly do nothing to earn their salvation. They are justified totally by faith.
 
 David is called as a witness for justification by faith.
 Paul brings testimony from David to support the message of 	justification by faith.
 	 David was esteemed by the Jews as their great king. This quotation from the Psalms confirms that men are only justified by faith and not works.
-Psalms 32:1&mdash;2 A Psalm of David, Maschil. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity, and in whose spirit there is no guile.
+Psalms 32:1—2 A Psalm of David, Maschil. Blessed is he whose transgression is forgiven, whose sin is covered. Blessed is the man unto whom the LORD imputeth not iniquity, and in whose spirit there is no guile.
 David was thanking God that His sin was forgiven and the sin was 	not put to his account. If sin was not imputed to him and his sin was forgiven this means he was restored to a right relationship with God. Justification is the Divine action of being placed in a right relationship with God through Jesus. David did not earn justification it was received by faith.
 
-Abraham was justified by Grace. Vs 9&mdash;17
+Abraham was justified by Grace. Vs 9—17
 
-The Jews looked to circumcision and the Law as their source of righteousness Abraham was justified before he received the covenant of circumcision. He was counted as righteous in chapter 15 and he was 86 in chapter 16 when Ishmael was born. Chapter 17 records Abraham was circumcised when he was 99 years old.&mdash; Gen. 17: 24. It is quite clear that he was justified before he was circumcised. This passage is telling the Jews that Abraham was counted as righteous before he received the covenant of circumcision.
+The Jews looked to circumcision and the Law as their source of righteousness Abraham was justified before he received the covenant of circumcision. He was counted as righteous in chapter 15 and he was 86 in chapter 16 when Ishmael was born. Chapter 17 records Abraham was circumcised when he was 99 years old.— Gen. 17: 24. It is quite clear that he was justified before he was circumcised. This passage is telling the Jews that Abraham was counted as righteous before he received the covenant of circumcision.
 Circumcision did not justify Abraham. Circumcision was given as a sign of the promise. It was given as a seal of the righteousness of faith. It is a symbol of the cutting away of the flesh. There is no power of righteousness in a physical action. This is merely a sign of the work of God in much the same way that baptism is a sign of a completed work.
 Abraham was counted as righteous by Grace totally separate from the Law. He was justified before the Law was given. This is further indication that he could not have been justified by the Law.
 Abraham could not have earned any justification through keeping the Law since it had not yet been given to Moses. The Jews put so much emphasis on the Law; Paul is showing them that the Law had nothing to do with Abraham being counted as righteous.
 The Law gives knowledge of sin. V.15 For where there is no law there is no transgression refers to the fact that if there were no law then there would be no law to break. This also must have reference to the moral law as well as Moses Law.
 Abraham was justified by faith through grace. V.16 If he was not justified by the works of the law then the only alternative is that he was declared righteous by the grace of God. He did not earn justification; it was given to him without merit because of his faith.
 He received the promise that he should be the heir of the world through 	the righteousness of faith. V. 13 The righteousness of faith is in reference to justification by faith. Justification is the declaration of righteousness by faith. Abraham did nothing to receive the promise; it was given to him by grace.
-The promise was to make of him a great nation and from his seed 	would all nations of the world be blessed. Gen. 12:1&mdash;3 This is a prophecy of the nation of Israel that would descend from Abraham. Even more important it is a promise of the Messiah that would come to provide salvation to all both Jew and Gentile.
- The Jew looked for an earthly inheritance. In the minds of most of the Jews, the Messiah would overthrow the Romans and re&mdash;establish the nation of Israel. Paul is showing them the provision of righteousness available not just to the Jew, but to the entire world through Jesus the Messiah.
+The promise was to make of him a great nation and from his seed 	would all nations of the world be blessed. Gen. 12:1—3 This is a prophecy of the nation of Israel that would descend from Abraham. Even more important it is a promise of the Messiah that would come to provide salvation to all both Jew and Gentile.
+ The Jew looked for an earthly inheritance. In the minds of most of the Jews, the Messiah would overthrow the Romans and re—establish the nation of Israel. Paul is showing them the provision of righteousness available not just to the Jew, but to the entire world through Jesus the Messiah.
 
-God will fulfill His PromiseVs.18&mdash;25
+God will fulfill His PromiseVs.18—25
 
 Abraham was given the promise of God. God promised Abraham he would have a son. Also, the Messiah would be a son of Abraham. Jesus fulfilled prophecy and was born according to his natural lineage as a descendant of Abraham.
 Man has received the promise of justification by faith through Jesus Christ.
 Abraham believed the promise of God. Against hope believed in hope.
-	Abraham believed in the promise of God regardless of the circumstances. Sarah was about 90 and Abraham was more than 100 years old. There was no natural way possible for them to have a child. Abraham staggered not at the promise of God. &mdash; V.20
+	Abraham believed in the promise of God regardless of the circumstances. Sarah was about 90 and Abraham was more than 100 years old. There was no natural way possible for them to have a child. Abraham staggered not at the promise of God. — V.20
 Justification is a Divine activity. Man cannot justify himself any more than Abraham could produce a son. Justification is a work of God bestowed by grace in response to faith.
 -->
-## God will Fulfill His Promise (4:18-25)
+## God will Fulfill His Promise (4:18—25)
 
-### The Promise to Abraham (vs. 18-22)
+### The Promise to Abraham (vs. 18—22)
 
 Abraham was given the promise of God. God promised Abraham he would have a son. Also, the Messiah would be a son of Abraham. Jesus fulfilled prophecy and was born according to his natural lineage as a descendant of Abraham. 
 
-### The Promise of Justification (v. 23-24)
+### The Promise of Justification (v. 23—24)
 
 ### The Condition of Justification (v. 24)
 
@@ -2599,7 +2599,7 @@ The following arguments are presented:
 1. Justification/Righteousness is by faith.
 2. Justification/Righteousness is not obtained by works.
 3. Justification/Righteousness is not acquired by circumcision.
-4. You cannot gain Justification/Righteousness through adherence of the law. 4:13-17
+4. You cannot gain Justification/Righteousness through adherence of the law. 4:13—17
 5. Abraham's faith shows us an example that we must follow.
 6. Paul reasoned that Justification/Righteousness by faith is the only way to please God.# Grace Reigns "THROUGH OUR LORD JESUS CHRIST" (chapter 5)
 
@@ -2904,11 +2904,11 @@ The law reveals the effect of sin. The effect of all sin is a spiritual death. T
 
 #### The law reveals the sinfulness of sin (v. 12–13)
 
-The Law is Holy, Just and good, so as the standard, the plumb-line, the commandment shows us where and what we are in the sight of God; sin is shown for what it is "exceeding sinful". Far off from the mark that God has set for us in Christ. Its purpose is to convict the sinner of sin and only through Christ find repentance. It condemns, convicts, constrains, and conducts an awakened sinner to Christ (3:19, 23; 7:8–11; 8:3; Gal.3:19–24). Sin can hide in society of men comparing one with another or else judging merely by the dictates of there own heart, but in the light of perfect holiness, sin becomes "exceedingly sinful."## Paul's captivity to the law of sin (v. 14-25)
+The Law is Holy, Just and good, so as the standard, the plumb-line, the commandment shows us where and what we are in the sight of God; sin is shown for what it is "exceeding sinful". Far off from the mark that God has set for us in Christ. Its purpose is to convict the sinner of sin and only through Christ find repentance. It condemns, convicts, constrains, and conducts an awakened sinner to Christ (3:19, 23; 7:8–11; 8:3; Gal.3:19–24). Sin can hide in society of men comparing one with another or else judging merely by the dictates of there own heart, but in the light of perfect holiness, sin becomes "exceedingly sinful."## Paul's captivity to the law of sin (v. 14—25)
 
-In Romans 7:14-25, Paul brings us to the root of the struggle; the cause of our constant defeat by sin is our own flesh, the "body of this death" (v. 24).
+In Romans 7:14—25, Paul brings us to the root of the struggle; the cause of our constant defeat by sin is our own flesh, the "body of this death" (v. 24).
 
-Every believer is privileged, enabled and obligated to live a holy life. For those resting in the law for justification and sanctification, it is necessary to convince them of their error. The law is insufficient for for these but grace through Jesus Christ is sufficient. A believing Jew is discharged from his obligations to the ceremonial rituals of the law, and is at liberty to come under the gospel of God through Jesus Christ our Lord and Savior (v. 1-4).
+Every believer is privileged, enabled and obligated to live a holy life. For those resting in the law for justification and sanctification, it is necessary to convince them of their error. The law is insufficient for for these but grace through Jesus Christ is sufficient. A believing Jew is discharged from his obligations to the ceremonial rituals of the law, and is at liberty to come under the gospel of God through Jesus Christ our Lord and Savior (v. 1—4).
 
 ### The "I's" in this section
 
@@ -2937,11 +2937,11 @@ The emphasis on self profoundly exhibits the inability of the flesh. Paul in his
 
 The 2 words in the Greek for carnal. One implies that which is purely material, and the other implies that which is ethical. The first suggests man's nature as weak, and the second suggests man's character as sinful.
 
-#### The Second Confession: "In my flesh dwelleth no good thing." (v. 18-20)
+#### The Second Confession: "In my flesh dwelleth no good thing." (v. 18—20)
 
 Here we see Paul describing a struggle. In him so far as his person was carnal, there dwelt no good thing because of the influence of sin.
 
-#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21-25)
+#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21—25)
 
 He is ever conscious of moral contraction and conflict within. He has a desire to do good and yet an evil is always present.
 
@@ -2949,7 +2949,7 @@ He is ever conscious of moral contraction and conflict within. He has a desire t
 
 On the one hand the inward man is delighted in God's law. On the other hand he saw a different law in his members warring against the law of his mind and bringing him into a spiritual bondage. **NOTE**: The "inward man" is not the same as "the new man", nor is the mind ever used of the renewed nature. It is the immaterial part of man.
 
-### There are four laws mentioned in verses 21-22
+### There are four laws mentioned in verses 21—22
 
 1. Law of God (moral law - written or unwritten)
 2. Law of sin (reigns since fall of man)
@@ -2970,7 +2970,7 @@ The body of this death—what a fearful description of the body! It is unredeeme
 
 > Romans 6:14—For sin shall not have dominion over you: for ye are not under the law, but under grace.
 
-Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:13; 2 Peter 2:20; 1 John 2:13; Col 3:1-3). Our mind does not have to be captive to sin (Romans 12:2). Verse 25 says, "I thank God, (for deliverance) through Jesus Christ our Lord." In summary, Paul discovered:
+Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:13; 2 Peter 2:20; 1 John 2:13; Col 3:1—3). Our mind does not have to be captive to sin (Romans 12:2). Verse 25 says, "I thank God, (for deliverance) through Jesus Christ our Lord." In summary, Paul discovered:
 
 1. That sin dwelt in him, even though he delighted in God's law.
 2. That his will was powerless against it.
@@ -2981,11 +2981,11 @@ Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:
 
 ### Outline
 
-* Those in Christ are no longer condemned (v. 1-9)
-* Those in Christ have received the Spirit of adoption (v. 10-16)
-* Those in Christ patiently wait for the adoption (v. 17-25)
-* Those in Christ will be glorified through the ministry of the Holy Ghost (v. 26-30)
-* Those in Christ have God as their advocate (v. 31-39)
+* Those in Christ are no longer condemned (v. 1—9)
+* Those in Christ have received the Spirit of adoption (v. 10—16)
+* Those in Christ patiently wait for the adoption (v. 17—25)
+* Those in Christ will be glorified through the ministry of the Holy Ghost (v. 26—30)
+* Those in Christ have God as their advocate (v. 31—39)
 
 ### Summary
 
@@ -3000,7 +3000,7 @@ What does it mean to be in Christ?
 * Those in Christ cannot be separated from the Love of God (v. 39)
 * Those in Christ are of one body and each one members one of another (12:5; 1 Cor. 16:24)
 * Those in Christ develop from as a babe to fully mature (1 Cor. 3:1)
-* Those in Christ and who die (sleep) have the hope of Resurrection (1 Cor. 15:17-20)
+* Those in Christ and who die (sleep) have the hope of Resurrection (1 Cor. 15:17—20)
 * Those in Christ have victory in God (2 Cor. 2:14)
 * Those in Christ are new creatures (2 Cor. 5:17; Gal. 6:15)
 * Those in Christ are reconciled to God (2 Cor. 5:19)
@@ -3011,8 +3011,8 @@ What does it mean to be in Christ?
 * Those in Christ are made to sit together in Heavenly places (Eph. 2:6)
 * Those in Christ are created unto good works (Eph. 2:10)
 
-To be in Christ is to be grafted into the true vine. His life flows into us and what it is His is ours. God the Father views those in His Son as He views the only begotten–heirs of God. In Christ, we do not struggle against the flesh and sin alone, and have not received alone the remission of sin, but have received Christ Himself. The Believer is in Christ and Christ is in them (11:16-18).
-## Those in Christ are no longer condemned (v. 1-9)
+To be in Christ is to be grafted into the true vine. His life flows into us and what it is His is ours. God the Father views those in His Son as He views the only begotten–heirs of God. In Christ, we do not struggle against the flesh and sin alone, and have not received alone the remission of sin, but have received Christ Himself. The Believer is in Christ and Christ is in them (11:16—18).
+## Those in Christ are no longer condemned (v. 1—9)
 
 ### They walk in liberty with no condemnation (v. 1)
 
@@ -3020,13 +3020,13 @@ The deliverance Paul cried for in 7:24 is announced in 8:1. The quality of life 
 
 ### They walk not after the flesh but after the Spirit
 
-The righteousness of the law is fulfilled in us through following Christ by the leading of the Holy Ghost. There are two ways to walk the path of life: 1) following after the flesh 2) following after the Spirit of God. My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16-26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
+The righteousness of the law is fulfilled in us through following Christ by the leading of the Holy Ghost. There are two ways to walk the path of life: 1) following after the flesh 2) following after the Spirit of God. My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16—26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
 
-### They walk according to a new law (v. 2-3)
+### They walk according to a new law (v. 2—3)
 
 #### There are three laws mentioned here
 
-1. **The law of sin and death**. It is like the law of gravity always pulling you down. It opposes that which is good and godly. It brings you into bondage and condemnation. Bondage to sin makes you a servant to Satan. Serving the law of sin brings death. (7:22-23)
+1. **The law of sin and death**. It is like the law of gravity always pulling you down. It opposes that which is good and godly. It brings you into bondage and condemnation. Bondage to sin makes you a servant to Satan. Serving the law of sin brings death. (7:22—23)
 2. **The law of God** (given Through Moses). It is Righteous, good and Holy. It opposes sin and the works of the flesh. It brings you to conviction and decision. The law being weak cannot save but does point to Christ.
 3. **The law of the Spirit of life**. This law is greater than the law of sin and death. It is the life of Jesus imparted to the believer by faith. Liberty is man's born again state—free to serve the Lord Jesus Christ. Serving the Lord brings more abundant life. Every Believer must manifest the Life of Jesus more and more.
 
@@ -3038,7 +3038,7 @@ It provides justification where the old law only condemned. It works liberty whe
 
 It is fulfilled in the one that walks not after the flesh, but after the Spirit. If the Spirit of God dwell in you then His life is fulfilled in you. You no longer try to serve God in the flesh, but you have the Spirit of Christ to inspire and insure life. This life is not your own, but is Christ's life (Gal. 2:20). This life is not debtor to the flesh, but to God to serve Him and obey Him (v. 12). This life is fulfilled in mortifying carnal deeds of the flesh (v. 13).
 
-### They walk with a new mind (v. 5-6) 
+### They walk with a new mind (v. 5—6) 
 
 Those in Christ do things differently—both actions and thoughts. They walk following after the Spirit of God. Walking after the Spirit also includes minding the things of the Spirit. The Spirit of God will lead us to life, but the flesh will lead to death and self-destruction.
 
@@ -3072,7 +3072,7 @@ Are we all God's children? All people are God's creation, but only those born ag
 
 #### The Spirit gives adoption (v. 15)
 
-#### The Spirit gives witness (v. 16)## Patiently wait for the adoption (v. 17-25)
+#### The Spirit gives witness (v. 16)## Patiently wait for the adoption (v. 17—25)
 
 The believer has great things to look forward to in God. God has done great things in and for the believer and there is yet a redemption that we patiently wait for in hope or faith! What does the believer have to look forward to?
 
@@ -3082,9 +3082,9 @@ The believer receives the privileges and inheritance of a son because he shares 
 
 ### Suffering unto Glorification (v. 17b-18) 
 
-Trials prove the true character of the Christian. And although the suffering is not glorious, Paul brings our attention to glory that will follow. The Christian has hope in suffering, for if we suffer, we shall also reign. Christ is our example of suffering (1 Pet. 2:21; Heb. 2:10; 5:8-9; 1 Pet. 4:1; James 5:10).
+Trials prove the true character of the Christian. And although the suffering is not glorious, Paul brings our attention to glory that will follow. The Christian has hope in suffering, for if we suffer, we shall also reign. Christ is our example of suffering (1 Pet. 2:21; Heb. 2:10; 5:8—9; 1 Pet. 4:1; James 5:10).
 
-### The creature waits for the manifestation of the sons of God (v. 19-22)
+### The creature waits for the manifestation of the sons of God (v. 19—22)
 
 God has a vast plan and Hope lies ahead for Creation. In bondage because sin is in the world, but there will be a deliverance!## Will be glorified through the ministry of the Holy Ghost (v. 26–30)
 
@@ -3113,19 +3113,19 @@ The end of the chapter deals with the Christian's hope, which is "If God be for 
 
 ## Conclusion
 
-The two fold secret of Christian living is described by two phrases in verse 1 and verse 10: "in Christ Jesus" and "if Christ be in you." The Christian's will is to live in Christ an life pleasing to God. The Holy Spirit dwells in us, empowering us to live such a life.# ROMANS CHAPTERS 9-11
+The two fold secret of Christian living is described by two phrases in verse 1 and verse 10: "in Christ Jesus" and "if Christ be in you." The Christian's will is to live in Christ an life pleasing to God. The Holy Spirit dwells in us, empowering us to live such a life.# ROMANS CHAPTERS 9—11
 
-## Introduction to Romans 9-11
+## Introduction to Romans 9—11
 
 ### The Theme
 
 Remember the Structure of Romans?
 
-- Introduction ----------------- 1:1-17
-- DIVISION ONE:	Doctrinal ------ 1:18-8:29
-- DIVISION TWO: Dispensational - 9:1-11:26
-- DIVISION THREE: Practical ---- 12:1-15:33
-- Conclusion ------------------- 16:1-2
+- Introduction ----------------- 1:1—17
+- DIVISION ONE:	Doctrinal ------ 1:18—8:29
+- DIVISION TWO: Dispensational - 9:1—11:26
+- DIVISION THREE: Practical ---- 12:1—15:33
+- Conclusion ------------------- 16:1—2
 
 Romans 9 Begins a the second of three major divisions to the Book of Romans. Chapter 8 concluded Division 1 which is primarily Doctrinal and Chapter 9 begins with Division 2 which is largely Dispensational.
 
@@ -3135,24 +3135,24 @@ The Theme of this second Division is Dispensational in regards to Israel specifi
 
 ## The Structure
 
-1. The Sorrow of the Apostle at Israel's Rejection (9:1-5)
-2. The Rejection of Israel and God's Sovereignty (9:6-29)
-3. The Rejection of Israel and Human Responsibility (9:30-10:21)
-4. The Rejection of Israel and God's Purpose for their Future (11:1-32)
-5. The Apostle's Words of Praise of God (11:33-36)
-# The Sorrow of the Apostle at Israel's Rejection (9:1-5)
+1. The Sorrow of the Apostle at Israel's Rejection (9:1—5)
+2. The Rejection of Israel and God's Sovereignty (9:6—29)
+3. The Rejection of Israel and Human Responsibility (9:30—10:21)
+4. The Rejection of Israel and God's Purpose for their Future (11:1—32)
+5. The Apostle's Words of Praise of God (11:33—36)
+# The Sorrow of the Apostle at Israel's Rejection (9:1—5)
 
-Romans chapter nine talks about Paul's sorrow for the Jews. We find out that not all of Abraham's seed were the children of promise (9:7-8).
+Romans chapter nine talks about Paul's sorrow for the Jews. We find out that not all of Abraham's seed were the children of promise (9:7—8).
 
 ## The Sincerity of his feeling (1)
 
 Paul's Sorrow for the Lost was Sincere and Divinely Inspired.
 
-## The Intensity of his feeling (2-3a)
+## The Intensity of his feeling (2—3a)
 
 **Paul carried the burden!** His Sorrow was intense.
 
-Paul has experienced great heaviness in sorrowing over Israel's condition as a whole. Paul comes to the place that he would even be willing to be accursed from Christ that his brethren might be found in Christ. This is a selfless declaration, but the proposition is not even possible. The sinner's light in their darkness is the justified, sanctified, holy life of Believers that walk consistently in Christ and their own salvation is in Christ alone. Paul's proclamation is reminiscent of Moses in Exodus 32:32-33.
+Paul has experienced great heaviness in sorrowing over Israel's condition as a whole. Paul comes to the place that he would even be willing to be accursed from Christ that his brethren might be found in Christ. This is a selfless declaration, but the proposition is not even possible. The sinner's light in their darkness is the justified, sanctified, holy life of Believers that walk consistently in Christ and their own salvation is in Christ alone. Paul's proclamation is reminiscent of Moses in Exodus 32:32—33.
 
 ## The Basis of his feeling (3b-5)
 
@@ -3167,32 +3167,32 @@ Paul has great sorrow for unbelieving Israel. Their unbelief is especially dishe
 7. **FATHERS** - Relationship to the Father (Fathers of the flesh)
 8. **MESSIAH OF ISRAEL**
 
-Christ is a rock of stumbling to the Jew (Gal. 5:6; John 14:15; 1 Peter 2:7-8).
+Christ is a rock of stumbling to the Jew (Gal. 5:6; John 14:15; 1 Peter 2:7—8).
 
 ## The Righteousness of his Feeling
 
-Paul makes it clear that his intense and sincere desire is all Israel be saved (Romans 9:1-5; 11:26; 10:1). God desires that all sinners be saved (1 Timothy 2:4; 2 Peter 3:9; Ezekiel 18:23; Matthew 23:37). Paul is righteous in his desire and not contrary to mind and will of God.
-# The Rejection of Israel and God's Sovereignty (9:6-29)
+Paul makes it clear that his intense and sincere desire is all Israel be saved (Romans 9:1—5; 11:26; 10:1). God desires that all sinners be saved (1 Timothy 2:4; 2 Peter 3:9; Ezekiel 18:23; Matthew 23:37). Paul is righteous in his desire and not contrary to mind and will of God.
+# The Rejection of Israel and God's Sovereignty (9:6—29)
 
-## The True Israel is According to the Promise (v. 6-10)
+## The True Israel is According to the Promise (v. 6—10)
 
 The majority of Israel has missed the point. Christ is the fulfillment of the law, but Israel stumbles over him as if a stone and hold to their laws and religion. They think they are the children of God because they are the children of Abraham and Isaac and that they are the ones to whom the law was revealed.
 
 The fact that the Jews as a nation rejected the Messiah (Christ) raises the question "Did the Word of God fail?" "Did God fail to carry out His promises?" How does Paul answer these questions? In these next verses Paul is confident that Israel's rejection of the gospel is not unanimous and not permanent—God is able to graft back in again!
 
-The real Israel is the elect, not a natural seed. We see the plan of God as it unfolds. Not everyone that is born a part of the nationality of Israel are a part of Spiritual Israel. The children of the Israel are only children of the flesh, but the children of the promise are the children of God. (John 3:6 "born of the Spirit"). The New Testament Church is referred to as "the Israel of God" (Galatians 6:16) because of their faith in God and His Son, Jesus Christ—not because of their family lineage (10:1-4).
+The real Israel is the elect, not a natural seed. We see the plan of God as it unfolds. Not everyone that is born a part of the nationality of Israel are a part of Spiritual Israel. The children of the Israel are only children of the flesh, but the children of the promise are the children of God. (John 3:6 "born of the Spirit"). The New Testament Church is referred to as "the Israel of God" (Galatians 6:16) because of their faith in God and His Son, Jesus Christ—not because of their family lineage (10:1—4).
 
-## Election or Predestination is Not of Works of Him that Calleth (v. 11-13)
+## Election or Predestination is Not of Works of Him that Calleth (v. 11—13)
 
 Election is mentioned in verse eleven. Election or predestination is not an unrighteous act for God may justify whom He may and condemn whom he desires. All the good works of men cannot make them children of the promise, but that condition is dependent upon God showing mercy.
 
 It is important to understand from Scripture how predestination or election works. Predestination and election is based upon God's foreknowledge. He knows the end from the beginning He knows who will receive and who will reject before they are even born (8:29). Some are given 100 years and others only a few. It is man's responsibility to respond in the time of mercy for turning to God cannot happen just on a man's whim, but he must be drawn by the Father (John 6:44).
 
-## God is Righteous in Mercy and Hardening (v. 14-18)
+## God is Righteous in Mercy and Hardening (v. 14—18)
 
 How is God's sovereignty expressed? God is a sovereign God so therefore he is also a just God.
 
-## Clay in the Potters Hand (vs. 19-24)
+## Clay in the Potters Hand (vs. 19—24)
 
 ### God is Just (v. 19)
 
@@ -3203,13 +3203,13 @@ How is God's sovereignty expressed? God is a sovereign God so therefore he is al
 ### God is Right
 
 - Hypothetical "A" v.22
-- Hypothetical "B" vs.23-24
+- Hypothetical "B" vs.23—24
 
-Note well the word afore. For the whole process of our salvation is viewed from that blessed future day when we shall enter, through divine mercy, into that glory which God afore appointed us. 24 Even us, whom he hath called, not of the Jews only, but also of the Gentiles? (2 Timothy 2:20-21; 1 Peter 5:8; Matthew 25:1-10; Galatians 5:4)
+Note well the word afore. For the whole process of our salvation is viewed from that blessed future day when we shall enter, through divine mercy, into that glory which God afore appointed us. 24 Even us, whom he hath called, not of the Jews only, but also of the Gentiles? (2 Timothy 2:20—21; 1 Peter 5:8; Matthew 25:1—10; Galatians 5:4)
 
-## The Calling of God's People, v. 25-29
+## The Calling of God's People, v. 25—29
 
-In verse 25 Paul, takes from the prophet Hosea (2:23) a passage that is specifically spoken to Israel, but has not found a fulfillment in Israel but rather is seen fulfilled in the Gentiles receiving the Gospel. The sentences in the latter part of this verse are very abrupt, but exceedingly expressive; leaving out those words supplied by the translators: I will say to NOT MY PEOPLE, THOU MY PEOPLE; and they shall say, MY GOD (1 Peter 2:9-10).
+In verse 25 Paul, takes from the prophet Hosea (2:23) a passage that is specifically spoken to Israel, but has not found a fulfillment in Israel but rather is seen fulfilled in the Gentiles receiving the Gospel. The sentences in the latter part of this verse are very abrupt, but exceedingly expressive; leaving out those words supplied by the translators: I will say to NOT MY PEOPLE, THOU MY PEOPLE; and they shall say, MY GOD (1 Peter 2:9—10).
 
 In verse 26, we see the Gentile people. God's infinite grace takes up those who were once called "dogs" (Matthew 15:26) and gives them a heavenly calling "Called to be children of the living God."
 
@@ -3218,9 +3218,9 @@ In verse 27 the apostle quotes another prophet, Isaiah, concerning a remnant (Is
 The ways of God are not our ways. He waits long - He forbears - He is silent: then suddenly puts into execution an eternally formed purpose.
 
 Verse 29 is a quote from Isaiah 1:9 shows that if God had not intervened by his grace, they would have all become as Sodom and Gomorrah (2 Thessalonians 2:7).
-# The Rejection of Israel and Human Responsibility (9:30-10:21)
+# The Rejection of Israel and Human Responsibility (9:30—10:21)
 
-## Stumbling and Overcoming: The Conclusion of Chapter 9 (9:30-33)
+## Stumbling and Overcoming: The Conclusion of Chapter 9 (9:30—33)
 
 ### Righteousness Through Faith (9:30)
 
@@ -3240,68 +3240,68 @@ They stumbled over the rock of offense. They stumbled over Jesus. NOTE: The only
 
 What is the message of the Gospel that is open to all? "And whosoever believeth on him shall not be ashamed." God's mercy is illustrated by His dealings with both Jew and Gentile. Humility and awe are the proper attitudes for both Jew and Gentile who experience the mercy and kindness of God. Whether a man is a Jew or a Gentile, his salvation depends upon more or less than what he thinks and does with Jesus. Submission to God's way of righteousness by personal acknowledgement of Jesus as the risen Lord, brings a man into "Right standing with God."
 
-## Salvation for the Jews (10:1-21)
+## Salvation for the Jews (10:1—21)
 
 #### THEY ARE NOT SAVED (10:1)
 
-The Gospel is for the Jew (Rom. 1:16; 2:9-10). The Majority of the Jews rejected the Gospel (Acts 2:22). The first persecution of Christians organised by the Roman government took place under the emperor Nero in 64 AD after the Great Fire of Rome. So the first, perseuction of Christians was largely from the Jews (Acts 9:1-2).
+The Gospel is for the Jew (Rom. 1:16; 2:9—10). The Majority of the Jews rejected the Gospel (Acts 2:22). The first persecution of Christians organised by the Roman government took place under the emperor Nero in 64 AD after the Great Fire of Rome. So the first, perseuction of Christians was largely from the Jews (Acts 9:1—2).
 
 ### The Jews' zeal (10:2)
 
-The Pharisees: Minute Prescriptions added to the Law (Acts 23:6; 26:5; Php. 3:5-6). Paul does not ignore their efforts. He witnesses to their "zeal of God."
+The Pharisees: Minute Prescriptions added to the Law (Acts 23:6; 26:5; Php. 3:5—6). Paul does not ignore their efforts. He witnesses to their "zeal of God."
 
-### The Jews' ignorance (10:3-11)
+### The Jews' ignorance (10:3—11)
 
 They had a zeal of God, but were missing important truth: The Righteousness of God which is by faith. The Object of this faith is Jesus Christ the only begotton Son of God Who is the End of the Law Through Faith. This faith comes by the Word of God and does not require ascending to Heaven or Hell first, but is already nigh.
 
-### The Jews' path to God (10:12-15)
+### The Jews' path to God (10:12—15)
 
-### The Jew's Rejection of the Gospel (10:16-21)
+### The Jew's Rejection of the Gospel (10:16—21)
 
-**Read Isaiah 65:1-10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the DISCONNECT? "They have not obeyed or heeded the Gospel."
+**Read Isaiah 65:1—10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the DISCONNECT? "They have not obeyed or heeded the Gospel."
 
 * Did God send a preacher? YES (v. 19, 20, Moses, Isaiah, etc.)
 * Did the Preacher Preach? YES (v. 16, report or PREACHING)
 * Did the Audience Hear? YES (v. 18, Moses Foretold, Isaiah Foretold)
 
 The Hearers refused to believe. WE HAVE A RESPONSIBILITY IN GOD's PLAN OF REDEMPTION. God is using the Gentiles to provoke the Jew to Jealousy (10:19).
-# ROMANS CHAPTERS 9-11
+# ROMANS CHAPTERS 9—11
 
-## Review of the The Structure of Romans 9-11
+## Review of the The Structure of Romans 9—11
 
-1. The Sorrow of the Apostle at Israel's Rejection (9:1-5)
-2. The Rejection of Israel and God's Sovereignty (9:6-29)
-3. The Rejection of Israel and Human Responsibility (9:30-10:21)
-4. The Rejection of Israel and God's Purpose for their Future (11:1-32)
-5. The Apostle's Words of Praise of God (11:33-36)
+1. The Sorrow of the Apostle at Israel's Rejection (9:1—5)
+2. The Rejection of Israel and God's Sovereignty (9:6—29)
+3. The Rejection of Israel and Human Responsibility (9:30—10:21)
+4. The Rejection of Israel and God's Purpose for their Future (11:1—32)
+5. The Apostle's Words of Praise of God (11:33—36)
 
-## The Rejection of Israel and God's Purpose for their Future (11:1-32)
+## The Rejection of Israel and God's Purpose for their Future (11:1—32)
 
-### Israel's Rejection is not Universal (11:1-10)
+### Israel's Rejection is not Universal (11:1—10)
 
 The Rejection is of the UNBELIEVING Jew (Acts 14:2; Rev. 21:8).
 
-### The Blinding is Purposeful and Does not Have to be Permanent (11:11-21)
+### The Blinding is Purposeful and Does not Have to be Permanent (11:11—21)
 
-### God's Will is to Have Mercy Upon All (11:22-32)
+### God's Will is to Have Mercy Upon All (11:22—32)
 
 > "By rejecting the gospel, and by their indignation at its being preached to the Gentiles, the Jews were become enemies to God."  
 > —Matthew Henry
 
-God's Mercy (Ps 13:5; 89:2; James 5:11).## The apostle's words of praise of God (11:33-36)
+God's Mercy (Ps 13:5; 89:2; James 5:11).## The apostle's words of praise of God (11:33—36)
 
 > A solemn adoring of the wisdom, goodness, and justice of God.  
 > —Matthew Henry# A living sacrifice (chapter 12)
 
 ## Introduction
 
-Romans chapters 12-16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
+Romans chapters 12—16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
 
 Romans chapter twelve deals with the Christian's duties, which ultimately leads to a surrendered life. The church is compared to the human body. There should be unity among the body, if there is no unity, the body will not function properly. This chapter also deals with the different duties of the church. This chapter ends with the Christian spirit. We are not to overcome but not with evil but we are to overcome with good.
 
-## The living sacrifice (v. 1-2) 
+## The living sacrifice (v. 1—2) 
 
-### Special words and phrases in verses 1-2
+### Special words and phrases in verses 1—2
 
 Often times words lose their value with us with overuse. Let us look more closely at the vocabulary of the first two verses of this chapter that we may gain a deeper understanding of it:
 
@@ -3356,13 +3356,13 @@ The believer and his lifestyle is to be remarkably different than the world. The
 
 ### Renewed in the mind
 
-The renewing of the mind happens through the Word of God (Psalm 119:9, 105). It is a Work of the Holy Spirit. The entire mind must come under the spirits control (Ephesians 5:17-20—17). The renewed mind is the mind of Christ. It is not just a different mind or another mind, but the work of God in us produces the mind of Christ (Php. 2:5; 1 Cor. 2:14-16; Luke 19:10; 2 Tim. 1:7; John 8:50).
+The renewing of the mind happens through the Word of God (Psalm 119:9, 105). It is a Work of the Holy Spirit. The entire mind must come under the spirits control (Ephesians 5:17—20—17). The renewed mind is the mind of Christ. It is not just a different mind or another mind, but the work of God in us produces the mind of Christ (Php. 2:5; 1 Cor. 2:14—16; Luke 19:10; 2 Tim. 1:7; John 8:50).
 
-## The Christian's attitude toward other Christians (v. 3-8)
+## The Christian's attitude toward other Christians (v. 3—8)
 
 We are one body in Christ, with varying gifts. Everyone members one of another. What is the one possessing a gift supposed to do with it? The various gifts are bestowed by the Spirit. The working of the gifts are for prophecy, ministering, teaching, exhorting, etc. The possession of a gift is of no use unless it is put to use. It is the whole-hearted exercise of the gifts, when it is given, that is urged by the apostles. Gifts are a directly given of the Spirit. Faith is necessary to receive and use these gifts.
 
-## Commands to the believer (v. 9-21)
+## Commands to the believer (v. 9—21)
 
 ### Love truly (v. 9a)
 

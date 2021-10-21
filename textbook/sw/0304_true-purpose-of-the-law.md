@@ -1,6 +1,6 @@
-# Kusudi la kweli la sheria (mst. 20-30)
+# Kusudi la kweli la sheria (mst. 20—30)
 
-> WARUMI 3: *Kuhesabiwa ni kwa njia ya imani sio kwa matendo sheria. Sheria ni: faida kwa wale wanaoijua (mst. 1-2), ni halisi katika asili yake (mst. 3-8), haipindiki katika mamlaka yake (mst. 9-19), inayokusudi la pekee (mst. 20-30), sio kitu cha kuepuka bali zaidi imethibitishwa ndani ya mioyo yetu (mst. 31).* 
+> WARUMI 3: *Kuhesabiwa ni kwa njia ya imani sio kwa matendo sheria. Sheria ni: faida kwa wale wanaoijua (mst. 1—2), ni halisi katika asili yake (mst. 3—8), haipindiki katika mamlaka yake (mst. 9—19), inayokusudi la pekee (mst. 20—30), sio kitu cha kuepuka bali zaidi imethibitishwa ndani ya mioyo yetu (mst. 31).* 
 
 ## Sheria haijawahi kumhesabia haki mtu yeyote (mst. 20)
 
@@ -12,7 +12,7 @@ Mwenye mwili: ni mwili (ni kama kinyume cha nafsi (au roho)) ni ishara ya kile k
 
 ### Kujua dhambi ina umuhimu wa namna gani?
 
-## haki ya Mungu imedhihirishwa kwa wanadamu (mst. 21-23)
+## haki ya Mungu imedhihirishwa kwa wanadamu (mst. 21—23)
 
 ### Kudhihirisha ni kuonyesha au kutangaza (mst. 21)
 
@@ -24,7 +24,7 @@ Kuhesabiwa haki: kurudisha (kuonyesha au kujali) mwenye haki au asiye na hatia: 
 
 > Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi. —Wiersbe, W. W. (1996). The Bible Exposition Commentary
 
-Bado, Wokkovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki.
+Bado, Wokovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki.
 
 > War. 5:19—Kwa sababu kama kwa kuasi kwake mtu mmoja watu wengi waliingizwa katika hali ya wenye dhambi, kadhalika kwa kutii kwake mmoja watu wengi wameingizwa katika hali ya wenye haki.
 

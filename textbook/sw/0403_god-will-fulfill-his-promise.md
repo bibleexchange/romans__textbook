@@ -1,10 +1,10 @@
-## Mungu atatimiza ahadi yake (4:18-25)
+## Mungu atatimiza ahadi yake (4:18—25)
 
-### Ahadi kwa Ibrahimu (mst. 18-22)
+### Ahadi kwa Ibrahimu (mst. 18—22)
 
 Abrahamu alipewa ahadi ya Mungu. Mungu alimwahidi kuwa atakuwa na mwana. Pia Mesiha angekuwa mwana wa Ibrahimu. Yesu alitimiza unabii na aliziwa kulingana na ukoo wa mababu wa Abrahamu.
 
-### Ahadi ya kkuhesabiwa haki (mst. 23-24)
+### Ahadi ya kkuhesabiwa haki (mst. 23—24)
 
 ### Shariti la kuhesabiwa haki (mst. 24)
 
@@ -27,7 +27,7 @@ Zifuatazo ni hoja zilizo tolewa:
 1. Kuhessabiwa haki/haki ni kwa imani.
 2. Kuhessabiwa haki/haki haipatikani kwa matendo.
 3. Kuhessabiwa haki/haki haihitaji tohara.
-4. Huwezi kujipatia kuhesabiwa haki/kwa njia ya ufuasi wa sheria (4:13-17).
+4. Huwezi kujipatia kuhesabiwa haki/kwa njia ya ufuasi wa sheria (4:13—17).
 5. Imani ya Abrahimu inatuonyesha mfano ambao lazima tuufuate.
 6. Paulo alitoa hoja kwamba kuhesabiwa haki/haki kwa imani ndio njia pekee ya kumpendeza Mungu.
 

@@ -1,4 +1,4 @@
-## Utatukuzwa kwa njia ya huduma ya Roho Mtakatifu (mst. 26-30) 
+## Utatukuzwa kwa njia ya huduma ya Roho Mtakatifu (mst. 26—30) 
 
 ### Roho Mtakatifu anatusaidia katika udhaifu wetu (mst. 26)
  
@@ -12,11 +12,11 @@ Waeb. 7:25; I Yoh. 2:1; I Tim. 2:5
  
 Mungu huangalia utoaji wa huduma kwa watu wake (walioitwa). Hawa "walioitwa" sio tu kama wamealikwa, bali wameteuliwa. Hapa "kuitwa" ni alama ya kuchagua neema ya Mungu. Kama Mungu alivyo na uhuru, kama Mungu alivyo na kusud, atakuja kutuchukua. Kufanana kwa sura ya Mwana wake ni kusudi kubwa katika maisha ya Mkristo (mst. 29).
 
-## Tunaye Mungu aliye mtetezi wetu (mst. 31-39)
+## Tunaye Mungu aliye mtetezi wetu (mst. 31—39)
 
 Mwisho wa sura unahusu tumaini la Mkristo, ambaye ni "Mungu akiwa upande wetu ni nani atakayesimama ketu." Pia inahusiana na wazo sisi ni zaidi ya kushinda na hayo yote yanafanya kazi pamoja kwa wema. Tunaenda kuteswa kwa njia ya kutufundisha azimio.
 
-### Nguvu ya upendo wa Mungu (mst. 35-39)
+### Nguvu ya upendo wa Mungu (mst. 35—39)
  
 * Upendo wa Mungu hauathiriwi na hali iliyo kithiri — "Wala mauti wala uzima" (War. 14:8; Filp. 4:20, 21)
 * Upendo wa Mungu Hauathiriwi kwa nguvu za Roho — "Wala malaika, wala wenye mamlaka, wala wenye uwezo"

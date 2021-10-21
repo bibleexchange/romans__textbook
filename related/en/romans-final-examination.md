@@ -39,7 +39,7 @@ Circle the correct answer.
 
 Fill in the blanks.
 
-## Romans was written from **Corinth** around **57-58** AD. (Chapter 1)
+## Romans was written from **Corinth** around **57–58** AD. (Chapter 1)
 
 ## Although the Gentile did not have the written word; they still had the same principals contained in the Word **written** **on** **their** **heart**. (Chapter 4) 
 

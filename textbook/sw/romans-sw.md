@@ -47,12 +47,12 @@ Kutokea hapo wasimamizi waliamriwa na serikali walikuwa ni kanisa la wamataifa. 
 
 ## WAKATI & MAHALI
 
-Warumi iliandikwa kutoka Korinto mnamo 57-58 BK. Katika War 15:19, Hebu jue kuhusu Paulo kwamba yeye alikuwa amekaribia katika hali ya mwisho katika maisha ya kupanda na kushuka kwenye mwisho wa safari yake tatu umisheni. Alikuwa amekwisha kuhubiri injili, anasema kutokea Yerusalemu hata sehemu za Mbali na anaenda kufanya uamuzi wa ajabu kwamba yeye hakuwa tena na nafasi ya kuendelea kufanya kazi katika hiyo sehemu kubwa mno. Anataka kwenda Span kwakuwa Itali ilikuwa imekwisha hubiriwaa Alihubiri, na kutembelea katika kanisa la Rumi katika safari. Lakini hangeweza kufanya kwa mara moja; Yeye aliazimia kwenda Yerusalemu kwanza. Sababu ya hili ni wazi na lina ushahidi. Kwa muda fulani, (2 Wakrinto angependekeza angalau mwaka moja. Paulo anatanagaza kwamba, yeye amejitoa kwa ajili ya kukusanya mchango kwa ajili ya maskini wa Yerusalemu. Wakati wa kuandikwa kitabu cha Warumi, ule mkusanyiko ni kwa bayana, kama haijakamilika kabisa, Paulo anasubiri furusa ya kupokea sadaka kwenda Yerusalemu. 1 na ya 11 Wakorinto hurejea kwenye mkusanyo kama ilikuwa ikifanyiwa kazi (I Kor. 16:1-4; 2 Kor. 8-9) na War. 15:25-28 inaonekana kwa kile kilicho kamilika. Kwa kuwa katika I Corinthians 16:3-4, Paulo alionyesha mpango wake wa kukamilisha kazi kwa ajili ya mchango wa Wakorinto na kisha kuondoka kutoka katika mji ule wa Yerusalemu ni nitu cha kawaida kudhani kwamba aliwaandikia warumi wakati akiwa Korinto. Wasomi wengi huweka wakati wa utume wake takribani 57-58 BK.
+Warumi iliandikwa kutoka Korinto mnamo 57-58 BK. Katika War 15:19, Hebu jue kuhusu Paulo kwamba yeye alikuwa amekaribia katika hali ya mwisho katika maisha ya kupanda na kushuka kwenye mwisho wa safari yake tatu umisheni. Alikuwa amekwisha kuhubiri injili, anasema kutokea Yerusalemu hata sehemu za Mbali na anaenda kufanya uamuzi wa ajabu kwamba yeye hakuwa tena na nafasi ya kuendelea kufanya kazi katika hiyo sehemu kubwa mno. Anataka kwenda Span kwakuwa Itali ilikuwa imekwisha hubiriwaa Alihubiri, na kutembelea katika kanisa la Rumi katika safari. Lakini hangeweza kufanya kwa mara moja; Yeye aliazimia kwenda Yerusalemu kwanza. Sababu ya hili ni wazi na lina ushahidi. Kwa muda fulani, (2 Wakrinto angependekeza angalau mwaka moja. Paulo anatanagaza kwamba, yeye amejitoa kwa ajili ya kukusanya mchango kwa ajili ya maskini wa Yerusalemu. Wakati wa kuandikwa kitabu cha Warumi, ule mkusanyiko ni kwa bayana, kama haijakamilika kabisa, Paulo anasubiri fursa ya kupokea sadaka kwenda Yerusalemu. 1 na ya 11 Wakorinto hurejea kwenye mkusanyo kama ilikuwa ikifanyiwa kazi (I Kor. 16:1-4; 2 Kor. 8-9) na War. 15:25-28 inaonekana kwa kile kilicho kamilika. Kwa kuwa katika I Corinthians 16:3-4, Paulo alionyesha mpango wake wa kukamilisha kazi kwa ajili ya mchango wa Wakorinto na kisha kuondoka kutoka katika mji ule wa Yerusalemu ni nitu cha kawaida kudhani kwamba aliwaandikia warumi wakati akiwa Korinto. Wasomi wengi huweka wakati wa utume wake takribani 57-58 BK.
 
 ## MUHULA
 
 Warumi iliandikwa kulingana na utangulizi wa Paulo kwa wakirsto waliokuwa Rumi kutanguliza safari yake kwao. Mtume Paulo alikuwa na muda mrefu wa kusukusudia kutembelea wakristo wa Rumi kwa muda mfupi alipokamilisha kazi yake na alikuwa na kile alichokusanya kwa ajili ya masikini walioko Yerusalemu
-(1:13; 15:25, 26, 28). Kazi yake huko mashariki;i lipitiliza; na yeye alikuwa katika safari yake ya kwenda Yerusalamu. Alitaka kujitambulisha kwa wakristo walikuwa Rumi kabla ya kusimama pale aliandika huu waraka pamoja na kusudi la kuiandika kuhusu furusa ya upendeo wake wakwanza.Safari ya Phoebe kwenda Rumi alimpatia Paulo furusa kama hiyo (16:1-2).
+(1:13; 15:25, 26, 28). Kazi yake huko mashariki;i lipitiliza; na yeye alikuwa katika safari yake ya kwenda Yerusalamu. Alitaka kujitambulisha kwa wakristo walikuwa Rumi kabla ya kusimama pale aliandika huu waraka pamoja na kusudi la kuiandika kuhusu fursa ya upendeo wake wakwanza.Safari ya Phoebe kwenda Rumi alimpatia Paulo fursa kama hiyo (16:1-2).
 
 ## KUHUSU
 
@@ -289,7 +289,7 @@ Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao wayahudi walid
 
 "Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yoh. 1:11).
 
-Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua furusa ya kupokea imani kutoka kwa Mungu. Tunaweza kkujua zaidi na kutamani kumpendeza Mungu.
+Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua fursa ya kupokea imani kutoka kwa Mungu. Tunaweza kujua zaidi na kutamani kumpendeza Mungu.
 
 ### Maaombi
 
@@ -297,7 +297,7 @@ Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia 
 
 Swali: Je ni faida kutojua mapenzi ya Mungu?
 
-Jibu: Hapana. Nibaraka kuwa na furusa ya kujua mapenzi ya Mungu. Petro anaelezea ukuu wa kiwango cha hukumu ya watu wanaorudi nyuma wamehukumiwa.
+Jibu: Hapana. Nibaraka kuwa na fursa ya kujua mapenzi ya Mungu. Petro anaelezea ukuu wa kiwango cha hukumu ya watu wanaorudi nyuma wamehukumiwa.
 
 ## Uhalisia wa sheria (3:3-8)
 
@@ -1452,7 +1452,7 @@ Kama wahudumu mnahitajiwa kuwaleta wengine kwenye kumjua Kristo; Iliwalitafute n
 
 ### Wasaa wetu
 
-furusa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kwenye mapenzi ya Mungu, tunakuwa vifaa katika mikono ya Bwana.
+Fursa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kwenye mapenzi ya Mungu, tunakuwa vifaa katika mikono ya Bwana.
 
 ## Hitimisho la sura ya 13
 

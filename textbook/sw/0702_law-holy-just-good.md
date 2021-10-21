@@ -1,10 +1,10 @@
-## Sheria ni rahisi, rahisi, na njema (mst. 7-13)
+## Sheria ni rahisi, rahisi, na njema (mst. 7—13)
 
-Katika Warumi 7:7-13, Paulo alianza na uzuri wa sheria ya Mungu na udhaifu wa dhambi. Paulo aliwaandikia Wayahudi, wale ambayo waliifahamu sheria (mst. 1), na kujua kujenga vizuri kusudi na asili la sheria. Idhini la barua ya sheria haiwezi kumfanya hata mmoja kuwa na haki, bali katika usahihi wa kuamsha watenda dhambi katika hitaji lao la Kristo.
+Katika Warumi 7:7—13, Paulo alianza na uzuri wa sheria ya Mungu na udhaifu wa dhambi. Paulo aliwaandikia Wayahudi, wale ambayo waliifahamu sheria (mst. 1), na kujua kujenga vizuri kusudi na asili la sheria. Idhini la barua ya sheria haiwezi kumfanya hata mmoja kuwa na haki, bali katika usahihi wa kuamsha watenda dhambi katika hitaji lao la Kristo.
 
 ### Swali: Dhambi ni sheria? (mst. 7a)
 
-Kwanini Paulo aliuliza sawli hili? Paulo aliandika katika mstari wa sita kuwa sheria ilikuwa kitu kinachopelekea kitu fulani. Hii ilionekana kushawishi kuwa sheria ni "mbaya."
+Kwanini Paulo aliuliza swali hili? Paulo aliandika katika mstari wa sita kuwa sheria ilikuwa kitu kinachopelekea kitu fulani. Hii ilionekana kushawishi kuwa sheria ni "mbaya."
 
 ### Jibu fupi: Hapana, sheria ilikuwa kusudi jema (mst. 7b)
 
@@ -29,7 +29,7 @@ Sheria ni kama msitari wa tamaa: Inaonyesha wapi na nini iko katika macho ya Mun
 
 #### Sheria ilifua nguvu ya dhambi (mst. 6)
 
-Chini yua sheria, mwanadamu alihukumiwa kifonkwasababu ya dhambi. Warumi 7:5 inaeleza hali ya Wayahudi kimwili wakiitumikia dhambi ambaye waliichukulia wako chini ya sheria. Ilionyesha kuwa ilikuwa laana (Walawi. 27:26; 28:15; Zab. 119:21; Yer. 11:3; Gal. 3:10).
+Chini ya sheria, mwanadamu alihukumiwa kifo nikwasababu ya dhambi. Warumi 7:5 inaeleza hali ya Wayahudi kimwili wakiitumikia dhambi ambaye waliichukulia wako chini ya sheria. Ilionyesha kuwa ilikuwa laana (Walawi. 27:26; 28:15; Zab. 119:21; Yer. 11:3; Gal. 3:10).
 
 * Laana ilitangazwa hasa usalama wa utii wa maagizo.
 * Laana haikumaanisha kuangamiza mtu hata mmoja bali kutengeza toba.
@@ -50,7 +50,7 @@ Sheria ilifunua madhara ya dhambi. Madhara ya dhambi zote ni kifo cha kiroho. Ma
 * Ina uadilifu kwasababu inahukumu wakosaji
 * Ni njema kwasababu kusudi lake ni la kiroho (ni sehamu ya mpango wa mwisho wa Mungu kumleta mwanadamu kwa Mungu)
 
-#### Sheria inaonyesha (dhihirisha) uovu wa dhambi (mst. 12-13)
+#### Sheria inaonyesha (dhihirisha) uovu wa dhambi (mst. 12—13)
 
-Sheria ni takatifu, ya pekee na nzuri, ya kawaida, ni mstari wa kina, amri inatuonyesha wapi na tuko katika upande gani wa Mungu; dhambi inatuonyesha kwa nini "waovu wanaendelea." Mbali sana na alama ya ile ya Mungu aliyetuwekea sisi kwa ajili ya Kristo. Ni kusudi lake kutuhumu wafungwa wa dhambi na njia pekee ni kupitia kwa Kristo pekee kutafuta toba. Ina laana, shutuma, huzuia, na kuongoza kuamsha wakosaji kwa Kristo (3:19, 13; 7:8-11; 8:3; Gal. 3:19-24). Dhambi inaweza kufichwa katika jamii ya watu ikilinganishwa kwa mtu mmoja na mwingine au pia kwa kuhukumiwa tu kwa amri ya moyo wake mwenyewe, lakini katika nuru ya utakatifu kamili, dhambi itakuwa "inazidi sana."
+Sheria ni takatifu, ya pekee na nzuri, ya kawaida, ni mstari wa kina, amri inatuonyesha wapi na tuko katika upande gani wa Mungu; dhambi inatuonyesha kwa nini "waovu wanaendelea." Mbali sana na alama ya ile ya Mungu aliyetuwekea sisi kwa ajili ya Kristo. Ni kusudi lake kutuhumu wafungwa wa dhambi na njia pekee ni kupitia kwa Kristo pekee kutafuta toba. Ina laana, shutuma, huzuia, na kuongoza kuamsha wakosaji kwa Kristo (3:19, 13; 7:8—11; 8:3; Gal. 3:19—24). Dhambi inaweza kufichwa katika jamii ya watu ikilinganishwa kwa mtu mmoja na mwingine au pia kwa kuhukumiwa tu kwa amri ya moyo wake mwenyewe, lakini katika nuru ya utakatifu kamili, dhambi itakuwa "inazidi sana."
 

@@ -2,13 +2,13 @@
 
 ## Introduction
 
-Romans chapters 12-16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
+Romans chapters 12—16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
 
 Romans chapter twelve deals with the Christian's duties, which ultimately leads to a surrendered life. The church is compared to the human body. There should be unity among the body, if there is no unity, the body will not function properly. This chapter also deals with the different duties of the church. This chapter ends with the Christian spirit. We are not to overcome but not with evil but we are to overcome with good.
 
-## The living sacrifice (v. 1-2) 
+## The living sacrifice (v. 1—2) 
 
-### Special words and phrases in verses 1-2
+### Special words and phrases in verses 1—2
 
 Often times words lose their value with us with overuse. Let us look more closely at the vocabulary of the first two verses of this chapter that we may gain a deeper understanding of it:
 
@@ -63,13 +63,13 @@ The believer and his lifestyle is to be remarkably different than the world. The
 
 ### Renewed in the mind
 
-The renewing of the mind happens through the Word of God (Psalm 119:9, 105). It is a Work of the Holy Spirit. The entire mind must come under the spirits control (Ephesians 5:17-20—17). The renewed mind is the mind of Christ. It is not just a different mind or another mind, but the work of God in us produces the mind of Christ (Php. 2:5; 1 Cor. 2:14-16; Luke 19:10; 2 Tim. 1:7; John 8:50).
+The renewing of the mind happens through the Word of God (Psalm 119:9, 105). It is a Work of the Holy Spirit. The entire mind must come under the spirits control (Ephesians 5:17—20—17). The renewed mind is the mind of Christ. It is not just a different mind or another mind, but the work of God in us produces the mind of Christ (Php. 2:5; 1 Cor. 2:14—16; Luke 19:10; 2 Tim. 1:7; John 8:50).
 
-## The Christian's attitude toward other Christians (v. 3-8)
+## The Christian's attitude toward other Christians (v. 3—8)
 
 We are one body in Christ, with varying gifts. Everyone members one of another. What is the one possessing a gift supposed to do with it? The various gifts are bestowed by the Spirit. The working of the gifts are for prophecy, ministering, teaching, exhorting, etc. The possession of a gift is of no use unless it is put to use. It is the whole-hearted exercise of the gifts, when it is given, that is urged by the apostles. Gifts are a directly given of the Spirit. Faith is necessary to receive and use these gifts.
 
-## Commands to the believer (v. 9-21)
+## Commands to the believer (v. 9—21)
 
 ### Love truly (v. 9a)
 

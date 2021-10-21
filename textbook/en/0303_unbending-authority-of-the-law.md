@@ -1,22 +1,22 @@
-## The Unbending Authority of the Law (vs. 9-19)
+## The Unbending Authority of the Law (vs. 9—19)
 
-> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1-2), absolute in its nature (vs. 3-8), unbending in its authority (vs. 9-19), has a distinct purpose (vs. 20-30), and is not made void, but rather is established	by our faith. (v. 31).*
+> *Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1—2), absolute in its nature (vs. 3—8), unbending in its authority (vs. 9—19), has a distinct purpose (vs. 20—30), and is not made void, but rather is established	by our faith. (v. 31).*
 
 <!-- -->
 
 The whole world is under the sentence of condemnation.
 
-## The charge is levied against the sinner. &mdash; v. 9
+## The charge is levied against the sinner. — v. 9
 
 Who is a sinner? We have proven both Jew and Gentile to be under sin as ALL are guilty of breaking the law.
 
 ## Witnesses are brought before the accused.
 
-### The witness of creation &mdash; 1:20
-### The witness of conscience &mdash; 2:15
-### The witness of commandment &mdash; 3:19
+### The witness of creation — 1:20
+### The witness of conscience — 2:15
+### The witness of commandment — 3:19
  
-## The indictment is read from the Scriptures. &mdash; vs. 10-18
+## The indictment is read from the Scriptures. — vs. 10—18
 
 ### According to the rules of the court the indictment had to be written.
 
@@ -30,14 +30,14 @@ The Jew boasted that he possessed the Scripture; now God is using that same Word
 
 ### Although the Gentile did not have the written word; they still had the same principals contained in the Word written on their heart 
 
-## The defense of the accused &mdash; V. 19
+## The defense of the accused — V. 19
 
 What is the defense of the accused?
 
 The accused has nothing to say; every mouth is stopped.
 The Day of Judgment will be a day of silence.
 
-## The verdict &mdash; V.20
+## The verdict — V.20
 
 ### GUILTY AS CHARGED!
 
