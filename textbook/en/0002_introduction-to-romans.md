@@ -4,7 +4,7 @@ The Epistle of Romans is a treasure of truth that needs to be understood by the 
 
 ## Authorship of the Epistle to the Romans
 
-### Romans' internal evidence supports Paul's authorship 
+### Romans' internal evidence supports Paul's authorship
 
 Paul claimed to have written it (1:1). Romans' style is the same found in I and II Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal." To read Paul's epistles is almost the same as hearing his voice. Paul wrote like he talked.
 
@@ -37,15 +37,12 @@ The historian Cassius Dio reports the following action taken by Claudius against
 
 Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57–58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of Believers. Though their gathering places were 'decentralized', especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being 'one body' in Christ.
 
-## TIME & PLACE
+## Time and place
 
-Romans was written from Corinth around 57–58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1–4; 2 Cor. 8–9) and Romans 15:25–28 looks upon it as just completed. Since in I Corinthians 16:3–4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57–58.
+Romans was written from Corinth around 57–58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1–4; 2 Cor. 8:1—7) and Romans 15:25–28 looks upon it as just completed. Since in I Corinthians 16:3–4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57–58.
 
-## OCCASION
+## Purpose
 
-Romans was written as Paul's introduction to the Christians at Rome preceding his journey to them. Apostle Paul had long been intending to visit the Roman Christians as soon as he accomplished the business he had at hand which was the collection for the poor at Jerusalem (1:13; 15:25, 26, 28). His work in the east was over; he was on the eve of his journey to Jerusalem. He wanted to introduce himself to the Christians at Rome before making his stop there so he wrote this epistle with the intention of sending it on the first favorable opportunity. Phoebe's voyage to Rome afforded Paul such an opportunity (16:1–2).
-
-## PURPOSE
+Paul wanted to introduce himself to the Christians at Rome before making his stop there so he wrote this epistle with the intention of sending it on the first favorable opportunity. Phoebe's voyage to Rome afforded Paul such an opportunity (16:1–2).
 
 Romans is a theological treatise of the meaning of the Gospel. Though the church is predominately Gentile, Judaism was a dominate influence early on. There were many Jews in Rome at the time of the writing of the Epistle to the Romans and even the Jewish Christians were heavily bound to the traditions and heritage of Judaism. The Jews believed because they had Moses's Law and the covenant of circumcision that they were guaranteed eternal life with God. They believed they were superior to the heathen Gentiles and that they did not need to submit to heathen rulers. Paul refutes the doctrines of the Jews which were inconsistent with Scripture.
-

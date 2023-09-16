@@ -1,10 +1,10 @@
-# Utawala wa Neema "KUPITIA BWANA WETU YESU KRISTO" (sura ya 5)
+# Utawala wa Neema "kupitia bwana wetu Kesu Kristo" (sura ya 5)
 
 ## Utangulizi Introduction
 
-Mtu akifanikiwa kuifikia Neema ya Mungu na kuhesabiwa haki kwa imani kwa kupewa na Mungu. Nafasi muhimu sana kwa imani kupokea huu utoaji inawezekana kama matokeo ya upendo wa Mungu na neema iliyoonyeshwa katika kifo cha Kristo. Tulinyamazishwa na sheria kwa hukumu yake juu ya dhambi, lakini uwepo na na ufahamu mzuri wa Mungu, ulipatikana kwa imani katika Yesu Kristo. Katika sura hii Paulo anasisitiza jukumu la Bwana wetu Yesu Kristo kwa waamini kuhesabiwa haki na kupata upendeleo kwa Mungu au "neema." 
+Mtu akifanikiwa kuifikia Neema ya Mungu na kuhesabiwa haki kwa imani kwa kupewa na Mungu. Nafasi muhimu sana kwa imani kupokea huu utoaji inawezekana kama matokeo ya upendo wa Mungu na neema iliyoonyeshwa katika kifo cha Kristo. Tulinyamazishwa na sheria kwa hukumu yake juu ya dhambi, lakini uwepo na na ufahamu mzuri wa Mungu, ulipatikana kwa imani katika Yesu Kristo. Katika sura hii Paulo anasisitiza jukumu la Bwana wetu Yesu Kristo kwa waamini kuhesabiwa haki na kupata upendeleo kwa Mungu au "neema."
 
-Hivyo ni nani atakayepata faida ya wokovu? Yesu! Hakuwa mkuu bali kazi ya imani pekee ndiyo iliyompendeza Mungu, kwasababu hapakuwepo na nafasi kwa imani kufanya kazi hata ikawezekana bila Kristo. Alihusishwa kwa mpango wa Kristo ambaye Mungu alimpa kibali kwa mwanadamu ili kumwokoa kwa imani. 
+Hivyo ni nani atakayepata faida ya wokovu? Yesu! Hakuwa mkuu bali kazi ya imani pekee ndiyo iliyompendeza Mungu, kwasababu hapakuwepo na nafasi kwa imani kufanya kazi hata ikawezekana bila Kristo. Alihusishwa kwa mpango wa Kristo ambaye Mungu alimpa kibali kwa mwanadamu ili kumwokoa kwa imani.
 
 ## Tutapata nini kupitia kwa Yesu (mst. 1)
 
@@ -12,18 +12,16 @@ Wenye dhambi wako katika kifungo na hawezi kufurahia utimilifu wa Mungu uliotaka
 
 Kupitia Yesu:
 
-* Tumehesabiwa haki kwa damu yake (kuokolewa)
-* Tumekuwa na amani na Mungu (kupatanishwa)
-* Tumepatikana kwa neema
-* Tumepatikana kwa uwepo wa Mungu
-* Tunafurahia katika tumaini la utukufu wa Mungu
-* Tunafuraha katika dhiki (kama alivyofanya kazi kwa uvumilivu -> uzoefu -> tumaini)
+- Tumehesabiwa haki kwa damu yake (kuokolewa)
+- Tumekuwa na amani na Mungu (kupatanishwa)
+- Tumepatikana kwa neema
+- Tumepatikana kwa uwepo wa Mungu
+- Tunafurahia katika tumaini la utukufu wa Mungu
+- Tunafuraha katika dhiki (kama alivyofanya kazi kwa uvumilivu -> uzoefu -> tumaini)
 
-### Kupitia Yesu tunaye Roho Mtakatifu aliyetupa sisi (mst. 5)
+### Kupitia Yesu tunapokea Roho Mtakatifu (mst. 5)
 
-Pia angalia II Kor. 1:22; Gal.4:4—7; Efes 1:13—14.
-
-### Kupitia Yesu tuna upendo wa Mungu uliopakwa NDANI ya mioyo yetu (mst. 5)
+Pia angalia II Kor. 1:22; Gal. 4:4—7; Efes. 1:13—14.
 
 ## Tunapata nini kupitia upendo wa Mungu (mst. 6—10)
 
@@ -33,18 +31,16 @@ Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, n.k.) yaliwezek
 
 ## Ni upendo usio wa kawaida (mst. 7—8)
 
-"Upendo" wa mtu humhusu yeye mwenyewe na una kikomo. Kwa wale ambao hufanya ya kidini na unaweza kumpata mtu kufa kwa ajili ya vitu vizuri na kwa wale wema na wakarimu, wanaweza kutapa mtu yeyote kwa urahisi zaidi kufa, lakini Yesu hakufa kwa wale waliokuwepo kupata thamani na utajiri, bali alikufa kwa ajili ya wahalifu, wavamizi. Yeye alikufa kwa wenye **dhambi**.
-
-Kristo Alikufa kwa wenye DHAMBI, wale wakosaji na waliomkataa Mungu. Upendo wa Mumgu ulionyeshwa kwa wale wasio **haki** wala **wema**.
+"Upendo" wa mtu humhusu yeye mwenyewe na una kikomo. Kwa wale ambao hufanya ya kidini na unaweza kumpata mtu kufa kwa ajili ya vitu vizuri na kwa wale wema na wakarimu, wanaweza kutapa mtu yeyote kwa urahisi zaidi kufa, lakini Yesu hakufa kwa wale waliokuwepo kupata thamani na utajiri, bali alikufa kwa ajili ya wahalifu, wavamizi. Yeye alikufa kwa wenye **dhambi**. Upendo wa Mumgu ulionyeshwa kwa wale wasio **haki** wala **wema**.
 
 ### Upendo hufanya kazi ya upatanisho (mst. 9—10)
 
 Tuliuwa wa ajabu kwa Mungu. Tulikuwa:
 
-* hatuna nguvu - wa kufa -wadhaifu.
-* wasimcha Mungu - Hakuna Mungu ndani yao.
-* Wenye dhambi - wakti wote kwa lengo, lakini kwa kukosa chapa.
-* Maadui - chuki dhidi ya Mungu na Utakatifu wake.
+- hatuna nguvu - wa kufa -wadhaifu.
+- wasimcha Mungu - Hakuna Mungu ndani yao.
+- Wenye dhambi - wakti wote kwa lengo, lakini kwa kukosa chapa.
+- Maadui - chuki dhidi ya Mungu na Utakatifu wake.
 
 Yesu alisukumwa na upendo, na alituokoa kutoka kwenye laana na akatupa kuhesababiwa haki kupitia damu yake.
 
@@ -61,7 +57,7 @@ Tumekuwa mabalozi wa ofisi ya upatanisho (War. 5:19—20). Dhambi ya mtu humteng
 Ukweli ni kwamba Mungu ni pendo na Kristo atabaki mwenye Haki haitoshi peke yake kumhesababia mtu haki. Gharama lazima ilipwe kwa ajili ya dhambi na Kristo ndio aliyolipa hiyo gharama kwa damu yake mwenyewe (upatanisho). Katiak msitari wa 11 hadi 18, Paulo aliandika tofauti ya Utawala wa Dhambi na utawala wa Neema.
 
 ### Dhambi imethibitishwa na utawala wa dhambi (mst. 12—14)
- 
+
 ### Karama ya bure (mst. 15—21)
 
 ## Hitimisho — "kwa Yesu" (mst. 19—21)
@@ -70,18 +66,17 @@ Kama vile dhambi ilivyo tawala mpaka kifo, neema imetawala kupitia haki mpaka uz
 
 Neema ni upendo, kama inavyoonekana katika kifo cha Kristo kwa wasio mcha Mungu na katika maisha ya Yesu alivyoyatoa kwa wale ambao Yeye aliwaokoa kwa njia ya kifo chake. Hukumu ni utumwa kupelekea mauti kupitia Adamu. Kuhesabiwa haki ni kutawala katika uzima kwa njia ya Yesu Kristo. Kwa Kristo watu wote watafanywa hai.
 
-Paulo aliandika tofauti yenye nguvu sana ya utawala wa dhambi na utawala wa neema: 
+Paulo aliandika tofauti yenye nguvu sana ya utawala wa dhambi na utawala wa neema:
 
-| Tofauti katika Warumi sura ya tano ||
-| --- |--- |
-| Dhambi | Haki |
-| Kifo |Uzima |
-| Sheria | Neema |
-| Maadui | Upatanisho |
-| Kutotii | Utii |
-| Kuhesababiwa | Haki |
+| Tofauti katika Warumi sura ya tano                  |                                                                                    |
+| --------------------------------------------------- | ---------------------------------------------------------------------------------- |
+| Dhambi                                              | Haki                                                                               |
+| Kifo                                                | Uzima                                                                              |
+| Sheria                                              | Neema                                                                              |
+| Maadui                                              | Upatanisho                                                                         |
+| Kutotii                                             | Utii                                                                               |
+| Kuhesababiwa                                        | Haki                                                                               |
 | Hukumu: Kuwahukumu watu ni utumwa wa kifo kwa Adam. | Kuhesabiwa haki ya Uzima: Kuwahesabia watu haki ilitawala katika uzima kwa Kristo. |
-| Hasira | Amani |
-| Wenye dhambi | Walio okolewa | 
-| Utawala wa dhambi | Neema imeongezeka |
-
+| Hasira                                              | Amani                                                                              |
+| Wenye dhambi                                        | Walio okolewa                                                                      |
+| Utawala wa dhambi                                   | Neema imeongezeka                                                                  |

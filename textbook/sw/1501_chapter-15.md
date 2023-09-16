@@ -8,7 +8,7 @@ Waamini ni wakukaribishana wao kwa wao, kama Kristo alivyo wapokea mataifa—kwa
 
 ### Kuna tofauti kadhaa (mwanzo wa kihsitoria)
 
-Kuna tofauti nyingi za kidini na kimila kati ya wayahudi na wamataifa kwa kufunguliwa injili kwa mataifa kulikuwa na ugumu mwingi wa kushinda. Paulo anaonya kwa ushupavu, tunatakiwa kufanya kazi ili kuwapokea wamataifa kama Mungu alivyo wapokea. Kiwango cha juu na kutawala kwa kile ambacho tabia zetu hupimwa "kama kristo alivyo tupokea sisi kwenye utukufu wa Mungu" (mst. 7). 
+Kuna tofauti nyingi za kidini na kimila kati ya wayahudi na wamataifa kwa kufunguliwa injili kwa mataifa kulikuwa na ugumu mwingi wa kushinda. Paulo anaonya kwa ushupavu, tunatakiwa kufanya kazi ili kuwapokea wamataifa kama Mungu alivyo wapokea. Kiwango cha juu na kutawala kwa kile ambacho tabia zetu hupimwa "kama kristo alivyo tupokea sisi kwenye utukufu wa Mungu" (mst. 7).
 
 Kuwa myahudi kwa shaka, makanisa ya kwanza yange jisikia "kuwa ya kiyahudi" (michanganyiko ya mila na ushawishi). Kulikuwa na ufukuzwaji kwa mara ya kwanza kutoka Roma kwa wayahudi wote na ni mageuzi ya kiasili na kimila yaliyo tokea katika makanisa ya kirumi. Mwishowe, Wayahudi walirudi katika mji wa Roma kupata vitu tofauti zaidi ya walivyokuwa wameacha. Ilikuepuka mgawanyiko, Kanisa la kwanza lilikuwa linafanya kazi kwa pamoja ilikushinda tofauti zao za kimila kwa kujifunza vile vitu ambavyo "vinahitaji sana" (Matendo 15:28; Waefeso 4:3, 13).
 
@@ -20,11 +20,11 @@ Warumi sura ya kumi tano inaongelea kuishi maisha yasiyo ya kichoyo. Wenye nguvu
 
 Sura ya kumi na tano ya Warumi inahisia nzito ya hitimisho. Kama ulivyo mtindo wa Paulo katika kitabu hiki, anarudia mawazo ambayo aliyawasilisha lakini ni kwa mwelekeo zaidi na kibinafsi. Anatoa maelezo ya maelekezo maelezo yaliyo fuata kwa wasomaji wake:
 
-* Wenye nguvu wanapaswa kuchukuliana na wadhaifu.
-* Kupendeza majirani zetu kwa wema wao na imani.
-* Kuchukuliana ni nia ya Kristo. Kwamba mwe na nia moja na kuwa na kauli moja ya kumtukuza Mungu.
-* Yesu ni mhudumu kwa wayahudi na kwa wa mataifa.
-* Wamataifa wanasababu ya kufurahi na wanaamriwa kufanya hivyo katika maandiko matakatifu.
+- Wenye nguvu wanapaswa kuchukuliana na wadhaifu.
+- Kupendeza majirani zetu kwa wema wao na imani.
+- Kuchukuliana ni nia ya Kristo. Kwamba mwe na nia moja na kuwa na kauli moja ya kumtukuza Mungu.
+- Yesu ni mhudumu kwa wayahudi na kwa wa mataifa.
+- Wamataifa wanasababu ya kufurahi na wanaamriwa kufanya hivyo katika maandiko matakatifu.
 
 #### Kristo ni mfano wa mkristo kwa ajili ya kuishi (mst. 3)
 
@@ -32,7 +32,7 @@ Kwa nini mkristo ni lazima kuhusika na wengine badala yake mwenyewe? Tunapaswa k
 
 #### Neno la Mungu ni chanzo cha Mkristo kuwa na faraja kwa ajili ya maisha (mst.4)
 
-Tunaweza kuwa na faraja wakati mahitaji kwa kuyasoma maandiko. Tunaweza pia kuendelea mbele kwa tumaini. 
+Tunaweza kuwa na faraja wakati mahitaji kwa kuyasoma maandiko. Tunaweza pia kuendelea mbele kwa tumaini.
 
 #### Umoja katika mwili wa Kristo ni shabaha ya Mkristo (mst. 5—6)
 
@@ -48,10 +48,10 @@ Tunaswa kuunganika katika nia moja na kwa roho inayomtukuza Mungu ambaye ni leng
 
 Maoni ya Paulo yalikuwa nini kuhusu wakristo wa Rumi?
 
-* Paulo anamwamini Mungu kuelekea kuwasababisha kuwa na tumaini na nguvu (mst. 13).
-* Walikuwa wamejawa na wema.
-* Walijawa na ujuzi wote.
-* Waliweza kutangulizana.
+- Paulo anamwamini Mungu kuelekea kuwasababisha kuwa na tumaini na nguvu (mst. 13).
+- Walikuwa wamejawa na wema.
+- Walijawa na ujuzi wote.
+- Waliweza kutangulizana.
 
 Ijapokuwa Paulo hakuwahi kuwa Rumi, alijuwa na kufarijika kwa imani yao (1:8).
 
@@ -73,7 +73,6 @@ Je, Paulo anajirejea mwenyewe kama nini? Kama, mhudumu wa Yesu Kristo kwa mataif
 
 Kadiri Paulo alivyokuwa na ujasiri anaongea, haogopi kusema lakini kwa kile ambacho Kristo amemwezesha:
 
-- Mungu ametumia kwa nguvu, lakini sio yote ambayo Mungu ametenda katika uwanja huu ameyafanya kwa kunitumia.
 - Mimi sio mhudumu pekee kwa mataifa.
 - Kwa uangalifu: ruhusu wale walioponywa kutoa ushuhuda.
 - Kwa uangalifu usifiche kile ambacho Mungu anafanya popote-Paulo hakutaka kujenga juu ya msingi wa mwingine (kazi).
@@ -96,11 +95,10 @@ Paulo anaelezea tena shauku yake na kusudi lake la kutelea kanisa la Roma na rat
 
 Katika mstari wa 30 kwa mara ya kwanza tunaona utatu:
 
-* Kwa ajili ya Bwana Yesu Kristo mwenyewe.
-* Kwa ajili ya upendo wa Roho.
-* Maombi yenu kwa Mungu kwa ajili yangu.
+- Kwa ajili ya Bwana Yesu Kristo mwenyewe.
+- Kwa ajili ya upendo wa Roho.
+- Maombi yenu kwa Mungu kwa ajili yangu.
 
 ### Baraka (mst. 33)
 
 "Mungu wa amani awe nanyi nyote," inaonyesha kwa jinsi gani moyo wa mtume ulikuwa umejawa na amani na kujawa mapensi ya Mungu! Inaonyesha pia upendo unaofurika kwa ajili ya watakatifu (mara mbili katika sura hii Paulo **anaomba** kwa ajili ya kanisa la Rumi. Angalia misitari ya 13 na 33). Kusudi na nguvu ilio nyuma ya umoja wa wakristo ni mfano wa upendo wa Kristo na huduma na dhabihu. Kuwa na msisimko kama huo miongoni mwa wakristo, tunahitaji kuomba kama Paulo alivyofanya uwezeshaji wa Bwana. Maana ya Paulo ya agizo kuu haikumfanya kuwa wakutegemewa na wakristo wenzake.
-

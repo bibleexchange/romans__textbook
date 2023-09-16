@@ -10,7 +10,7 @@ Kwa kuwa sisi tunapokea ahadi ilioko kwenye Zaburi 47:3 (yeye atawashusha watu c
 
 Sura ya 12 husisitiza hitaji letu la kukabithi miili yetu kama dhabihu iliohai, na sura ya 13 inafundisha juu ya umuhimu wa utii kwa wenye mamlaka.
 
-Sehemu ya pili ya mstari wa 2 hutuambia kwamba mamlaka yote hutoka kwa Mungu. Mamlaka yote ni ya Mungu (Zab. 62:10–11; 29:10; Mat. 19:26). Mamlaka ya kidunia lazima yapokee msukumo toka kwa Mungu mtawala (Kol. 1:16–17; Dan. 2:21). Tunainamishwa na Mungu kuwa katika utii wa mamlaka. Amri hii hutoka kwa Mungu. 
+Sehemu ya pili ya mstari wa 2 hutuambia kwamba mamlaka yote hutoka kwa Mungu. Mamlaka yote ni ya Mungu (Zab. 62:10–11; 29:10; Mat. 19:26). Mamlaka ya kidunia lazima yapokee msukumo toka kwa Mungu mtawala (Kol. 1:16–17; Dan. 2:21). Tunainamishwa na Mungu kuwa katika utii wa mamlaka. Amri hii hutoka kwa Mungu.
 
 ## Jaribu la utii wetu (mst. 2)
 
@@ -28,9 +28,7 @@ Mungu anaagiza mamlaka kwa ajili ya kusudi la kulinda wema na kuadilisha uovu. M
 
 Tunapaswa kuwa wa watiifu sio kwa sababu ya kuepuka adhabu, bali pia kwa kuhifadhi dhamiri zetu safi. Kwa Wakristo Mungu anatuagiza kuwa katika unyenyekevu.
 
-## Tunajinyenyekeza kwa namna gani? (mst. 6–10)
-
-### Tunajinyenyekeza kwa kulipa kodi (mst. 6–7)
+## Tunajinyenyekeza kwa kulipa kodi (mst. 6–7)
 
 > Mathayo 22:21—Wakamwambia, Ni ya Kaisari. Akawaambia, Basi, mlipeni Kaisari yaliyo ya Kaisari, na Mungu yaliyo ya Mungu.
 
@@ -42,8 +40,8 @@ Katika mistari ya 6 na 7 tunaona mifano ya utii kwa mamlaka ya kiraia:
 2. Toa ushuru kwa anayetoza ushuru
 3. Hofu kwa anaye sitahili hofu
 4. Heshima kwa anayesitahili heshima
-  
-### Tunatii kwa kuheshimu sheria ya upendo (mst. 8–10)
+
+## Tunatii kwa kuheshimu sheria ya upendo (mst. 8–10)
 
 Upendo hutimiza sheria. Kujihusisha na upendo ni kuitimiza sheria. Katika Yohana 14:15 Yesu anasema, "Mkinipenda, mtazishika amri zangu." Muumini yuko katika "uumbaji mpya," na kuenenda katika madarka ya "juu ya maisha" (Wagal. 6:15–16) sio kwa sheria. Katika kupenda yeye ametimiza sheia ya kiwango cha chini.
 
@@ -70,4 +68,3 @@ Fursa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kweny
 ## Hitimisho la sura ya 13
 
 Amri za sura hii huelekezwa kwetu leo kama zilivyoelekezwa katika siku za Paulo. Mkristo anapaswa kuchukuliana na kila hali kulingana na Mungu alivyo na kile Mungu afanyacho. Matazamio ya mkristo yameelekezwa kwa mtazamo wa Mungu wa dunia na kusudi la Mungu katika dunia.
-

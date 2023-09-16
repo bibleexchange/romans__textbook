@@ -1,8 +1,8 @@
 # Wote wanahatia na wako chini ya dhambi (1:18—32; 2:1—29)
 
-> Warumi 3:9—...Kwa maana tumekwisha kuwashitaki Wayahudi na Wayunani ya kwamba pia wamekuwa chini ya dhambi; 
+> Warumi 3:9—...Kwa maana tumekwisha kuwashitaki Wayahudi na Wayunani ya kwamba pia wamekuwa chini ya dhambi;
 
-## Wote wana hatia
+## Wote wana hatia (1:18)
 
 Mahitaji ya wanadamu wote ni kuhesabiwa haki kwanjia ya Yesu vinginevyo ghadhabu ya Mungu itafunulliwa dhidi ya hatia (1:18). Yesu ni ndio njia pekee ya wokovu na wale wasio chagua kukubali utoaji wa Kristo wamehukumiwa (Yoh. 3:18).
 
@@ -38,15 +38,15 @@ Kuhesabiwa kwasasa inatolea kwa imani katika Kristo Yesu. Kristo ni utimilifu wa
 
 ### Sheria ya Mungu imeandikwa kwenye mioyo ya wanadamu (2:14—16)
 
-Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika  maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika MIOYO yao na dhamiri yao zinashuhudia.
+Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika MIOYO yao na dhamiri yao zinashuhudia.
 
-Paulo anakabiliana na udhuru wa mwanadamu, kujibu swali: Jinsi gani Mungu anaweza kuhukumu mataifa ambao hawakuwa na sheria? Mungu atamhukumu mtu kulingana na ukweli ambao aliutoa kwake. Wamataifa wanaotenda dhambi watapotea, lakini sheria ya Musa haitatumika kama kiwango cha hukumu dhidi yao. Watu wote  bado walikuwa na sheria ya dhamiri zao na ushuhuda wa uumbaji. Mtenda dhambi yuko chini ya hukumu hata kama bila sheria ya Musa.
+Paulo anakabiliana na udhuru wa mwanadamu, kujibu swali: Jinsi gani Mungu anaweza kuhukumu mataifa ambao hawakuwa na sheria? Mungu atamhukumu mtu kulingana na ukweli ambao aliutoa kwake. Wamataifa wanaotenda dhambi watapotea, lakini sheria ya Musa haitatumika kama kiwango cha hukumu dhidi yao. Watu wote bado walikuwa na sheria ya dhamiri zao na ushuhuda wa uumbaji. Mtenda dhambi yuko chini ya hukumu hata kama bila sheria ya Musa.
 
 Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. Mungu tu ndio mwenye kiwango cha maadili. Hakuna sheria moja kwa ajili ya wayahudi na nyingine kwa ajili ya wamataifa.
 
-##### Mungu atahukumu siri za wanadamu (2:16)
+#### Mungu atahukumu siri za wanadamu (2:16)
 
-### MYAHUDI ASIYE MWAMINIFU YUKO CHINI YA HUKUMU (Mst. 17—25)
+### Myahudi asiye mwaminifu yuko chini ya hukumu (Mst. 17—25)
 
 #### Wayahudi walitua kwenye sheria (2:17—18)
 
@@ -54,13 +54,10 @@ Wayahudi walidai kusamehewa kutoka kwenye hukumu iliojikita kwenye urithi. Wakat
 
 Ujuzi wa sheria hauwezi kumuokoa Myahudi. Myahudi anayejivuna katika sheria huamini yeye ni kiongozi kwa kipofu, bali yeye mwenyewe ni kipofu. Kwamba yeye anaijua njia, kwamba hakuna mwingine ajuaye zaidi. Anasimama katika sehemu hii kwa ujasiri mkubwa wa binafsi kwasababu yeye ANAJUA sheria, lakini HAKUNA HAKI KATIKA KUJUA SHERIA. Paulo naongea mojo kwa moja kwa msisitizo kuelekea pointi yake, wewe uhubiriye kwamba mtu asiibe, mbona wewe waiba? Paulo kwa wazi anawakilisha kwamba eti mmataifa anahatia kwasababu hafanyi matakwa ya sheria bali si hivyo kwa kuwa yeye hana sheria, kama wayahudi wafanyavyo, vilevile wayahudi hawasamehewi hatia yao kwasababu wanao sheria na wanaijua, bali hatahivyo wanahukumiwa kwasababu hawatimizi. Ujasiri wao ni ujinga wa moyo kwakuwa wao ni vipofu na wanaongoza kipofu.
 
-#### Wayahudi wanamini wao wako juu ya wamataifa (2:19—25)
+#### Wayahudi wanamini wao wako juu ya wamataifa (2:19—24)
 
-#### Myahudi wa kweli ni yule ambaye ni kwa NDANI (moyoni, rohoni) (2:26—29)
+#### Myahudi wa kweli ni yule ambaye ni kwa ndani (moyoni, rohoni) (2:25—29)
 
 Tohara ilikuwa ni ishara ya kuondoa hali dhambi. Mmataifa asiyetahiriwa aliyetii sheria ya Mungu alipata faida zaidi kuliko myahudi aliye tahiriwa asiyetii sheria
 
 Tohara ni ya moyo. Kwa swala la kuhesabiwa haki sio juu ya mtu aliyezali akiwa myahudi au mmataifa, wala aliyetahiriwa au la, au kama anasheria au la bali moyo wake unatohara? Ana ugumu wa moyo na dhambi imeondolewa toka moyoni mwake, Paulo kwa hitimisha anasema myahaudi wa kweli ana imani kwa ndani, ambaye moyo wake umeshabadilishwa, sio yule ambaye kwa inje anafuata sherehe kwa njia ya kimwili. Kila myahudi anahitaji kuongeza kwenye tohara yake ya kimwili, tohara ya moyo kwa njia ya toba na maisha yaliyo badilika.
-
-## Hitimisho (3:9—19)
-

@@ -2,7 +2,7 @@
 
 > Romans 3:9—... we have before proved both Jews and Gentiles, that they are all under sin;
 
-## All are guilty
+## All are guilty (1:18)
 
 All mankind needs to be justified through Jesus, or the wrath of God will be revealed against it (1:18). Jesus is the only way to salvation and those who do not chose to accept the provision of Christ are condemned (John 3:18).
 
@@ -42,11 +42,11 @@ Does verse 12 mean that a Gentile cannot be justified because he has not been gi
 
 Paul is confronting the excuses of man, to answer the question: how can God judge the Gentiles who did not have the Law? God will judge a man based on the truth that has been afforded to him. Gentiles who sin will perish, but the Law of Moses will not be used as a standard of judgment against them. All men still had the law of their conscience and the testimony of creation. The sinner is under condemnation with or without Moses's law.
 
-God created man with a conscience which is a natural sense of right and wrong. God has only one standard of morality. There is not one law for the Jew and another law for the Gentiles. 
+God created man with a conscience which is a natural sense of right and wrong. God has only one standard of morality. There is not one law for the Jew and another law for the Gentiles.
 
-##### God will judge the secrets of men (2:16)
+#### God will judge the secrets of men (2:16)
 
-### THE UNFAITHFUL JEW IS UNDER CONDEMNATION (2:17–25)
+### The unfaithful Jew is under condemnation (2:17–25)
 
 #### The Jews rested in the Law (2:17–18)
 
@@ -54,13 +54,10 @@ The Jews claimed to be exempt from condemnation based on heritage. When Jesus co
 
 Knowledge of the law cannot save the Jew. The Jew that boasts in the law believes he is a guide for the blind, but is blind himself. That is, he believes he knows the way, and no one else does. He stands in this place of great self-confidence because he KNOWS the law, but THERE IS NO RIGHTEOUSNESS IN KNOWING THE LAW. Paul speaks directly to emphasize his point, "Thou that preachest a man should not steal, dost thou steal?" Paul is clearly presenting that just as the Gentile is guilty because he DOES NOT the law and not that because he has not the law as the Jews do, so also are the Jews not pardoned from their guilt because they have and know the law, but they as well are judged for not DOING the law. Their self-confidence is fool hearty for they are the blind leading the blind.
 
-#### The Jews believed they were superior to the Gentiles (2:19–25)
+#### The Jews believed they were superior to the Gentiles (2:19–24)
 
-#### The True "Jew" is one that is so INWARDLY (heart, spirit) (2:26–29)
+#### The true "Jew" is one that is so inwardly (heart, spirit) (2:25–29)
 
 Circumcision was a sign of the cutting away of the flesh. The uncircumcised Gentile who obeyed God's law had more profit than the circumcised Jew who disobeyed it.
 
 Circumcision is of the heart. The issue for justification is not over if a man was born Jew or Gentile, whether he has been circumcised or not, or if he has the law or not, but has his HEART been circumcised? Has the hardness, impenitence, and sin been cut out of his heart? Paul concludes a true Jew is one who has faith inwardly, whose heart has been changed, and not one who merely follows outward ceremonies in the flesh. Every Jew needs to add to his physical circumcision a circumcision of the heart through repentance and a changed life.
-
-## Conclusion (3:9–19)
-

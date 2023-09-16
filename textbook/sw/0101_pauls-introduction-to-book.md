@@ -2,31 +2,27 @@
 
 ## Salamu za Paulo 1:1–7
 
-Mtume ni mtu ALIYETUMWA KWENDA kama mjumbe au mwakilishi wa mamlaka halisi ya mtumaji; mjumbe au balozi (Mdo. 9:3—9, 15—22, 28). Wito wa kitume wa Paulo haukuwa wa kidunia. Wala hakuwa mgombea kwa wale waliopigiwa kura katika Mdo. 1 bali wito wakitume wa Paulo ni kwenda mbele kama mtume aliyekuja toka kwa Kristo (1:5). Paulo anasisitiza kuwa yeye alikuwa ameitwa kuwa mtume; na wito huu ulikuwa wa kimungu na sio wa kibinadamu.
-
-Paulo alikuwa mhubiri wa injili yeye alikuwa mjumbe aliye tengwa mwenye ujumbe maalumu. Injili ni siri (Marko 4:11; I Tim. 3:9, 16; Kol. 2:2; 4:3; Waef. 1:9) ufunuo wa kimungu (Mdo. 9).
+Mtume ni mtu aliyetumwa kwenda kama mjumbe au mwakilishi wa mamlaka halisi ya mtumaji; mjumbe au balozi (Mdo. 9:3—9, 15—22, 28). Wito wa kitume wa Paulo haukuwa wa kidunia. Wala hakuwa mgombea kwa wale waliopigiwa kura katika Matendo sura ya kwanza, bali wito wakitume wa Paulo ni kwenda mbele kama mtume aliyekuja toka kwa Kristo (1:5). Paulo anasisitiza kuwa yeye alikuwa ameitwa kuwa mtume; na wito huu ulikuwa wa kimungu na sio wa kibinadamu.
 
 Uwekwaji wakifu kamili umezungumzwa katika maneno haya. Paulo alitengwa kuhubiri ujumbe moja na wa pekee. Paulo hakutangaza kwamba ujumbe huo ungemtukuza yeye wala hakufanya zaidi ya nafasi yake mbele ya macho ya watu. Paulo alitangaza kwamba kusudi lake katika maisha llilikuwa ni Injili ya Mungu, na kwahiyo hili lingepaswa kuwa kusudi letu kama wa hudumu Injili.
 
 ### Ujumbe wake (mst. 1–5)
 
-Ujumbe wa Paulo ni injili. Injili haikutokana na Paulo injili yote inamhusu Yesu Kristo: Bwana wetu, uzao wa daudi, mwana wa Mungu, aliyefufuka.
+Ujumbe wa Paulo ni injili. Injili haikutokana na Paulo injili yote inamhusu Yesu Kristo.
 
-### Wasomaji wake (mst. 6–7)
+### Wasomaji wake (mst. 6–7a)
 
 Wale waliounganishwa na Yesu wameungwa pamoja naye katika wito wake. Walioitwa ambao Paulo anaandika haimanishi waalikwa, bali humaanisha wale walioalikwa ambao wamekuja tayari.
 
-Haina shaka kwamba waandikiwa wa waraka huu walikuwa ni wakristo Warumi (mst. 7, 15). Andiko linaonyesha kwa kanisa la kirumi lililo athiriwa na wamataifa kama Paulo anavyolielezea kanisa akiliacha kwa ugumu na shaka ambayo anawaaandikia wa mataifa. Katika sura ya kwanza, anazugumza habari ya utume kwa ajili ya utii wa imani kati ya mataifa (1:5). Hurejea kwa waandikiwa kama wamataifa mengine na kutoa kama sababu yake kuwa tayari kuhubiri injili kwao kana kwamba yeye anadaiwa kwa wayunani na kwa sio wayunani (1:14), kwa maana siionei haya Injili; kwa sababu ni uweza wa Mungu uuletao wokovu, kwa kila aaminiye, kwa Myahudi kwanza, na kwa Myunani pia (1:16).
+Haina shaka kwamba waandikiwa wa waraka huu walikuwa ni wakristo Warumi (mst. 7, 15). Kanisa lilikuwa na Wakristo Wayahudi na Wamataifa.
 
-Wakati nafasi na matumaini ya taifa la kiyahudi yako chini ya uangalizi na Paulo anakuja kuwaasa, hii ni kwa waumini wa mataifa ambao anaelezea (1:13; 11:13; 15:15—16).
+### Salamu zake (mst. 7b)
 
-Familia ya Mungu hujumuisha watakatifu walioitwa kwa neema ya Mungu kutoka duniani kuwa watu wake (1 Kor. 1:2). Watakatifu waliotengwa kwa ajili ya ibada na sifa. Ufunguo mwingine wa kufahamu maana ya neno watakatifu; ni waliotakaswa, watakatifu moja kwa moja wako kinyume cha dhambi. Watakatifu ni wale ambao hurusu utakatifu kuwa uhalisia wa maisha yao. Haki ya kweli ni tukio la mapenzi. Haki ya kweli sikuzote huzalisha tendo la inje na matokeo ya ndani. Kila muundo wa dhambi lazima uwekwe inje ya moyo. Kama mawakili wa maadili lazima akili zetu zisikubaliane na dhambi.
+> Neema na iwe kwenu na amani itokayo kwa Mungu Baba yetu, na kwa Bwana Yesu Kristo.
 
-### Neema kwenu na amani zitokazo kwa Mungu Baba yetu, na bwana wetu Yesu Kristo
+Hii ni salamu ya kawaida kwa Paulo katika nyaraka zake. Jina Yesu Kristo au Bwana au Bwana Yesu Kristo limetajwa mara kumi katika Warumi. Yesu ni jina binafsi kama mwokozi (Mat. 1:21). Kristo ni mpakwa mafuta wa Mungu Bwana anadokeza kusema kuwa yeye ni Bwana wa vyote vya mbinguni na duniani (Mdo. 10:36).
 
-Hii ni salamu ya kawaida kwa Paulo katika nyaraka zake. Jina Yesu Kristo au Bwana au Bwana Yesu Kristo limetajwa mara kumi katika Warumi. Yesu ni jina binafsi kama mwokozi (Mat. 1:21). Kristo ni mpakwa mafuta wa Mungu Bwana anadokeza kusema kuwa yeye ni Bwana wa vyote vya mbinguni na duniani (Mdo. 10:36). Yesu kristo ni bwana wetu wa kila hali!
-
-## Utayari wa Paulo (kutembelea, kupasha, & kuhubiri) (1:8–15)
+## Utayari wa Paulo kutembelea, kupasha, na kuhubiri (1:8–15)
 
 Mstari ya 8—15 inaelezea hisia binafisi za Paulo kwa ajili ya watakatifu wa Rumi.
 
@@ -45,4 +41,3 @@ Roma ilikuwa ya kimkakati, lakini Paulo anaongozwa na Roho na sio takwimu. Inawe
 Alikuwa anataka na hata alipanga kwenda, lakini alikuwa amezuiliwa. Paulo siku moja angeenda Roma kama mfungwa kusimama mbele ya viongozi wa Warumi na kutangaza Injili ya Yesu Kristo. Kitabu cha Matendo kinatuambia kwamba Paulo alikaa miaka miwili huko Roma. Inaaminika kwamba alikuwa chini ya kukamatwa kwa nyumba wakati huu wa kuwa Roma. Alikatwa kichwa huko Roma mnamo 67 BK.
 
 Paulo alikuwa na hamu kubwa ya kuhubiri Injili huko Roma. Yeye hutumia neno "mdaiwa" akimaanisha mwenyewe kuonyesha kuwa amejitolea kuwahubiria watu wote (mst. 14). Alikuwa na deni kwa mwenye dhambi kumwambia juu ya Kristo. "Wayunani" hutumiwa kurejelea Mataifa wenye busara ambao wameelimishwa kwa tamaduni na falsafa ya Uigiriki. "Wasio Wayunani" hutumiwa kurejelea wale walio nje ya tamaduni ya Uigiriki, ambayo isingeelimishwa. Paulo yuko tayari kuhubiria kila mtu.
-

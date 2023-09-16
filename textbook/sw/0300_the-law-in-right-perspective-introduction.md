@@ -6,27 +6,15 @@ Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wan
 
 ### Katika sura ya 3, tuna kanuni tano kuhusiana na sheria:
 
-#### Katika sura ya 1
-
-Paulo anajitambulisha mwenyewe na shauku yake kutembelea kanisa huko Rumi na kisha kutambulisha somo lake la Injili ya Yesu Kristo. Katika hii Injili, haki ya Mungu imefunuliwa kutoka imani hadi imani na ghadhabu ya Mungu imefuliwa dhidi ya wale wanao kataa Injili.
-
-#### Katika sura ya 2
-
-Paulo anathibisha kwamba ujuzi wa sheria hauwezi kuokoa (sio wasikiaji bali watendaji ndio wanao hesabiwa haki) na kusalia au kujivuna katika kujua sheria ni ujinga. Wote wanahatia chini ya sheria; wale ambao wanasheria watahukumiwa kwa ile sheria na wale wasio kuwa nayo watapotea pasipo sheria.
-
-Paulo anaweka wazi kwamba kuhesabiwa sio kwa wale wanao hifathi herufi ya sheria, bali kwa wale ambao ni wayahudi kwa ndani (2:29). Sheria ya tohara ambao inafaa ni utaratibu wa moyo na roho.
-
-#### Katika sura ya 3
-
 Paulo anaiweka sheria katika taswira yake ilio sahihi. Myahudi wa kidini anatoa sauti ya mgongano katika ujuzi wake wa sheria ya Musa kana kwamba ilikuwa kitu cha kuwahesabia haki mbele za Mungu. Wao walikuwa wamefunika taswira ya kile ambacho sheria hufanya. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
 
 Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa wayahudi kwa Kristo. Roho mtakatifu alijuwa wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika War. 3, tunakutana na ukanushi wa udhuru wa wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
 
-- Faida ya kweli ya kuwa na sheria (mst. 1—2)
-- Uhalisi wa sheria (mst. 3—8)
-- Mamlaka yasiyo pinda sheria (mst. 9—19)
-- Kusudi la kweli la sheria (mst. 20—30)
-- Kuthibitishwa kwa sheria (mst. 31)
+1. Faida ya kweli ya kuwa na sheria (mst. 1—2)
+2. Uhalisi wa sheria (mst. 3—8)
+3. Mamlaka yasiyo pinda sheria (mst. 9—19)
+4. Kusudi la kweli la sheria (mst. 20—30)
+5. Kuthibitishwa kwa sheria (mst. 31)
 
 ### Sheria ni nini?
 
@@ -51,29 +39,16 @@ Musa alikuwa ametumiwa kama mwaaguzi wa Mungu, lakini yeye hakuwa mjumbe pekee n
 
 Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya Musa (mwizi msalabani). Mtu hawezi kamwe kuhesabiwa ikiwa anakinzana na mawazo ya Mungu.
 
-<!--<img src="/images/god-can-justify-without-moses.png" />-->
-
 > War. 7:22—Kwa maana naifurahia sheria ya Mungu kwa utu wa ndani,
 
 ## Faida ya kweli ya kuwa na sheria (mst. 1—2)
-
-Kuwa na sheria iliopokelewa mara kwanza, je wayahudi wana faida gani? (mst. 1—2)
 
 ### Faida SIO ILE ambayo wao kwakurithi ni kuu kwa mataifa
 
 Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
 
-### Faida ni kwamba wao walipokea kwanza mambo ya Mungu. 
+### Faida ni kwamba wao walipokea kwanza mambo ya Mungu.
 
 "Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yoh. 1:11).
 
 Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua fursa ya kupokea imani kutoka kwa Mungu. Tunaweza kujua zaidi na kutamani kumpendeza Mungu.
-
-### Maaombi
-
-> 2 Petro 2:21—Maana ingekuwa heri kwao kama wasingaliijua njia ya haki, kuliko kuijua, kisha kuiacha ile amri takatifu waliyopewa.
-
-Swali: Je ni faida kutojua mapenzi ya Mungu?
-
-Jibu: Hapana. Nibaraka kuwa na fursa ya kujua mapenzi ya Mungu. Petro anaelezea ukuu wa kiwango cha hukumu ya watu wanaorudi nyuma wamehukumiwa.
-
