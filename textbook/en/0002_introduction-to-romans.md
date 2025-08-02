@@ -1,12 +1,12 @@
-# Introduction to the Study of Romans
+# Introduction to the study of Romans
 
-The Epistle of Romans is a treasure of truth that needs to be understood by the Saints of God. This study will endeavor to help you to understand its important doctrines.
+The Epistle of Romans is a treasure of truth that needs to be understood by the saints of God. This study will endeavor to help you to understand its important doctrines.
 
 ## Authorship of the Epistle to the Romans
 
 ### Romans' internal evidence supports Paul's authorship
 
-Paul claimed to have written it (1:1). Romans' style is the same found in I and II Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal." To read Paul's epistles is almost the same as hearing his voice. Paul wrote like he talked.
+Paul claimed to have written it (1:1). Romans' style is the same found in I and 2 Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal."
 
 The stage of development of Christian doctrine which the letter reveals fits naturally to the time of Paul. Paul was at the height of his ministry at about the middle of the first century at which time the common issues which disturbed the churches are the same issues dealt with in Romans.
 
@@ -14,18 +14,17 @@ The stage of development of Christian doctrine which the letter reveals fits nat
 
 Paul was known as the writer of the epistle to the Romans as early as AD 95. Some of the writers who recognized Pauline authorship of Romans were:
 
-1. NT Writers—Especially Peter (2 Peter 3:15)
-2. Clement of Rome (AD 95)
-3. Ignatius of Antioch (AD 110)
-4. Polycarp, the Bishop of Smyrna (After AD 110)
+1. Clement of Rome (AD 95)
+2. Ignatius of Antioch (AD 110)
+3. Polycarp, the Bishop of Smyrna (after AD 110)
 
-## Who Did Not Start the Church at Rome
+## Who did not start the Church at Rome
 
-Paul wrote this epistle, but did not start the church at Rome, nor had he ever visited this church up until sometime after writing of this epistle. The Christian church in Rome was already existed before the writing of the epistle to the Romans with groups of believers meeting in homes such as that of Priscilla and Aquilla. If we compared Romans 1:8, 1:11, and chapter 16, we can safely conclude there was a Christian church at Rome before Paul or even Peter.
+Paul wrote this epistle, but did not start the church at Rome, nor had he ever visited this church up until sometime after writing of this epistle. The Christian church in Rome was already existed before the writing of the epistle to the Romans with groups of believers meeting in homes, such as that of Priscilla and Aquilla. If we compared Romans 1:8, 1:11, and chapter 16, we can safely conclude there was a Christian church at Rome before Paul or even Peter.
 
-There is not much historical record of the founding of the church in Rome, but we will can also conclude that Peter did not found the Roman church either as advocated by the Roman Catholic church. Paul never once names Peter as being in Rome and it would seem logical if Peter was the leader of the church that Paul would have mentioned him in his salutation in Romans 16. Instead, Paul lists 28 people in that salutation among whom listed first were Priscilla and Aquilla. Furthermore, the Book of Acts places Peter in Jerusalem not in Rome founding the church there in Jerusalem.
+There is not much historical record of the founding of the church in Rome, but we will can also conclude that Peter did not found the Roman church either, as advocated by the Roman Catholic church. Paul never once names Peter as being in Rome, and it would seem logical if Peter was the leader of the church that Paul would have mentioned him in his salutation in Romans 16. Instead, Paul lists 28 people in that salutation among whom listed first were Priscilla and Aquilla. Furthermore, the Book of Acts places Peter in Jerusalem not in Rome founding the church there in Jerusalem.
 
-## The Birth of a Christian Church at Rome
+## The birth of a Christian Church at Rome
 
 The Roman Empire was in power at the time of the writing of this epistle and Rome was also the capital city of this empire—it was the chief city of the world. It has been said that "all roads led to Rome." This is because it was the Romans who introduced and built a new system of roads stemming from the capital city of Rome itself. Rome was the center of the world and a strategic place out of which gospel could spread.
 
@@ -35,11 +34,11 @@ The historian Cassius Dio reports the following action taken by Claudius against
 
 > "As for the Jews, who had again increased so greatly that by reason of their multitude it would have been hard without raising a tumult to bar them from the city, he did not drive them out, but ordered them, while continuing their traditional mode of life, not to hold meetings."
 
-Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57–58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of Believers. Though their gathering places were 'decentralized', especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being 'one body' in Christ.
+Resulting from the restrictions imposed by the government was a Gentile-dominated church. It is this church that received Paul's letter sometime around AD 57–58. Instead of in central synagogues or large meeting places, this church met in small groups around the city of Rome as in the homes of believers. Though their gathering places were decentralized, especially from the letter to the Romans, we can see the Christian church maintained communication and the sense of being "one body" in Christ.
 
 ## Time and place
 
-Romans was written from Corinth around 57–58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1–4; 2 Cor. 8:1—7) and Romans 15:25–28 looks upon it as just completed. Since in I Corinthians 16:3–4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57–58.
+Romans was written from Corinth around 57–58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so immediately; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and 2 Corinthians refer to the collection as being in progress (I Cor. 16:1–4; 2 Cor. 8:1—7) and Romans 15:25–28 looks upon it as just completed. Since in I Corinthians 16:3–4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth.
 
 ## Purpose
 

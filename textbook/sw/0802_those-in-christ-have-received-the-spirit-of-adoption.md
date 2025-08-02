@@ -21,7 +21,7 @@ Roho Mtakatifu alimfufua Yesu kutoka wafu. Mwili wa kufa unayo hesabiwa kufa uta
 
 ### Kwa kuwa tumepokea roho wa uhuisho, nimekwisha kuwa katika familia mpya (mst. 14—17)
 
-Je, sisi sote ni watoto wa Mungu? Watu wote ni viumbe wa Mungu, bali wale tu waliozaliwa mara ya pili ndio watoto wa Mungu. (Yoh. 1:12, 13; Gal. 3:26; Col. 1:16).
+Je, sisi sote ni watoto wa Mungu? Watu wote ni viumbe wa Mungu, bali wale tu waliozaliwa mara ya pili ndio watoto wa Mungu. (Yn. 1:12, 13; Gal. 3:26; Kol. 1:16).
 
 #### Roho atatupa mwomgozo (mst. 14)
 

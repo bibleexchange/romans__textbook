@@ -24,7 +24,7 @@ Ni ujumbe gani wa injili uliofunuliwa kwa wote? "Na yeyote aminiye hata aibika."
 
 #### Hawaja okolewa (10:1)
 
-Injili ni kwa ajili ya Wayahudi (War. 1:16; 2:9—10). Wayahudi wengi walikataa Injili (Mdo. 2:22—23). Mateso ya kwanza ya Wakristo kwa ukubwa yalitokea kwa Wayahudi (Mdo. 9:1—2).
+Injili ni kwa ajili ya Wayahudi (Rum. 1:16; 2:9—10). Wayahudi wengi walikataa Injili (Mdo. 2:22—23). Mateso ya kwanza ya Wakristo kwa ukubwa yalitokea kwa Wayahudi (Mdo. 9:1—2).
 
 ### Uzembe wakijinga wa Wayahudi (10:2)
 
@@ -40,8 +40,8 @@ Walikuwa na ari ya Mungu, lakini walipoteza ukweli wa muhimu: Haki ya Mungu amba
 
 **Soma Isaya 65:1—10**. Mungu atuma mhubiri -> mhubiri ahubiri -> wasikiaji wanasikia -> wasikiaji wanaamini -> muumini analiita jina la Bwana -> Bwana ana mwokoa. KUTOKUUNGANIKA kuko wapi? "Hawaja itii injili au kuisikiliza."
 
-- Je Mungu alituma mhubiri? NDIO (mst. 19, 20, Musa, Isaya, n. k.)
-- Mhubiri alihuri? NDIO (mst. 16)
-- Kusanyiko lilisikia? NDIO (Musa alisimulia na Isaya pia alisimulia, n. k.)
+- Je Mungu alituma mhubiri? Ndio (mst. 19, 20, Musa, Isaya, n. k.)
+- Mhubiri alihuri? Ndio (mst. 16)
+- Kusanyiko lilisikia? Ndio (Musa alisimulia na Isaya pia alisimulia, n. k.)
 
 Wasikiaji walikataa kuamini. Tunajukumu katika mpango wa Mungu kwa ajili ya ukombozi. Mungu anawatumia wa mataifa kuwaachokoza Wayahudi kwenye wivu (10:19).

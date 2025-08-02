@@ -34,4 +34,4 @@ Ulinzi wa mshitakiwa ni nini? Mshitakiwa hana la kusema; kila kinywa kimefungwa.
 
 Sheria inarejea zaidi ya sheria ya Musa; vilevile pia kwenye sheria ya maadili na sheria ya dhamiri. Watu wamataifa hawakuimiliki sheria ya Musa, lakini kila mtu anasheria ya maadili ya Mungu ilioandikwa katika moyo wake na kuthibitishwa na dhamiri yake.
 
-### Malipo ya kifo yameshatolewa dhidi ya mhukumiwa (War. 6:23)
+### Malipo ya kifo yameshatolewa dhidi ya mhukumiwa (Rum. 6:23)

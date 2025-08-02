@@ -8,7 +8,7 @@ Hivyo ni nani atakayepata faida ya wokovu? Yesu! Hakuwa mkuu bali kazi ya imani 
 
 ## Tutapata nini kupitia kwa Yesu (mst. 1)
 
-Wenye dhambi wako katika kifungo na hawezi kufurahia utimilifu wa Mungu uliotaka kuwabariki. Yeye aliyafanya kwa sababu ya dhambi. Ikiwa mtu ana nafasi yake katika Kristo na kwa kuawa kwake ni kwasababu ya dhanbi zao, yule mtu atapata mambo ya ajabu mengi kupitia hazina ya Yesu ambayo itamwezesha yeye kupata Neema ya Mungu kwa wingi. Yafuatayo ni baadhi ya Maandiko juu ya wingi: Mithali 28:20; Warumi 5:20; 15:13; II Korintho 8:7; 9:8; Wafilipi 1:9; 4:17; I Wathesalonike 3:12; 4:1; II Petro 1:5—8. Soma Warumi 5:1—5.
+Wenye dhambi wako katika kifungo na hawezi kufurahia utimilifu wa Mungu uliotaka kuwabariki. Yeye aliyafanya kwa sababu ya dhambi. Ikiwa mtu ana nafasi yake katika Kristo na kwa kuawa kwake ni kwasababu ya dhanbi zao, yule mtu atapata mambo ya ajabu mengi kupitia hazina ya Yesu ambayo itamwezesha yeye kupata Neema ya Mungu kwa wingi. Yafuatayo ni baadhi ya Maandiko juu ya wingi: Mithali 28:20; Warumi 5:20; 15:13; 2 Korintho 8:7; 9:8; Wafilipi 1:9; 4:17; I Wathesalonike 3:12; 4:1; 2 Petro 1:5—8. Soma Warumi 5:1—5.
 
 Kupitia Yesu:
 
@@ -21,13 +21,13 @@ Kupitia Yesu:
 
 ### Kupitia Yesu tunapokea Roho Mtakatifu (mst. 5)
 
-Pia angalia II Kor. 1:22; Gal. 4:4—7; Efes. 1:13—14.
+Pia angalia 2 Kor. 1:22; Gal. 4:4—7; Efe. 1:13—14.
 
 ## Tunapata nini kupitia upendo wa Mungu (mst. 6—10)
 
 ### Yesu alihamishwa na upendo (mst. 6)
 
-Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, n. k.) yaliwezekana kwasababu, "Hatukuwa na nguvu bado, mpaka wakati wa kufa kwake Kristo kwa ajili ya wenye dhambi." Ni damu ya Yesu Kristo iliyoishinda sheria na msukumo wa upendo wa matendo yake.
+Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, N. K.) yaliwezekana kwasababu, "Hatukuwa na nguvu bado, mpaka wakati wa kufa kwake Kristo kwa ajili ya wenye dhambi." Ni damu ya Yesu Kristo iliyoishinda sheria na msukumo wa upendo wa matendo yake.
 
 ## Ni upendo usio wa kawaida (mst. 7—8)
 
@@ -44,11 +44,11 @@ Tuliuwa wa ajabu kwa Mungu. Tulikuwa:
 
 Yesu alisukumwa na upendo, na alituokoa kutoka kwenye laana na akatupa kuhesababiwa haki kupitia damu yake.
 
-_Upatanisho_ maana yake "huja kwa maneno; makubaliano." Nilipopatanishwa kwa Mungu, alirekebisha maneno na kunibadilisha. Soma II Wakorintho 5:17 na Isaya 1:18—20
+_Upatanisho_ maana yake "huja kwa maneno; makubaliano." Nilipopatanishwa kwa Mungu, alirekebisha maneno na kunibadilisha. Soma 2 Wakorintho 5:17 na Isaya 1:18—20
 
-Upatanisho ni lazima kufanyika kwa mahusiano ya mtu na Mungu. Tunatakiwa kupokea huduma ya upatanisho (II Wak. 5:16—21). Mungu humbadilisha mtu vizuri kupitia upatanisho, na haya mabadiliko ni **kazi ya Mungu**. "Vitu vipya" huumbwa na Mungu, kama vile katika uumbaji Mungu alisema na iwepo dunia. Dunia katika chanzo chake. Wokovu ni Mungu aliupatanisha ulimwengu Mwenyewe.
+Upatanisho ni lazima kufanyika kwa mahusiano ya mtu na Mungu. Tunatakiwa kupokea huduma ya upatanisho (2 Kor. 5:16—21). Mungu humbadilisha mtu vizuri kupitia upatanisho, na haya mabadiliko ni **kazi ya Mungu**. "Vitu vipya" huumbwa na Mungu, kama vile katika uumbaji Mungu alisema na iwepo dunia. Dunia katika chanzo chake. Wokovu ni Mungu aliupatanisha ulimwengu Mwenyewe.
 
-Tumekuwa mabalozi wa ofisi ya upatanisho (War. 5:19—20). Dhambi ya mtu humtenga yeye kutoka kwa Mungu, lakini hutufanya sisi tukubali maneno ya upatanisho (War. 5:21).
+Tumekuwa mabalozi wa ofisi ya upatanisho (Rum. 5:19—20). Dhambi ya mtu humtenga yeye kutoka kwa Mungu, lakini hutufanya sisi tukubali maneno ya upatanisho (Rum. 5:21).
 
 ## Kupitia upatanisho wa Kristo neema ilitawala (mst. 11—21)
 

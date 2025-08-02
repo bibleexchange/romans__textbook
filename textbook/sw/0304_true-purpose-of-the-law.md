@@ -15,7 +15,7 @@ Maana ya "kuhesabiwa" haki ni kutangazwa kuwa mwenye haki. Kuhesabiwa ni kuwekwa
 > Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi.  
 > — Wiersbe, W. W. (1996). The Bible Exposition Commentary
 
-Bado, Wokovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki (War. 5:19).
+Bado, Wokovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki (Rum. 5:19).
 
 ### Haki hurejea usafi wa maadili
 
@@ -43,12 +43,12 @@ Kuhesabiwa haki sio tu Mungu kuonyesha huruma juu ya mwenye dhambi na kumwacha h
 
 ### Kipatanisho
 
-> Kipatanisho kihalisi humaanisha kuonyesha uondoaji wa ghadhabu kwa utoaji zawadi. Katika Angano la kale huelezwa kwa tendo la kukausha samaki (MALIPO). Jambo la kipanisho huinuka kwa ukubwa wa jambo kutoka kwenye dhana nzima ya ghadhabu ya Mungu, ambao watetezi wa mtazamo huu huwakilisha jamii na msemo wa kale. Wanahisi watu wa sasa hawawezi kushikilia dhana hii. Lakini watu wa Agano wa la kale hawakuwa na makatazo kama hayo. Kwa wao Mungu hukasirishwa na uovu kila siku (Zab. 7:11). Wao hawakuwa na shaka kwamba dhambi kwa kutoepuka huamsha mwitikio wenye nguvu kutoka kwa Mungu. Yeye kwa ujasiri yuko kinyume uovu katika kila muonekano na mundo wakati yeye huo huo yeey anaweza kuwa mpole wa hasira.  
+> Kipatanisho kihalisi humaanisha kuonyesha uondoaji wa ghadhabu kwa utoaji zawadi. Katika Angano la Kale huelezwa kwa tendo la kukausha samaki (malipo). Jambo la kipanisho huinuka kwa ukubwa wa jambo kutoka kwenye dhana nzima ya ghadhabu ya Mungu, ambao watetezi wa mtazamo huu huwakilisha jamii na msemo wa kale. Wanahisi watu wa sasa hawawezi kushikilia dhana hii. Lakini watu wa Agano wa la kale hawakuwa na makatazo kama hayo. Kwa wao Mungu hukasirishwa na uovu kila siku (Zab. 7:11). Wao hawakuwa na shaka kwamba dhambi kwa kutoepuka huamsha mwitikio wenye nguvu kutoka kwa Mungu. Yeye kwa ujasiri yuko kinyume uovu katika kila muonekano na mundo wakati yeye huo huo yeey anaweza kuwa mpole wa hasira.  
 > -Kamusi mpya ya Biblia
 
 ### Hebu tuangalie kifungu kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
 
-Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Waebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na Jipya.
+Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Ebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na Jipya.
 
 ## Mtu anahesabiwa haki kwa imani pasipo matendo ya sheria (mst. 28)
 

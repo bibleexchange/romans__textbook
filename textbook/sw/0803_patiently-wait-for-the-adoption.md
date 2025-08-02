@@ -4,7 +4,7 @@ Kwa sababu ya uwepo wa dhambi duniani, hatuoni utimilifu wa utukufu wa Mungu. Mu
 
 ### Mateso katika utukufu (mst. 18)
 
-Majaribu huhakikisha sifa ya kweli ya Mkristo. Ingawa kuteswa sio kutukuzwa, Paulo ameleta uangalifu wa kutukuzwa kwetu. Mkristo ana tumaini katika mateso, kwa kuteswa, pia tutatawala. Kristo ni mfano wetu wa mateso (I Petr. 2:21; Waebr. 2:10; 5:8—9; I Petr. 4:1; Yak. 5:10).
+Majaribu huhakikisha sifa ya kweli ya Mkristo. Ingawa kuteswa sio kutukuzwa, Paulo ameleta uangalifu wa kutukuzwa kwetu. Mkristo ana tumaini katika mateso, kwa kuteswa, pia tutatawala. Kristo ni mfano wetu wa mateso (1 Pet. 2:21; Ebr. 2:10; 5:8—9; 1 Pet. 4:1; Yak. 5:10).
 
 ### Muumba husubiri kwa udhihirisho wa mwana wa Mungu (mst. 19—22)
 

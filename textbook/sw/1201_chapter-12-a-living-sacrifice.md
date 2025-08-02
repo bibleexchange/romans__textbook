@@ -34,7 +34,7 @@ Muumini na mtindo wake wa maisha lazima yawe tofauti zaidi kuliko ulimwengu. Uli
 
 ### Kufanywa upya katika nia
 
-Kufanywa upya kwa ufahamu hutokea kwa Neno la Mungu (Zab. 119:9, 105). Ni kazi ya Roho. Ufahamau mzima lazima uje chini ya uongozi wa Roho (Waefeso 5:17—20). Ufahamu uliofanywa upya ni ufahamu wa Kristo. Sio kwamba ni ufahamu tofauti au mwingine, bali ni kazi ya Mungu ndani inayo zalisha ufahamu wa Kristo (Waflp. 2:5; 1 Cor. 2:14—16; Luka 19:10; 2 Tim. 1:7; Yohn 8:50).
+Kufanywa upya kwa ufahamu hutokea kwa Neno la Mungu (Zab. 119:9, 105). Ni kazi ya Roho. Ufahamau mzima lazima uje chini ya uongozi wa Roho (Efe. 5:17—20). Ufahamu uliofanywa upya ni ufahamu wa Kristo. Sio kwamba ni ufahamu tofauti au mwingine, bali ni kazi ya Mungu ndani inayo zalisha ufahamu wa Kristo (Flp. 2:5; 1 Kor. 2:14—16; Lk. 19:10; 2 Tim. 1:7; Yn. 8:50).
 
 ## Msimamo wa Mkristo kwa wengine (mst. 3—8)
 
@@ -44,7 +44,7 @@ Tu mwili mmoja katika Kristo, wenye karama mbali mbali. Kila moja ni kiungo cha 
 
 ### Penda kikwelii (mst. 9a)
 
-_Kutokuiga_ humaanisha "kutochukua wazo la mtu, hisia, au tabia; kujifanya." Upendo usioshindwa umeshuhudiwa kwa wema (2 Wakor 6:6).
+_Kutokuiga_ humaanisha "kutochukua wazo la mtu, hisia, au tabia; kujifanya." Upendo usioshindwa umeshuhudiwa kwa wema (2 Kor. 6:6).
 
 ### Kupenda wema na kuchukia uovu (mst. 9b)
 
@@ -52,6 +52,6 @@ _Kutokuiga_ humaanisha "kutochukua wazo la mtu, hisia, au tabia; kujifanya." Upe
 
 "Uovu" ni kile kinacho umiza, kuzuia uzalianaji katika asili, ya shetani, anasa au ubaya. Tunahitaji kukimbia uovu na kukimbilia mema. Hii sio hofu ya uovu kama ilivyo kwa ushirikina, lakini ni utakaso au mgawanyiko wa mwenendo wetu na maisha ya mawazo kutoka kwa vitu hivyo ambavyo ni kinyume na utakatifu wa Mungu. Je, tunawezaje "kuchukia" na "kuachana" na uovu? (Zab. 37:27; Is. 1:16)
 
-## Hitimisho la War 12
+## Hitimisho la Warumi 12
 
 Kuwa Mkristo inajumuisha kila eneo la maisha ya mtu. Nia na mwili hutolewa kwa Mungu kwa kujikabithi kimaadili kama sadaka ya kiroho. Kwa msimamo wake na matendo mbele ya Wakristo wengine yeye ni wakuonyesha ukweli kwamba yeye ni mfuasi na wengine katika mwili wa Kristo. Katika uhusiano wake na mwenye dhambi, yeye hufanya katika upendo na kumwachia Mungu ulipizaji kisasi kwa ajili ya uovu.

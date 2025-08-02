@@ -22,9 +22,9 @@ From this union with Christ will come our service to Christ (v. 6).
 
 - Serve with newness of life (6:4)
 - Serve in newness of Spirit (7:6)
-- Serve with new power (1:16; 8:11; I Cor 6:14; II Cor 13:4; II Thess. 1:11)
-- Serve as a new creature (II Cor. 5:17; Gal. 6:15)
+- Serve with new power (1:16; 8:11; I Cor 6:14; 2 Cor 13:4; 2 Thess. 1:11)
+- Serve as a new creature (2 Cor. 5:17; Gal. 6:15)
 
 ### The fruitfulness of this union
 
-Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal. 5:19–21), but union with Christ enables us to bring forth fruit of righteousness unto holiness (1:13; 5:3–5; 6:22; John 15:2, 4, 5, 8, 16; I Cor. 1:6; Gal. 5:22–23; Eph. 5:9; Php. 1:11; 4:17; Col. 1:6, 10; Tit. 3:14; Heb. 12:11; 13:15; James 3:18; 5:7; II Pet. 1:3–9).
+Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal. 5:19–21), but union with Christ enables us to bring forth fruit of righteousness unto holiness (1:13; 5:3–5; 6:22; John 15:2, 4, 5, 8, 16; I Cor. 1:6; Gal. 5:22–23; Eph. 5:9; Php. 1:11; 4:17; Col. 1:6, 10; Tit. 3:14; Heb. 12:11; 13:15; James 3:18; 5:7; 2 Pet. 1:3–9).

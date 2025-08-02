@@ -16,7 +16,7 @@ God's Law is governed by the nature of God. What is in the Law of God is because
 
 ### If some do not believe, will God break his promise? (v. 3—4)
 
-Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God's plan? Will unbelief cancel God's faithfulness? See II Timothy 2:13.
+Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God's plan? Will unbelief cancel God's faithfulness? See 2 Timothy 2:13.
 
 #### The Jews Cling to their Heritage as Abraham's Children as their Warranty (v. 3)
 

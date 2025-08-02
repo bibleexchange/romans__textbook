@@ -4,13 +4,13 @@
 
 Warumi sura ya 13 inaelezea kazi yetu katika amri na sheria, vilevile kazi za kiraia. Ndani yake tunaona kwamba upendo ni utimilifu wa sheria na kwamba hatuhitaji utoaji wowote kwa ajili ya mwili (mst. 14).
 
-Kwa kuwa sisi tunapokea ahadi ilioko kwenye Zaburi 47:3 (yeye atawashusha watu chini yetu na mataifa chini ya miguu yetu.) sasa tunaenda kujiunza kwenda kuwa watiifu sisi wenyewe kwa Mungu kwenye mamlaka yake. Hebu tuchunguze "utii wa Mkristo" (utii kwa watawala kama walivyo agizwa na Mungu) katika War sura ya kumi na tatu.
+Kwa kuwa sisi tunapokea ahadi ilioko kwenye Zaburi 47:3 (yeye atawashusha watu chini yetu na mataifa chini ya miguu yetu.) sasa tunaenda kujiunza kwenda kuwa watiifu sisi wenyewe kwa Mungu kwenye mamlaka yake. Hebu tuchunguze "utii wa Mkristo" (utii kwa watawala kama walivyo agizwa na Mungu) katika Warumi sura ya 13.
 
 ## Vifungo vya utiifu wetu (mst. 1)
 
 Sura ya 12 husisitiza hitaji letu la kukabithi miili yetu kama dhabihu iliohai, na sura ya 13 inafundisha juu ya umuhimu wa utii kwa wenye mamlaka.
 
-Sehemu ya pili ya mstari wa 2 hutuambia kwamba mamlaka yote hutoka kwa Mungu. Mamlaka yote ni ya Mungu (Zab. 62:10–11; 29:10; Mat. 19:26). Mamlaka ya kidunia lazima yapokee msukumo toka kwa Mungu mtawala (Kol. 1:16–17; Dan. 2:21). Tunainamishwa na Mungu kuwa katika utii wa mamlaka. Amri hii hutoka kwa Mungu.
+Sehemu ya pili ya mstari wa 2 hutuambia kwamba mamlaka yote hutoka kwa Mungu. Mamlaka yote ni ya Mungu (Zab. 62:10–11; 29:10; Mt. 19:26). Mamlaka ya kidunia lazima yapokee msukumo toka kwa Mungu mtawala (Kol. 1:16–17; Dan. 2:21). Tunainamishwa na Mungu kuwa katika utii wa mamlaka. Amri hii hutoka kwa Mungu.
 
 ## Jaribu la utii wetu (mst. 2)
 
@@ -20,7 +20,7 @@ Kwa kuwa mamlaka yote ni ya Mungu, wakati tunapojitiisha wenyewe kwa watu, kwa u
 
 ### Tunajitiisha ilikuipisha ghadhabu (mst. 3–4)
 
-Uasi unagharama kubwa. Hukumu ndio ile ambayo Paulo anaiwasilisha kama gharama ya uasi. Hakuna hofu kwa jambo la watawala wanaoagizwa na Mungu kama wenye hofu kwa ajili ya kazi njema bali kwa maovu. Kuepuka ghadhabu ya upanga wao (War. 12:18; Waebr. 12:2).
+Uasi unagharama kubwa. Hukumu ndio ile ambayo Paulo anaiwasilisha kama gharama ya uasi. Hakuna hofu kwa jambo la watawala wanaoagizwa na Mungu kama wenye hofu kwa ajili ya kazi njema bali kwa maovu. Kuepuka ghadhabu ya upanga wao (Rum. 12:18; Ebr. 12:2).
 
 ### Tuna jinyenyekeza kwa sababu ya dhamiri zetu (mst. 5)
 
@@ -43,11 +43,11 @@ Katika mistari ya 6 na 7 tunaona mifano ya utii kwa mamlaka ya kiraia:
 
 ## Tunatii kwa kuheshimu sheria ya upendo (mst. 8–10)
 
-Upendo hutimiza sheria. Kujihusisha na upendo ni kuitimiza sheria. Katika Yohana 14:15 Yesu anasema, "Mkinipenda, mtazishika amri zangu." Muumini yuko katika "uumbaji mpya," na kuenenda katika madarka ya "juu ya maisha" (Wagal. 6:15–16) sio kwa sheria. Katika kupenda yeye ametimiza sheia ya kiwango cha chini.
+Upendo hutimiza sheria. Kujihusisha na upendo ni kuitimiza sheria. Katika Yohana 14:15 Yesu anasema, "Mkinipenda, mtazishika amri zangu." Muumini yuko katika "uumbaji mpya," na kuenenda katika madarka ya "juu ya maisha" (Gal. 6:15–16) sio kwa sheria. Katika kupenda yeye ametimiza sheia ya kiwango cha chini.
 
 ## Uwakala wa utiifu (mst. 11–12)
 
-Bwana anaahidi kurudi, lakini wakati wakurudi ataikuta imani duniani? (Luk. 18:8)
+Bwana anaahidi kurudi, lakini wakati wakurudi ataikuta imani duniani? (Lk. 18:8)
 
 ## Sifa ya utii wetu (mst. 13–14)
 
@@ -57,7 +57,7 @@ Kila mwanafunzi wa Kikristo, lazima awe na kusudi, au maono, vinginevyo tutashin
 
 ### Je, tunafanya kazi ya Mungu au kazi zetu?
 
-Hii sio kazi yetu. Kazi yetu ni kuyafanya mapenzi yake yeye aliye tuita. Ni kuifanya kazi yake (Yoh. 4:34). Ikiwa tumeitwa, tuna kusudi lililo funuliwa katika maisha yetu. Ufunuo huu wa kusudi la Mungu kwa ajili ya maisha yetu hupokelewa kwa maombi.
+Hii sio kazi yetu. Kazi yetu ni kuyafanya mapenzi yake yeye aliye tuita. Ni kuifanya kazi yake (Yn. 4:34). Ikiwa tumeitwa, tuna kusudi lililo funuliwa katika maisha yetu. Ufunuo huu wa kusudi la Mungu kwa ajili ya maisha yetu hupokelewa kwa maombi.
 
 Kama wahudumu mnahitajiwa kuwaleta wengine kwenye kumjua Kristo; Iliwalitafute neno la Mungu wao wenyewe (mwanamke kisimani aliamini kwa sababu ya kile ambacho neno linasema).
 

@@ -1,6 +1,6 @@
 # Sheria ni taswira sahihi (sura ya 3)
 
-Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wanaoijua (mst. 1–2), kwa uhalisi katika asili yake (mst. 3–8), pasipo kupinda katika mamlaka yake (mst. 9–19), kuna kusudi tofauti (mst. 20–30), hakufaywa kwa kuepuka, bali zaidi huthibitishwa kwa imani yetu, (mst. 31).
+Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wanaoijua (mst. 1–2), kwa uhalisi katika asili yake (mst. 3–8), pasipo kupinda katika mamlaka yake (mst. 9–19), kuna kusudi tofauti (mst. 20–30), hakufaywa kwa kuepuka, bali zaidi huthibitishwa kwa imani yetu (mst. 31).
 
 ## Utangulizi
 
@@ -8,7 +8,7 @@ Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wan
 
 Paulo anaiweka sheria katika taswira yake ilio sahihi. Myahudi wa kidini anatoa sauti ya mgongano katika ujuzi wake wa sheria ya Musa kana kwamba ilikuwa kitu cha kuwahesabia haki mbele za Mungu. Wao walikuwa wamefunika taswira ya kile ambacho sheria hufanya. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
 
-Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wayahudi kwa Kristo. Roho mtakatifu alijuwa Wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika War. 3, tunakutana na ukanushi wa udhuru wa Wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
+Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wayahudi kwa Kristo. Roho mtakatifu alijuwa Wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika Rum. 3, tunakutana na ukanushi wa udhuru wa Wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
 
 1. Faida ya kweli ya kuwa na sheria (mst. 1—2)
 2. Uhalisi wa sheria (mst. 3—8)
@@ -24,22 +24,22 @@ Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado
 
 Ingawa tunaweza kupata neno lilelile "sheria" limetumika katika mistr 52 katika Warumi, Paulo mda wote hajadili kanuni zilezile au maelekezo.
 
-- War. 2:12—13, 17, 18, 20, 23, 25, 26: Wayahudi walikuwa na sheria ya Musa na wamataifa hawakuwa nayo. Wayahudi walijivuna na kubakia katika sheria ilioletwa kwa njia ya Musa na kwasababu ya kushika matendo ya sheria.
-- War. 2:14—15: Wamataifa walikuwa na sheria katika mioyo yao ama katika dhamiri zao
-- War. 3:27: Sheria ya imani
-- War. 7:2: Sheria ya mme wake
-- War. 7:22: Sheria ya Mungu
-- War. 7:23: Sheria ya dhambi
-- War. 8:2: Sheria ya Roho wa uzima katika Kristo Yesu
-- War. 9:31: Sheria ya haki
+- Rum. 2:12—13, 17, 18, 20, 23, 25, 26: Wayahudi walikuwa na sheria ya Musa na wamataifa hawakuwa nayo. Wayahudi walijivuna na kubakia katika sheria ilioletwa kwa njia ya Musa na kwasababu ya kushika matendo ya sheria.
+- Rum. 2:14—15: Wamataifa walikuwa na sheria katika mioyo yao ama katika dhamiri zao
+- Rum. 3:27: Sheria ya imani
+- Rum. 7:2: Sheria ya mme wake
+- Rum. 7:22: Sheria ya Mungu
+- Rum. 7:23: Sheria ya dhambi
+- Rum. 8:2: Sheria ya Roho wa uzima katika Kristo Yesu
+- Rum. 9:31: Sheria ya haki
 
 Musa alikuwa ametumiwa kama mwaaguzi wa Mungu, lakini yeye hakuwa mjumbe pekee na wa mwisho kwa wajumbe wa Mungu. Hatimaye, yeye alikuwa tu sehemu ya alama ya neno la uzima! Sheria katika dhamiri zetu au sheria iliotolewa kupitia Musa zote ni dhana za sheria ya Mungu. Mungu ametoa kanuni zake za milele kwa Musa na Mungu anatamani mapenzi yake, sheria yake, na maandishi yake kuhifadhiwa ndani ya moyo wa kila mtu na kuelewweka katika maisha yao.
 
-> War. 3:28—Basi, twaona ya kuwa mwanadamu huhesabiwa haki kwa imani pasipo matendo ya sheria.
+> Rum. 3:28—Basi, twaona ya kuwa mwanadamu huhesabiwa haki kwa imani pasipo matendo ya sheria.
 
 Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya Musa (mwizi msalabani). Mtu hawezi kamwe kuhesabiwa ikiwa anakinzana na mawazo ya Mungu.
 
-> War. 7:22—Kwa maana naifurahia sheria ya Mungu kwa utu wa ndani,
+> Rum. 7:22—Kwa maana naifurahia sheria ya Mungu kwa utu wa ndani,
 
 ## Faida ya kweli ya kuwa na sheria (mst. 1—2)
 
@@ -49,6 +49,6 @@ Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao Wayahudi walid
 
 ### Faida ni kwamba wao walipokea kwanza mambo ya Mungu.
 
-"Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yoh. 1:11).
+"Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yn. 1:11).
 
 Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua fursa ya kupokea imani kutoka kwa Mungu. Tunaweza kujua zaidi na kutamani kumpendeza Mungu.

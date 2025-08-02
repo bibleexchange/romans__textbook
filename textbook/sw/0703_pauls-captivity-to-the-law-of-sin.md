@@ -53,7 +53,7 @@ Mwili wa kifo hiki ukiwa na hofu! hauja kombolewa, hauja badilishwa, na uko chin
 
 > Warumi 6:14—Kwa maana dhambi haitawatawala ninyi: Kwa maana hamwi chini ya sheria, bali chini ya neema.
 
-Naweza kuepuka uovu? Ndio! Njia tumepewa kwa dhambi kutokaa (Efes. 6:13; II Petr. 2:20; I Yoh. 2:13; Col. 3:1—3). Akili zetu haziwezi kuwa mateka kwa dhambi (Warumi 12:2). Mstari wa 25 unasema, "Namshukuru Mungu, kwa Yesu Kristo Bwana Wetu." Kwa kifupi, Paulo alijua:
+Naweza kuepuka uovu? Ndio! Njia tumepewa kwa dhambi kutokaa (Efe. 6:13; 2 Pet. 2:20; 1 Yn. 2:13; Kol. 3:1—3). Akili zetu haziwezi kuwa mateka kwa dhambi (Rum. 12:2). Mstari wa 25 unasema, "Namshukuru Mungu, kwa Yesu Kristo Bwana Wetu." Kwa kifupi, Paulo alijua:
 
 1. Ile dhambi ilikaa kwake, hata kama alifurahia sheria ya Mungu.
 2. Yale mapenzi yake hayakuwa na nguvu ya kupigana na dhambi.

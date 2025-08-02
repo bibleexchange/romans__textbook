@@ -21,16 +21,16 @@ Wokovu ni dawa kamili kwa mwanadamu (mwili, nafsi, na roho). Mpango wa Mungu wa 
 
 Agano Jipya linaeleza Wokovu katika nyakati tatu: uliopo, uliopita, na ujao:
 
-| Uliopita                                                                                 | Uliopo                                                                                                                 | Ujao                                                                                                                                                                                                                            |
-| ---------------------------------------------------------------------------------------- | ---------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
-| Tumeokolewa: alimaliza kwa wakati uliopita                                               | Tunaokolewa: kitendo kinachoendelea                                                                                    | Tutaokolewa: itakamilika kwa wakati ujao                                                                                                                                                                                        |
-| Tumeokolewa kutoka kwenye adhabu ya dhambi na hatia: Kuhesabiwa haki, msamaha, kuokolewa | Kutoka nguvu ya dhambi: endelevu -> kutakaswa, kusafishwa                                                              | Kuokolewa mbali na dhambi kwa wakati uliopo: Alitukuzwa, imekamilika                                                                                                                                                            |
-| Nafsi, mwili, roho                                                                       | Uzima, mazungumzo, mwenendo                                                                                            | Kukamilishwa, fanikishwa, kumaliza                                                                                                                                                                                              |
-| II Tim. 1:9; Tit. 3:5; Efes. 2:8—9; Luk. 7:50; Yoh. 5:24; 6:47;                          | I Kor. 1:18 ("Tumeokolewa"), Filp. 2:12 II Kor. 2:15; II Kor. 15:2; Efes. 2:5, 8; Rum. 6:14; Gal. 2:19–20; IIKor. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yoh. 10:9; Rum. 10:13; IKor. 3:15, 5:15; Efes. 1:13, 14; I Thes. 5:8; Ebr. 10:36; I Tim. 2:4; I Petr. 1:5, 4:18; I Yoh. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
+| Uliopita                                                                                 | Uliopo                                                                                                              | Ujao                                                                                                                                                                                                                         |
+| ---------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------- | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| Tumeokolewa: alimaliza kwa wakati uliopita                                               | Tunaokolewa: kitendo kinachoendelea                                                                                 | Tutaokolewa: itakamilika kwa wakati ujao                                                                                                                                                                                     |
+| Tumeokolewa kutoka kwenye adhabu ya dhambi na hatia: Kuhesabiwa haki, msamaha, kuokolewa | Kutoka nguvu ya dhambi: endelevu -> kutakaswa, kusafishwa                                                           | Kuokolewa mbali na dhambi kwa wakati uliopo: Alitukuzwa, imekamilika                                                                                                                                                         |
+| Nafsi, mwili, roho                                                                       | Uzima, mazungumzo, mwenendo                                                                                         | Kukamilishwa, fanikishwa, kumaliza                                                                                                                                                                                           |
+| 2 Tim. 1:9; Tit. 3:5; Efe. 2:8—9; Lk. 7:50; Yn. 5:24; 6:47;                              | I Kor. 1:18 ("Tumeokolewa"), Flp. 2:12 2 Kor. 2:15; 2 Kor. 15:2; Efe. 2:5, 8; Rum. 6:14; Gal. 2:19–20; 2 Kor.. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yn. 10:9; Rum. 10:13; 1 Kor.. 3:15, 5:15; Efe. 1:13, 14; 1 The. 5:8; Ebr. 10:36; 1 Tim. 2:4; 1 Pet. 1:5, 4:18; 1 Yn. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
 
-Tunaweza kupata maelezo ya muhtasari katika II Wakorintho 1:10:
+Tunaweza kupata maelezo ya muhtasari katika 2 Wakorintho 1:10:
 
-> II Wakorintho 1:10—Aliyetuokoa sisi [WAKATI ULIOPITA] katika mauti kuu namna ile [WAKATI ULIOPO]: ambaye tumemtumaini kwamba atazidi kutuokoa [WAKATI UJAO];
+> 2 Wakorintho 1:10—Aliyetuokoa sisi [WAKATI ULIOPITA] katika mauti kuu namna ile [WAKATI ULIOPO]: ambaye tumemtumaini kwamba atazidi kutuokoa [WAKATI UJAO];
 
 #### Tutakuaje wafu wa dhambi?
 
@@ -50,7 +50,7 @@ Ina maanisha nini kuifia dhambi? Au ni nini matokeo ya kuifia dhambi? Paulo amet
 | Alikufa kwa ajili ya dhambi ya ulimwengu wote                      | Tunakufa kwenye dhambi                                                               |
 | Alikufa kwa njia ya uhamisho, mateso, kukamilisha Utukufu wa Mungu | Tunakufa kwa njia ya aibu ya asili ya miili, kuua mwili, kusulubisha maisha binafsi. |
 
-Kifo hiki ni mwisho wa waumini wenye mahusiano na dhambi (utu wa kale). Kabla hatujasulibishwa pamoja na Kristo tulikuwa watumishi (watumwa) wa dhambi (Mith. 13:15) na mlikuwa wafu katika dhambi (Efes. 2:1).
+Kifo hiki ni mwisho wa waumini wenye mahusiano na dhambi (utu wa kale). Kabla hatujasulibishwa pamoja na Kristo tulikuwa watumishi (watumwa) wa dhambi (Mith. 13:15) na mlikuwa wafu katika dhambi (Efe. 2:1).
 
 #### Uhusiano wa dhambi kwa muumini (mst. 6)
 
@@ -81,7 +81,7 @@ Chukua mamlaka juu ya akili yako katika jina la Yesu. Mstari wa 12 unasema, "Bas
 
 Mtakatifu amewekwa huru kutoka kwa bwana wae wa zamani aliposulibishwa pamoja na Kristo, lakini alipata bwana mpya. Ubwana wa maisha ya muumini yamemilikiwa na Kristo. Tuko huru mbali na dhambi, lakini hii pia maana yake tumefungwa kwenye haki. Dhambi ni mtego wa utumwa wa Shetani, bali haki ni huduma ya Kristo. Basi mkifanya dhambi ninyi ni watumishi wa Shetani, na sio watumishi wa Mungu. Huwezi kutumikia dhambi na pia kuwa mtumishi wa Mungu.
 
-Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi (damu ya Yesu) (Efes. 1:7). Neema itatawala kwa njia ya haki (War. 5:21). Neema ya Mungu haiwezi kutusaidia sisi kutumikia dhambi, bali inatuwezesha kumtumikia Mungu. Watumishi wa Mungu wajitakase" wajitenge mbali na dhambi na wajitenge kwa Mungu. Neema ya Mungu ni **ushawishi wa Mungu** juu ya moyo na fikra zake katika maisha (Luk. 2:40; Yoh. 1:14; 1:17; Mdo. 4:33).
+Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi (damu ya Yesu) (Efe. 1:7). Neema itatawala kwa njia ya haki (Rum. 5:21). Neema ya Mungu haiwezi kutusaidia sisi kutumikia dhambi, bali inatuwezesha kumtumikia Mungu. Watumishi wa Mungu wajitakase" wajitenge mbali na dhambi na wajitenge kwa Mungu. Neema ya Mungu ni **ushawishi wa Mungu** juu ya moyo na fikra zake katika maisha (Lk. 2:40; Yn. 1:14; 1:17; Mdo. 4:33).
 
 ### Sisi ni watumishi wa dhambi au wa Mungu (mst. 6)
 
@@ -91,7 +91,7 @@ Maisha ya Mkristo ni ya hiyari, lakini tuwe wazalishaji wa hiyari sisi wenyewe k
 
 "Tabia ya zamani ni ngumu kufa." Kitu kinachobadilisha utumishi wetu kutoka kwenye dhambi ni wewe mwenyewe kwa Mungu, tunatakiwa tuwe na tahadhari katika jitihada zetu za kumtumikia Bwana wetu kwa uaminifu. Tunaelekezwa kufanya baadhi ya mambo:
 
-Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efes. 5:12).
+Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efe. 5:12).
 
 ### Linganisha matokeo ya dhambi na matokeo ya haki (mst. 20—23)
 

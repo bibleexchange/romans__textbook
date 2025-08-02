@@ -18,8 +18,6 @@ It is unquestionable that the recipients of this epistle were the Roman Christia
 
 ### His greeting (v. 7b)
 
-> Grace to you and peace from God our Father, and the Lord Jesus Christ.
-
 This is a common greeting of Paul in his epistles. The title "Jesus Christ our Lord" or "Lord Jesus Christ" is used ten times in Romans. Jesus is the personal name as Savior. Matt. 1:21. Christ is "God's anointed one" Lord denotes He is Lord of all things in heaven and earth (Acts 10:36).
 
 ## Paul's Readiness to Visit, Impart, and Preach (v. 8–15)

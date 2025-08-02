@@ -15,7 +15,7 @@ Kutumikia waraka wa zamani wa sheria haukumfanya Paulo kuwa mwenye haki, bali ba
 > Sheria yake ni mapenzi yake. Ilishauri kile ambacho ni rahisi, na sahihi, na jema na kukataza kile ambacho hakifai, jeuri, na kuumiza.  
 > —Adam Clarke
 
-Sheria ilifunua ukweli wa dhambi (Kol. 3:5; I Thes. 4:5). Matokeo ya ulimwengu yangekuaje bila sheria? Sheria ilikuwa muwakilishi wa agizo (amri) usalama, utulivu, uaminifu, sare, usawa. Kutokuwepo kwa sheria kulizua machafuko, kwa watumishi wabaya. Kama nguvu ya sheria ilizuiliwa matokeo yake yangekuaje? Mwisho wa dunia.
+Sheria ilifunua ukweli wa dhambi (Kol. 3:5; 1 The. 4:5). Matokeo ya ulimwengu yangekuaje bila sheria? Sheria ilikuwa muwakilishi wa agizo (amri) usalama, utulivu, uaminifu, sare, usawa. Kutokuwepo kwa sheria kulizua machafuko, kwa watumishi wabaya. Kama nguvu ya sheria ilizuiliwa matokeo yake yangekuaje? Mwisho wa dunia.
 
 ### Dhambi huleta mauti (mst. 8)
 
@@ -25,7 +25,7 @@ Nini ilikuwa hoja ya faida kwa dhambi? Sheria inaeleza mtenda dhambi ni kama **m
 
 #### Sheria ilifua nguvu ya dhambi (mst. 6)
 
-Chini ya sheria, mwanadamu alihukumiwa kifo nikwasababu ya dhambi. Warumi 7:5 inaeleza hali ya Wayahudi kimwili wakiitumikia dhambi ambaye waliichukulia wako chini ya sheria. Ilionyesha kuwa ilikuwa laana (Walawi. 27:26; 28:15; Zab. 119:21; Yer. 11:3; Gal. 3:10).
+Chini ya sheria, mwanadamu alihukumiwa kifo nikwasababu ya dhambi. Warumi 7:5 inaeleza hali ya Wayahudi kimwili wakiitumikia dhambi ambaye waliichukulia wako chini ya sheria. Ilionyesha kuwa ilikuwa laana (Law. 27:26; 28:15; Zab. 119:21; Yer. 11:3; Gal. 3:10).
 
 - Laana ilitangazwa hasa usalama wa utii wa maagizo.
 - Laana haikumaanisha kuangamiza mtu hata mmoja bali kutengeza toba.

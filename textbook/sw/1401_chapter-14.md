@@ -8,9 +8,9 @@ Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu. T
 
 Kunatofauti katika afya za imani zetu vile vile kunatofauti za maoni (madhaifu na yenye nguvu). Kunamaelekezo yaliyo wazi yaliyotolewa katika maandiko matakatifu:
 
-- "Hutufanya" katika amri 10 (Kutoka 20:1—17)
-- Wokovu ni kwanjia ya Yesu (Yoh 8:24; 14:6; Matendo 4:12)
-- Huwezi kumtumikia Mungu na mali (Mith 28:22; Waefeso 4:19; 1 Tim. 6:10; Mat 6:24)
+- "Hutufanya" katika amri 10 (Kut. 20:1—17)
+- Wokovu ni kwanjia ya Yesu (Yn. 8:24; 14:6; Mdo. 4:12)
+- Huwezi kumtumikia Mungu na mali (Mit. 28:22; Efe. 4:19; 1 Tim. 6:10; Mt. 6:24)
 
 Lakini pia kuna maoni mengi na ufasiri na matumizi ambayo hujazwa kati ya mistari. Wakristo wengi hugawanyika juu ya mambo kama vile:
 
@@ -49,10 +49,10 @@ Msitari wa sita kwa wazi unaelezea pande zote mbili za hoja ya kumjua Bwana.
 Ni nini tunayodhani kuwafanyia wengine:
 
 - **Onyesha heshima na shukurani** (12:10; 15:7)
-- **Shaurianeni** (15:14; Wakol. 3:16) tunapenda mioyo ya watu, na kuifikia mioyo ya watu. Tunaweka mioyo yetu kwa watu wengine kwa kuwapenda. Tunaonyesha huruma kwa kuwatia moyo wengine. Upendo husahihisha, hutia moyo, na hufundisha. Ili tumfundishe mwingine tofauti kati ya haki na uovu, Kwanza tunapswa kujijua tofauti zetu wenyewe.
-- **Sameheaneni** (Wakol. 3:13)
-- **Acha kuhukumu** (Warumi 14:13)
-- **Tunapaswa kubebeana mizigo** (Wagl. 6:2)
+- **Shaurianeni** (15:14; Kol. 3:16) tunapenda mioyo ya watu, na kuifikia mioyo ya watu. Tunaweka mioyo yetu kwa watu wengine kwa kuwapenda. Tunaonyesha huruma kwa kuwatia moyo wengine. Upendo husahihisha, hutia moyo, na hufundisha. Ili tumfundishe mwingine tofauti kati ya haki na uovu, Kwanza tunapswa kujijua tofauti zetu wenyewe.
+- **Sameheaneni** (Kol. 3:13)
+- **Acha kuhukumu** (Rum. 14:13)
+- **Tunapaswa kubebeana mizigo** (Gal. 6:2)
 
 ## Usiweke kikwazo katika njia ya ndugu (mst. 13–17)
 

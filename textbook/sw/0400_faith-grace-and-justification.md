@@ -6,7 +6,7 @@ Kazi ya sheria katika kuhesabiwa haki ni ile inayoleta kuijua dhambi. Mtu haihes
 
 ## Abrahimu alihesabiwa haki kwa njia ya imani na sio kwa matendo (mst. 1—8)
 
-> War. 4:3—...Ibrahimu alimwamini Mungu, ikahesabiwa kwake kuwa haki.
+> Rum. 4:3—...Ibrahimu alimwamini Mungu, ikahesabiwa kwake kuwa haki.
 
 Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Abrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Abrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
 
@@ -15,7 +15,7 @@ Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Abrahamu ("wana wa Abraha
 - Ni nini kuhusu Ibrahimu Baba yetu?
 - Ni agano gani la tohara lililotolewa kwa Abrahimu, lisilo tufanya sisi kuwa haki?
 
-War sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
+Warumi sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
 
 1. katika sura ya 3, Paulo anathibitisha kwamba imani haipuki sheria bali zaidi ya hapo inaithibitisha.
 2. Katika sura ya 4 ahadi iliotolewa kwa Ibrahimu haikuwa kwa njia ya sheria (tohara) bali kwa njia ya haki ya imani.
@@ -24,7 +24,7 @@ War sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabi
 
 > Mwanzo 15:6 — Akamwamini BWANA, naye akamhesabia jambo hili kuwa haki.
 
-Kabla ya torati kwa Musa na kwa mda mrefu hata kabla hata musa kuzaliwa, Ibrahimu alikuwa amekwisha hesabiwa haki kwa imani kama ilivyo kwa Wakristo wa leo. Mungu alimpa Ibrahimu ahadi; yeye alimwamini Mungu ikahesabiwa kwake kuwa haki (War. 4:4).
+Kabla ya torati kwa Musa na kwa mda mrefu hata kabla hata musa kuzaliwa, Ibrahimu alikuwa amekwisha hesabiwa haki kwa imani kama ilivyo kwa Wakristo wa leo. Mungu alimpa Ibrahimu ahadi; yeye alimwamini Mungu ikahesabiwa kwake kuwa haki (Rum. 4:4).
 
 ### Mungu humhesabia haki mtu asiye mcha (mst. 5)
 

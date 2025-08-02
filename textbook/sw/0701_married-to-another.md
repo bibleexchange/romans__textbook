@@ -22,9 +22,9 @@ Kutokana na umoja huu wa Kristo utumishi wa Kristo utakuwa wetu (mst. 6).
 
 - Utumishi pamoja na uzima mpya (6:4)
 - utumishi katika upya wa Roho (7:6)
-- Utumishi kwa nguvu mpya (1:16; 8:11; IKor. 6:14; II Kor. 13:4; II Thes. 1:11)
-- Utumishi wa kiumbe kipya (II Kor. 5:17; Gal. 6:15)
+- Utumishi kwa nguvu mpya (1:16; 8:11; 1 Kor.. 6:14; 2 Kor. 13:4; 2 Thes. 1:11)
+- Utumishi wa kiumbe kipya (2 Kor. 5:17; Gal. 6:15)
 
 ### Matunda ya umoja huu
 
-Umoja wetu pamoja na dhambi huzalisha mauti (7:5; 1:32; 6:21; 7:5; Gal. 5:19—21), bali umoja pamoja na Kristo unatuwezesha sisi kuzaa matunda ya haki katiak utakatifu (1:13; 5:3—5; 6:22; Yoh. 15:2, 4, 5, 8, 16; I Kor. 1:6; Gal. 5:22—23; Efes. 5:9; Filp. 1:11; 4:17; Kol. 1:6, 10; Tit. 3:14; Ebr. 12:11; 13:15; Yak. 3:18; 5:7; II Pet. 1:3—9).
+Umoja wetu pamoja na dhambi huzalisha mauti (7:5; 1:32; 6:21; 7:5; Gal. 5:19—21), bali umoja pamoja na Kristo unatuwezesha sisi kuzaa matunda ya haki katiak utakatifu (1:13; 5:3—5; 6:22; Yn. 15:2, 4, 5, 8, 16; I Kor. 1:6; Gal. 5:22—23; Efe. 5:9; Flp. 1:11; 4:17; Kol. 1:6, 10; Tit. 3:14; Ebr. 12:11; 13:15; Yak. 3:18; 5:7; 2 Pet. 1:3—9).

@@ -16,7 +16,7 @@ The Epistle of Romans is a treasure of truth that needs to be understood by the 
 
 ### Romans' internal evidence supports Paul's authorship
 
-Paul claimed to have written it (1:1). Romans' style is the same found in I and II Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal." To read Paul's epistles is almost the same as hearing his voice. Paul wrote like he talked.
+Paul claimed to have written it (1:1). Romans' style is the same found in I and 2 Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal." To read Paul's epistles is almost the same as hearing his voice. Paul wrote like he talked.
 
 The stage of development of Christian doctrine which the letter reveals fits naturally to the time of Paul. Paul was at the height of his ministry at about the middle of the first century at which time the common issues which disturbed the churches are the same issues dealt with in Romans.
 
@@ -49,7 +49,7 @@ Resulting from the restrictions imposed by the government was a Gentile-dominate
 
 ## TIME & PLACE
 
-Romans was written from Corinth around 57—58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1—4; 2 Cor. 8—9) and Romans 15:25—28 looks upon it as just completed. Since in I Corinthians 16:3—4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57—58.
+Romans was written from Corinth around 57—58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and 2 Corinthians refer to the collection as being in progress (I Cor. 16:1—4; 2 Cor. 8—9) and Romans 15:25—28 looks upon it as just completed. Since in I Corinthians 16:3—4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57—58.
 
 ## OCCASION
 
@@ -65,7 +65,7 @@ Romans is a theological treatise of the meaning of the Gospel. Though the church
 
 An apostle is one who has been SENT FORTH as a messenger or representative of and fully authorized by the sender—a delegate or ambassador. (Acts 9:3—9, 15—22, 28) Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts 1, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
 
-Paul was a "preacher of the Gospel." He was a separated messenger with a special Message. The Gospel is a mystery (Mark 4:11; I Tim. 3:9,16; Col. 2:2; 4:3; Eph. 1:9) and a Divine revelation. (Acts 9).
+Paul was a "preacher of the Gospel." He was a separated messenger with a special Message. The Gospel is a mystery (Mark 4:11; 1 Tim. 3:9,16; Col. 2:2; 4:3; Eph. 1:9) and a Divine revelation. (Acts 9).
 
 Absolute consecration is spoken of in these words. Paul was set apart to preach one message and only one message. Paul did not declare a message that exalted himself nor did he do a work to further his position in the eyes of men. Paul declares that his purpose in life was the Gospel of God, and so should this be our purpose as ministers of the Gospel.
 
@@ -326,7 +326,7 @@ God&apos;s Law is governed by the nature of God. What is in the Law of God is be
 
 ### If some do not believe, will God break his promise? v. 3—4
 
-Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God&apos;s plan? Will unbelief cancel God&apos;s faithfulness? See II Timothy 2:13
+Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God&apos;s plan? Will unbelief cancel God&apos;s faithfulness? See 2 Timothy 2:13
 
 #### The Jews Cling to their Heritage as Abraham&apos;s Children as their Warranty. (v. 3)
 
@@ -828,7 +828,7 @@ The law with his prescription of condemnation has dominion over the man living i
 
 The sinner is in a binding relationship to his sin, just as a wife is bound to her husband. As long as they both live, the husband and wife are bound to each other under God.
 
-Paul announces a death! It is the death of self. As the wife would be free from the law of her husband by death, so the sinner is freed from the law of sin through sharing in Christ's death. This death is the crucifixion of the old man with Christ (Acts 13:38–39; Rom. 3:25; 5:21; 6:6; 7:4; II Cor. 5:15; Gal. 1:4; 2:20; 5:24; 6:14; Eph. 4:22; 5:2; Col. 2:11; 3:5, 9; Tit. 2:14; Heb. 9:15; 1 Pet. 1:21; 4:2; 1 John 2:2; 4:10). Raised then in resurrection, we share in Christ's life that we might be married to another. In this second marriage, we are united with Christ.
+Paul announces a death! It is the death of self. As the wife would be free from the law of her husband by death, so the sinner is freed from the law of sin through sharing in Christ's death. This death is the crucifixion of the old man with Christ (Acts 13:38–39; Rom. 3:25; 5:21; 6:6; 7:4; 2 Cor. 5:15; Gal. 1:4; 2:20; 5:24; 6:14; Eph. 4:22; 5:2; Col. 2:11; 3:5, 9; Tit. 2:14; Heb. 9:15; 1 Pet. 1:21; 4:2; 1 John 2:2; 4:10). Raised then in resurrection, we share in Christ's life that we might be married to another. In this second marriage, we are united with Christ.
 
 ### The power of the law is terminated
 
@@ -846,12 +846,12 @@ From this union with Christ will come our service to Christ (v. 6).
 
 - Serve with newness of life (6:4)
 - Serve in newness of Spirit (7:6)
-- Serve with new power (1:16; 8:11; I Cor 6:14; II Cor 13:4; II Thess. 1:11)
-- Serve as a new creature (II Cor. 5:17; Gal. 6:15)
+- Serve with new power (1:16; 8:11; I Cor 6:14; 2 Cor 13:4; 2 Thess. 1:11)
+- Serve as a new creature (2 Cor. 5:17; Gal. 6:15)
 
 ### The fruitfulness of this union
 
-Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal.5:19–21), but union with Christ enables us to bring forth fruit of righteousness unto holiness (1:13; 5:3–5; 6:22; John 15:2,4,5,8,16; I Cor. 1:6; Gal. 5:22–23; Eph. 5:9; Php. 1:11; 4:17; Col. 1:6, 10; Tit. 3:14; Heb. 12:11; 13:15; James 3:18; 5:7; II Pet. 1:3–9).
+Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal.5:19–21), but union with Christ enables us to bring forth fruit of righteousness unto holiness (1:13; 5:3–5; 6:22; John 15:2,4,5,8,16; I Cor. 1:6; Gal. 5:22–23; Eph. 5:9; Php. 1:11; 4:17; Col. 1:6, 10; Tit. 3:14; Heb. 12:11; 13:15; James 3:18; 5:7; 2 Pet. 1:3–9).
 
 ## The law is holy, just, and good (v. 7–13)
 
@@ -1762,7 +1762,7 @@ The Epistle of Romans is a treasure of truth that needs to be understood by the 
 
 ### Romans' internal evidence supports Paul's authorship
 
-Paul claimed to have written it (1:1). Romans' style is the same found in I and II Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal." To read Paul's epistles is almost the same as hearing his voice. Paul wrote like he talked.
+Paul claimed to have written it (1:1). Romans' style is the same found in I and 2 Corinthians and especially Galatians. Paul's style and the style of Romans is intensely "personal." To read Paul's epistles is almost the same as hearing his voice. Paul wrote like he talked.
 
 The stage of development of Christian doctrine which the letter reveals fits naturally to the time of Paul. Paul was at the height of his ministry at about the middle of the first century at which time the common issues which disturbed the churches are the same issues dealt with in Romans.
 
@@ -1795,7 +1795,7 @@ Resulting from the restrictions imposed by the government was a Gentile-dominate
 
 ## TIME & PLACE
 
-Romans was written from Corinth around 57—58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and II Corinthians refer to the collection as being in progress (I Cor. 16:1—4; 2 Cor. 8—9) and Romans 15:25—28 looks upon it as just completed. Since in I Corinthians 16:3—4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57—58.
+Romans was written from Corinth around 57—58 AD. In Romans 15:19, Paul lets us know that he is near the culmination of this career and at the end of his third missionary journey. He has preached the Gospel, he says, "from Jerusalem and as far round as Illyricum," and goes on to make the amazing statement that he no longer has any room to work in that vast area. He wishes to go to Spain since Italy itself is already being evangelized, and to visit the Roman church along the way. But he cannot do so at once; he must first go to Jerusalem. The reason for this is both clear and evident. For some time, (2 Corinthians would suggest at least one year), Paul intimates, he has been engaged in taking a collection for the poor in Jerusalem. During the writing of the book of Romans, that collection is virtually, if not quite complete, and Paul is awaiting an opportunity to deliver the offering to Jerusalem. I and 2 Corinthians refer to the collection as being in progress (I Cor. 16:1—4; 2 Cor. 8—9) and Romans 15:25—28 looks upon it as just completed. Since in I Corinthians 16:3—4, Paul indicated that he plans to end his work on the collection in Corinth and then to depart from that city for Jerusalem, it is natural to suppose that he wrote Romans while at Corinth. Most scholars place the time of this epistle around AD 57—58.
 
 ## OCCASION
 
@@ -1811,7 +1811,7 @@ Romans is a theological treatise of the meaning of the Gospel. Though the church
 
 An apostle is one who has been SENT FORTH as a messenger or representative of and fully authorized by the sender—a delegate or ambassador. (Acts 9:3—9, 15—22, 28) Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts 1, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
 
-Paul was a "preacher of the Gospel." He was a separated messenger with a special Message. The Gospel is a mystery (Mark 4:11; I Tim. 3:9,16; Col. 2:2; 4:3; Eph. 1:9) and a Divine revelation. (Acts 9).
+Paul was a "preacher of the Gospel." He was a separated messenger with a special Message. The Gospel is a mystery (Mark 4:11; 1 Tim. 3:9,16; Col. 2:2; 4:3; Eph. 1:9) and a Divine revelation. (Acts 9).
 
 Absolute consecration is spoken of in these words. Paul was set apart to preach one message and only one message. Paul did not declare a message that exalted himself nor did he do a work to further his position in the eyes of men. Paul declares that his purpose in life was the Gospel of God, and so should this be our purpose as ministers of the Gospel.
 
@@ -1899,7 +1899,7 @@ The expression from faith to faith is referring to an increase of faith; showing
 
 The revelation of God&apos;s character and nature is not something apart and separate from the Gospel, but is bound up in the Gospel that we as hearers may LIVE. This life and righteousness is not received all at once, but is revealed to us from faith to faith. As we obey and do as we have received, God gives us more and this continual progression in righteousness is the path of life of the JUST. The key to maintaining our experience with God is progression. Paul declares in Hebrews 6:1, &quot;Let us go on.&quot;
 
-> II Corinthians 5:21—For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
+> 2 Corinthians 5:21—For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
 
 ### The just shall live by faith.
 
@@ -2226,7 +2226,7 @@ God&apos;s Law is governed by the nature of God. What is in the Law of God is be
 
 ### If some do not believe, will God break his promise? v. 3—4
 
-Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God&apos;s plan? Will unbelief cancel God&apos;s faithfulness? See II Timothy 2:13
+Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God&apos;s plan? Will unbelief cancel God&apos;s faithfulness? See 2 Timothy 2:13
 
 #### The Jews Cling to their Heritage as Abraham&apos;s Children as their Warranty. (v. 3)
 
@@ -2860,7 +2860,7 @@ The law with his prescription of condemnation has dominion over the man living i
 
 The sinner is in a binding relationship to his sin, just as a wife is bound to her husband. As long as they both live, the husband and wife are bound to each other under God.
 
-Paul announces a death! It is the death of self. As the wife would be free from the law of her husband by death, so the sinner is freed from the law of sin through sharing in Christ's death. This death is the crucifixion of the old man with Christ (Acts 13:38–39; Rom. 3:25; 5:21; 6:6; 7:4; II Cor. 5:15; Gal. 1:4; 2:20; 5:24; 6:14; Eph. 4:22; 5:2; Col. 2:11; 3:5, 9; Tit. 2:14; Heb. 9:15; 1 Pet. 1:21; 4:2; 1 John 2:2; 4:10). Raised then in resurrection, we share in Christ's life that we might be married to another. In this second marriage, we are united with Christ.
+Paul announces a death! It is the death of self. As the wife would be free from the law of her husband by death, so the sinner is freed from the law of sin through sharing in Christ's death. This death is the crucifixion of the old man with Christ (Acts 13:38–39; Rom. 3:25; 5:21; 6:6; 7:4; 2 Cor. 5:15; Gal. 1:4; 2:20; 5:24; 6:14; Eph. 4:22; 5:2; Col. 2:11; 3:5, 9; Tit. 2:14; Heb. 9:15; 1 Pet. 1:21; 4:2; 1 John 2:2; 4:10). Raised then in resurrection, we share in Christ's life that we might be married to another. In this second marriage, we are united with Christ.
 
 ### The power of the law is terminated
 
@@ -2878,12 +2878,12 @@ From this union with Christ will come our service to Christ (v. 6).
 
 - Serve with newness of life (6:4)
 - Serve in newness of Spirit (7:6)
-- Serve with new power (1:16; 8:11; I Cor 6:14; II Cor 13:4; II Thess. 1:11)
-- Serve as a new creature (II Cor. 5:17; Gal. 6:15)
+- Serve with new power (1:16; 8:11; I Cor 6:14; 2 Cor 13:4; 2 Thess. 1:11)
+- Serve as a new creature (2 Cor. 5:17; Gal. 6:15)
 
 ### The fruitfulness of this union
 
-Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal.5:19–21), but union with Christ enables us to bring forth fruit of righteousness unto holiness (1:13; 5:3–5; 6:22; John 15:2,4,5,8,16; I Cor. 1:6; Gal. 5:22–23; Eph. 5:9; Php. 1:11; 4:17; Col. 1:6, 10; Tit. 3:14; Heb. 12:11; 13:15; James 3:18; 5:7; II Pet. 1:3–9).## The law is holy, just, and good (v. 7–13)
+Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal.5:19–21), but union with Christ enables us to bring forth fruit of righteousness unto holiness (1:13; 5:3–5; 6:22; John 15:2,4,5,8,16; I Cor. 1:6; Gal. 5:22–23; Eph. 5:9; Php. 1:11; 4:17; Col. 1:6, 10; Tit. 3:14; Heb. 12:11; 13:15; James 3:18; 5:7; 2 Pet. 1:3–9).## The law is holy, just, and good (v. 7–13)
 
 In Romans 7:7–13, Paul establishes the goodness of God's Law and the wickedness of sin. Paul is writing to the Jew, those who understand the law (v. 1), and he properly frames the purpose and nature of the law. Service to the letter of the law cannot make one righteous, but in its exactness it awakens the sinner to his need of Christ.
 

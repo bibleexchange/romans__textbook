@@ -10,7 +10,7 @@ Waamini ni wakukaribishana wao kwa wao, kama Kristo alivyo wapokea mataifa—kwa
 
 Kuna tofauti nyingi za kidini na kimila kati ya Wayahudi na wamataifa kwa kufunguliwa injili kwa mataifa kulikuwa na ugumu mwingi wa kushinda. Paulo anaonya kwa ushupavu, tunatakiwa kufanya kazi ili kuwapokea wamataifa kama Mungu alivyo wapokea. Kiwango cha juu na kutawala kwa kile ambacho tabia zetu hupimwa "kama kristo alivyo tupokea sisi kwenye utukufu wa Mungu" (mst. 7).
 
-Kuwa myahudi kwa shaka, makanisa ya kwanza yange jisikia "kuwa ya Kiyahudi" (michanganyiko ya mila na ushawishi). Kulikuwa na ufukuzwaji kwa mara ya kwanza kutoka Rumi kwa Wayahudi wote na ni mageuzi ya kiasili na kimila yaliyo tokea katika makanisa ya kirumi. Mwishowe, Wayahudi walirudi katika mji wa Rumi kupata vitu tofauti zaidi ya walivyokuwa wameacha. Ilikuepuka mgawanyiko, Kanisa la kwanza lilikuwa linafanya kazi kwa pamoja ilikushinda tofauti zao za kimila kwa kujifunza vile vitu ambavyo "vinahitaji sana" (Matendo 15:28; Waefeso 4:3, 13).
+Kuwa myahudi kwa shaka, makanisa ya kwanza yange jisikia "kuwa ya Kiyahudi" (michanganyiko ya mila na ushawishi). Kulikuwa na ufukuzwaji kwa mara ya kwanza kutoka Rumi kwa Wayahudi wote na ni mageuzi ya kiasili na kimila yaliyo tokea katika makanisa ya kirumi. Mwishowe, Wayahudi walirudi katika mji wa Rumi kupata vitu tofauti zaidi ya walivyokuwa wameacha. Ilikuepuka mgawanyiko, Kanisa la kwanza lilikuwa linafanya kazi kwa pamoja ilikushinda tofauti zao za kimila kwa kujifunza vile vitu ambavyo "vinahitaji sana" (Mdo. 15:28; Efe. 4:3, 13).
 
 ### Kuna kanuni za kidunia
 
@@ -77,7 +77,7 @@ Kadiri Paulo alivyokuwa na ujasiri anaongea, haogopi kusema lakini kwa kile amba
 - Kwa uangalifu: ruhusu wale walioponywa kutoa ushuhuda.
 - Kwa uangalifu usifiche kile ambacho Mungu anafanya popote-Paulo hakutaka kujenga juu ya msingi wa mwingine (kazi).
 - Hapa watedakazi wamezuiliwa.
-- Nina ujumbe kwa ajili wale ambao hawajasikia (Mungu ameahidi hiyo! mst. 21; Isa 52:15; 65:1).
+- Nina ujumbe kwa ajili wale ambao hawajasikia (Mungu ameahidi hiyo! mst. 21; Is. 52:15; 65:1).
 
 ## Tunapaswa kufanya kazi katika kuwafikia wale ambao hawajafikiwa (mst. 22–33)
 
@@ -87,7 +87,7 @@ Kifungu "hizi nyakati nyingi" inaonyesha jinsi gani wakisto wa Rumi kwa kuendele
 
 ### Ratiba ya Paulo (mst. 25–28)
 
-Paulo anaelezea tena shauku yake na kusudi lake la kutelea kanisa la Rumi na ratiba yake. Alikuwa lazima kwanza aende Sipania na kukusanya sadaka kwa ajili ya watakatifu wa Yerusalemu. Yeye angeweza kuzileta Yerusalemu baada kile alichokusudia kutembelea Roma. Kwa jinsi gani Wakristo wa Makedonia na Akaya walivyohusika na maskini miongoni wa Wakristo walioko Yerusalemu? Walichangia kwa ajili ya maskini. Paulo mwenyewe pamoja na ndugu wengine walichukua hizi sadaka na kuzipeleka Yerusalemu, kupokea kwa mtu kile ambacho ni kanuni ya kiroho Paulo anawafundisha warumi kwa kuhusianisha hizi habari? Lilikuwa ni tendo la upendo juu ya sehemu ya watakatifu wa mataifa. Ilikuwa ni utimilizo wa maneno ya Bwana katika Yoh. 13:17, 35.
+Paulo anaelezea tena shauku yake na kusudi lake la kutelea kanisa la Rumi na ratiba yake. Alikuwa lazima kwanza aende Sipania na kukusanya sadaka kwa ajili ya watakatifu wa Yerusalemu. Yeye angeweza kuzileta Yerusalemu baada kile alichokusudia kutembelea Roma. Kwa jinsi gani Wakristo wa Makedonia na Akaya walivyohusika na maskini miongoni wa Wakristo walioko Yerusalemu? Walichangia kwa ajili ya maskini. Paulo mwenyewe pamoja na ndugu wengine walichukua hizi sadaka na kuzipeleka Yerusalemu, kupokea kwa mtu kile ambacho ni kanuni ya kiroho Paulo anawafundisha warumi kwa kuhusianisha hizi habari? Lilikuwa ni tendo la upendo juu ya sehemu ya watakatifu wa mataifa. Ilikuwa ni utimilizo wa maneno ya Bwana katika Yn. 13:17, 35.
 
 ## Hitimisho
 

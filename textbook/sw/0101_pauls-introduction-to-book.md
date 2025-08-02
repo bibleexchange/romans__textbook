@@ -8,7 +8,7 @@ Uwekwaji wakifu kamili umezungumzwa katika maneno haya. Paulo alitengwa kuhubiri
 
 ### Ujumbe wake (mst. 1–5)
 
-Ujumbe wa Paulo ni injili. Injili haikutokana na Paulo injili yote inamhusu Yesu Kristo.
+Ujumbe wa Paulo ni Injili. Injili haikutokana na Paulo Injili yote inamhusu Yesu Kristo.
 
 ### Wasomaji wake (mst. 6–7a)
 
@@ -17,8 +17,6 @@ Wale waliounganishwa na Yesu wameungwa pamoja naye katika wito wake. Walioitwa a
 Haina shaka kwamba waandikiwa wa waraka huu walikuwa ni Wakristo Warumi (mst. 7, 15). Kanisa lilikuwa na Wakristo Wayahudi na Wamataifa.
 
 ### Salamu zake (mst. 7b)
-
-> Neema na iwe kwenu na amani itokayo kwa Mungu Baba yetu, na kwa Bwana Yesu Kristo.
 
 Hii ni salamu ya kawaida kwa Paulo katika nyaraka zake. Jina Yesu Kristo au Bwana au Bwana Yesu Kristo limetajwa mara kumi katika Warumi. Yesu ni jina binafsi kama mwokozi (Mat. 1:21). Kristo ni mpakwa mafuta wa Mungu Bwana anadokeza kusema kuwa yeye ni Bwana wa vyote vya mbinguni na duniani (Mdo. 10:36).
 
@@ -40,4 +38,4 @@ Rumi ilikuwa ya kimkakati, lakini Paulo anaongozwa na Roho na sio takwimu. Inawe
 
 Alikuwa anataka na hata alipanga kwenda, lakini alikuwa amezuiliwa. Paulo siku moja angeenda Rumi kama mfungwa kusimama mbele ya viongozi wa Warumi na kutangaza Injili ya Yesu Kristo. Kitabu cha Matendo kinatuambia kwamba Paulo alikaa miaka miwili huko Roma. Inaaminika kwamba alikuwa chini ya kukamatwa kwa nyumba wakati huu wa kuwa Roma. Alikatwa kichwa huko Rumi mnamo 67 BK.
 
-Paulo alikuwa na hamu kubwa ya kuhubiri Injili huko Roma. Yeye hutumia neno "mdaiwa" akimaanisha mwenyewe kuonyesha kuwa amejitolea kuwahubiria watu wote (mst. 14). Alikuwa na deni kwa mwenye dhambi kumwambia juu ya Kristo. "Wayunani" hutumiwa kurejelea Mataifa wenye busara ambao wameelimishwa kwa tamaduni na falsafa ya Uigiriki. "Wasio Wayunani" hutumiwa kurejelea wale walio nje ya tamaduni ya Uigiriki, ambayo isingeelimishwa. Paulo yuko tayari kuhubiria kila mtu.
+Paulo alikuwa na hamu kubwa ya kuhubiri Injili huko Roma. Yeye hutumia neno "mdaiwa" akimaanisha mwenyewe kuonyesha kuwa amejitolea kuwahubiria watu wote (mst. 14). Alikuwa na deni kwa mwenye dhambi kumwambia juu ya Kristo. "Wayunani" hutumiwa kurejelea Mataifa wenye busara ambao wameelimishwa kwa tamaduni na falsafa ya Ugiriki. "Wasio Wayunani" hutumiwa kurejelea wale walio nje ya tamaduni ya Ugiriki, ambayo isingeelimishwa. Paulo yuko tayari kuhubiria kila mtu.

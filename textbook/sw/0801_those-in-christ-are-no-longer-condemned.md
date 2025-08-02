@@ -17,7 +17,7 @@ Mapenzi yangu mara zote yanafanya kinyume cha mapenzi ya Mungu, lakini ukiutangu
 
 #### Kuna sheria tatu zilizotajwa hapa
 
-1. **Sheria ya dhambi na kifo**. Ilikuwa ni kama sheria ya mvutano daima ikikuvuta chini. Inapinga ile ambaye ni ya njema na ya Kimungu. Inatuleta katika kifungo na hukumu. Kufungwa kwenye dhambi hutufanya tuwe watumishi wa shetani. Kuitumikia sheria ya dhambi huleta mauti. (7:22—23)
+1. **Sheria ya dhambi na kifo**. Ilikuwa ni kama sheria ya mvutano daima ikikuvuta chini. Inapinga ile ambaye ni ya njema na ya Kimungu. Inatuleta katika kifungo na hukumu. Kufungwa kwenye dhambi hutufanya tuwe watumishi wa shetani. Kuitumikia sheria ya dhambi huleta mauti (7:22—23).
 2. **Sheria ya Mungu** (aliyopewa kupitia Musa). Ni haki, nzuri, na takatifu. Inapinga dhambi na kazi za mwili. Inakuletea kushawishika na uamuzi. Sheria ikiwa dhaifu haiwezi kuokoa lakini inaelekeza kwa Kristo.
 3. **Sheria ya uzima wa Roho**. Sheria hii ni kuliko sheria ya dhambi na kifo. Ni maisha ya Yesu yalitolewa kwa waamini wa imani. Uhuru ni hali ya kuzaliwa kwa mtu upya, uhuru wa kumtumikia Yesu Kristo. Kumtumikia Bwana huleta wingi wa uzima. Kila muumini lazima adhihirishe maisha ya Yesu zaidi na zaidi.
 

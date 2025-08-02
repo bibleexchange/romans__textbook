@@ -4,7 +4,7 @@
 
 Tumeshafanya udhahiri kati ya maagizo maalumu yaliyotolewa kwa njia ya Musa yaakijumuishwa na Kusudi la Mungu. Ni kosa kubwa kuifanya sheria ya Musa kuwa ni maagizo ya mwisho ya mapenzi ya Mungu. Ukamilifu wa mapenzi ya Mungu ni mkubwa sana kuliko sheria iliotolewa kwa njia ya Musa.
 
-Iko katika Yesu, tunaona ukamilifu wa mapenzi ya Mungu. Bwana Yesu Kristo ni kiwango cha tarajio la Mungu (Waef. 4:11—16).
+Iko katika Yesu, tunaona ukamilifu wa mapenzi ya Mungu. Bwana Yesu Kristo ni kiwango cha tarajio la Mungu (Efe. 4:11—16).
 
 Kwa maana makusudi ya somo letu tumefafanua sheria ya Mungu kama:
 
@@ -16,7 +16,7 @@ Sheria ya Mungu inatawaliwa na asili yake. Kile kilicho ndani ya sheria ya Mungu
 
 ### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst. 3—4)
 
-Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama baadhi yao hawa amini je itazuia mpango wa Mungu? Je, wasio amini hufuta mpango wa Mungu? Angali II Tim. 2:13.
+Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama baadhi yao hawa amini je itazuia mpango wa Mungu? Je, wasio amini hufuta mpango wa Mungu? Angali 2 Tim. 2:13.
 
 #### Wayahudi hungangania urithi wao kama wana wa Ibrahimu kama haki yao (mst. 3)
 
@@ -24,7 +24,7 @@ Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kuba
 
 #### Jibu kwa halisi: ni sio! (mst. 4a)
 
-> II Tim. 2:13—Kama sisi hatuamini, yeye hudumu wa kuaminiwa. Kwa **maana hawezi kujikana mwenyewe.**
+> 2 Tim. 2:13—Kama sisi hatuamini, yeye hudumu wa kuaminiwa. Kwa **maana hawezi kujikana mwenyewe.**
 
 Hii sio sababu, ya baadhi ya Wayahudi ambayo hawakuwa waaminifu na ikahitajika imani katika kumwamini Yesu Kristo. Hii ni kwasababu ya ukamilifu wa mpango wa Mungu ambao muda wote uko katika Kristo.
 
@@ -32,7 +32,7 @@ Hii sio sababu, ya baadhi ya Wayahudi ambayo hawakuwa waaminifu na ikahitajika i
 
 > Nimekutenda dhambi Wewe peke yako, Na kufanya maovu mbele za macho yako. Wewe ujulikane kuwa una haki unenapo, Na kuwa safi utoapo hukumu (mst. 4).
 
-Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zab. 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu Wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa Wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
+Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zaburi 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu Wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa Wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
 
 ### Ikiwa dhambi zetu zinaitukuza haki ya Mungu, je yeye atatuhukumuje? (mst. 5—7)
 

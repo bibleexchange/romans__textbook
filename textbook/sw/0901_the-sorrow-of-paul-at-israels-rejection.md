@@ -10,9 +10,9 @@ Masikitiko yake kwa waliopotea ilikuwa unyofu na uvuvio wa Kimungu.
 
 **Paulo aliubeba mzigo!** Masikitiko yake yalikuwa mkazo - uzito mkubwa wa kuendelea, kujitoa dhabihu - binafisi.
 
-Paulo alipotia uzito mkubwa kwa kuisikitikia hali ya Waisrael kwa ujumla. Paulo akajikuta mahali ambapo angekuwa na hiari ya kushitakiwa kwa ajili ya Kristo kwamba ndugu zake wange patikana katika Kristo. Hili ni tangazo dogo la kibinafsi, bali tamko hatahivyo halikuwezekana. Nuru ya wenye dhambi katika giza lao ni kuhesabiwa haki, waliotakaswa, maisha matakatifu ya waamini kwamba wanatembea kwa kudumu katika Kristo na wokovu wao wenyewe uko katika Kristo tu. Tamko la Paulo ni nukuu ya Musa katika Kut. 32:32, 33.
+Paulo alipotia uzito mkubwa kwa kuisikitikia hali ya Waisrael kwa ujumla. Paulo akajikuta mahali ambapo angekuwa na hiari ya kushitakiwa kwa ajili ya Kristo kwamba ndugu zake wange patikana katika Kristo. Hili ni tangazo dogo la kibinafsi, bali tamko hatahivyo halikuwezekana. Nuru ya wenye dhambi katika giza lao ni kuhesabiwa haki, waliotakaswa, maisha matakatifu ya waamini kwamba wanatembea kwa kudumu katika Kristo na wokovu wao wenyewe uko katika Kristo tu. Tamko la Paulo ni nukuu ya Musa katika Kutoka 32:32, 33.
 
-Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe (War. 9:1—5; 11:26; 10:1). Shauku ya Mungu ni kwamba wenye dhambi wote waokolewe (1 Tim. 2:4; 2 Pet. 3:9; Ezekiel 18:23; Mat. 23:37). Paulo ni mwenye haki katika shauku yake na sio kwamba anapingana ufahamu na mapenzi ya Mungu.
+Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe (Rum. 9:1—5; 11:26; 10:1). Shauku ya Mungu ni kwamba wenye dhambi wote waokolewe (1 Tim. 2:4; 2 Pet. 3:9; Eze. 18:23; Mt. 23:37). Paulo ni mwenye haki katika shauku yake na sio kwamba anapingana ufahamu na mapenzi ya Mungu.
 
 ## Msingi wa hisia yake (mst. 3b-5)
 
@@ -26,4 +26,4 @@ Wayahudi bado ni watu wa pekee kwa sababu Mungu amewapa baraka nyingi. Paulo ana
 6. **AHADI** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria.
 7. **MASIHA WA ISRAEL**
 
-Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yoh. 14:15; 1 Pet. 2:7—8)
+Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yn. 14:15; 1 Pet. 2:7—8)
