@@ -12,7 +12,7 @@ Righteousness is received by faith at salvation. There is a difference between i
 
 The expression "from faith to faith" is referring to an increase of faith; showing growth from the initial faith of salvation to a greater faith in God that comes with Christian growth. The Scripture tells us that every man is given the measure of faith (Rom. 12:3). All men have the ability to believe, yet all do not exercise their faith to believe in Jesus Christ. The apostles asked the Lord to increase their faith (Lk. 17:5). Faith is increased as it is put into practice. With Christian maturity comes an increase in faith. The righteousness of God is revealed from faith to faith through the Gospel.
 
-The revelation of God's character and nature is not something apart and separate from the Gospel, but is bound up in the Gospel that we as hearers may LIVE. This life and righteousness is not received all at once, but is revealed to us from faith to faith. As we obey and do as we have received, God gives us more and this continual progression in righteousness is the path of life of the JUST. The key to maintaining our experience with God is progression. Paul declares in Hebrews 6:1, "Let us go on."
+The revelation of God's character and nature is not something apart and separate from the Gospel, but is bound up in the Gospel that we as hearers may live. This life and righteousness is not received all at once, but is revealed to us from faith to faith. As we obey and do as we have received, God gives us more and this continual progression in righteousness is the path of life of the just. The key to maintaining our experience with God is progression. Paul declares in Hebrews 6:1, "Let us go on."
 
 ### The just shall live by faith
 

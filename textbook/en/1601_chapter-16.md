@@ -6,7 +6,7 @@
 
 It is interesting to note that there is somewhat a controversy over Romans 15:14–16:27. The question is "Where did Romans originally end? Was 15:13 originally the last verse of Romans?" Many old manuscripts do not contain this passage (15:14–16:27), and at the same time most do in one way or another. Some have it placed at the end of chapter fourteen and others both at the end of chapter fourteen and at the end of the book. This bears no influence of compromising the texts integrity, but can be logically explained. Someone copying the letter and desiring to disperse it among many different churches could have left off the parts personal to the church at Rome.
 
-### The Personality of This Passage: Personal
+### The personality of this passage: personal
 
 Romans chapter sixteen shows us the personal side of Paul as he sends greetings to Believers who live in Rome. He speaks as one does to friends and not only as a leader or pastor. This sixteenth chapter is often neglected by many. It is by far the most extensive, intimate, and particular of all the words of greeting in Paul's letters (second to it is Colossians 4). No one can afford to miss this wonderful outpouring of the heart of our apostle toward the saints whom he so loved, which means all the church of God.
 
@@ -25,7 +25,7 @@ The spirit of this chapter is exceptional particularly when you consider that Pa
 
 ## Phebe's commendation (v. 1–2)
 
-[NOTE: Several of the quotes in the section are taken from "Alexander MacLaren's Expositions of Holy Scripture". Alexander MacClaren (February 11, 1826 - May 5, 1910) was a Scotsman and minister of the Gospel for almost 65 years who labored tirelessly in preaching and writing concerning the Scripture. MacClaren's Expositions of Holy Scripture is a collection of over 1,500 expository sermons.]
+[Note: Several of the quotes in the section are taken from "Alexander MacLaren's Expositions of Holy Scripture". Alexander MacClaren (February 11, 1826 - May 5, 1910) was a Scotsman and minister of the Gospel for almost 65 years who labored tirelessly in preaching and writing concerning the Scripture. MacClaren's Expositions of Holy Scripture is a collection of over 1,500 expository sermons.]
 
 ### Paul recommends a sister (a sister not in the flesh but in the Lord)
 

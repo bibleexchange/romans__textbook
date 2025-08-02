@@ -38,7 +38,7 @@ Katika Wakor wa kwanza sura ya 8 Paulo alipaswa kushughulika na swala lile lile 
 
 ### Hukumu — Kila mtu atatoa hesabu kwa Mungu na sio kwa mwingine
 
-### Siku Days
+### Siku
 
 Roho ya sheria haiulizi "uliikumbuka siku?" bali huuliza kwamba je ulifanya kama kwa Bwana?" waliabudu kwa siku kadhaa, na walikuwa wanaweka umuhimu juu ya siku na sio kwa Kristo.
 

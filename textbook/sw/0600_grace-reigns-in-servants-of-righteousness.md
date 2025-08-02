@@ -30,7 +30,7 @@ Agano Jipya linaeleza Wokovu katika nyakati tatu: uliopo, uliopita, na ujao:
 
 Tunaweza kupata maelezo ya muhtasari katika 2 Wakorintho 1:10:
 
-> 2 Wakorintho 1:10—Aliyetuokoa sisi [WAKATI ULIOPITA] katika mauti kuu namna ile [WAKATI ULIOPO]: ambaye tumemtumaini kwamba atazidi kutuokoa [WAKATI UJAO];
+> 2 Wakorintho 1:10—Aliyetuokoa sisi [wakati uliopita] katika mauti kuu namna ile [wakati uliopo]: ambaye tumemtumaini kwamba atazidi kutuokoa [wakati ujao];
 
 #### Tutakuaje wafu wa dhambi?
 

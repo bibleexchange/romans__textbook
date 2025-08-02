@@ -18,12 +18,12 @@ Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe
 
 Wayahudi bado ni watu wa pekee kwa sababu Mungu amewapa baraka nyingi. Paulo anatoa urithi wa Wayahudi kama kuwa na sehemu ya saba. Kwa mafungamana ya Wayahudi:
 
-1. **KUKUBALIWA** - faida ya kukubaliwa - uwana
-2. **UTUKUFU** - Shekinah ya uwepo wa Mungu
-3. **MAAGANO** - Ahadi za Mungu zilifanywa kwa Israel
-4. **SHERIA** - Sheria ilitolewa kwenye mlima Sinai
-5. **HUDUMA** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
-6. **AHADI** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria.
-7. **MASIHA WA ISRAEL**
+1. **Kukubaliwa** - faida ya kukubaliwa - uwana
+2. **Utukufu** - Shekinah ya uwepo wa Mungu
+3. **Maagano** - Ahadi za Mungu zilifanywa kwa Israeli
+4. **Sheria** - Sheria ilitolewa kwenye mlima Sinai
+5. **Huduma** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
+6. **Ahadi** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria.
+7. **Masiha wa Israeli**
 
 Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yn. 14:15; 1 Pet. 2:7—8)

@@ -28,7 +28,7 @@ Ulinzi wa mshitakiwa ni nini? Mshitakiwa hana la kusema; kila kinywa kimefungwa.
 
 ## Uamuzi (mst. 20)
 
-### HATIA KAMA ILIVYO SHITAKIWA!
+### Hatia kama ilivyo shitakiwa!
 
 ### Hakuna mwenye mweili atakaye hesabiwa haki kwa matendo sheria
 

@@ -1,6 +1,6 @@
 # Utawala wa Neema "kupitia bwana wetu Kesu Kristo" (sura ya 5)
 
-## Utangulizi Introduction
+## Utangulizi
 
 Mtu akifanikiwa kuifikia Neema ya Mungu na kuhesabiwa haki kwa imani kwa kupewa na Mungu. Nafasi muhimu sana kwa imani kupokea huu utoaji inawezekana kama matokeo ya upendo wa Mungu na neema iliyoonyeshwa katika kifo cha Kristo. Tulinyamazishwa na sheria kwa hukumu yake juu ya dhambi, lakini uwepo na na ufahamu mzuri wa Mungu, ulipatikana kwa imani katika Yesu Kristo. Katika sura hii Paulo anasisitiza jukumu la Bwana wetu Yesu Kristo kwa waamini kuhesabiwa haki na kupata upendeleo kwa Mungu au "neema."
 

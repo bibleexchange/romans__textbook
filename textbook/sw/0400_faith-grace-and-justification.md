@@ -8,9 +8,9 @@ Kazi ya sheria katika kuhesabiwa haki ni ile inayoleta kuijua dhambi. Mtu haihes
 
 > Rum. 4:3—...Ibrahimu alimwamini Mungu, ikahesabiwa kwake kuwa haki.
 
-Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Abrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Abrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
+Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Ibrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Ibrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
 
-Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Abrahamu ("wana wa Abrahamu kimwili") kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa. Paulo anajibu maswali ya Wayahudi:
+Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Ibrahamu ("wana wa Ibrahamu kimwili") kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa. Paulo anajibu maswali ya Wayahudi:
 
 - Ni nini kuhusu Ibrahimu Baba yetu?
 - Ni agano gani la tohara lililotolewa kwa Abrahimu, lisilo tufanya sisi kuwa haki?
@@ -30,7 +30,7 @@ Kabla ya torati kwa Musa na kwa mda mrefu hata kabla hata musa kuzaliwa, Ibrahim
 
 Wale wasio zaliwa mara ya pili ni wenye dhambi na wapagani. Mwenye kutubu hutangazwa kuwa mwenye haki na Mungu kupitia damu ya Yesu. Wapagani hawana lolote la kufanya kwa ajili ya kuupata wokovu. Watahesabiwa haki kwa neema tu kwa njia ya imani.
 
-KUMBUKA: Mungu anadai imani na haghairi neema ya Mungu. Mashariti ya kuhesabiwa haki kwa matendo iko katika ushindani pamoja na neema ya Mungu ambao ni wema wake ambao ulikusudiwa tu kwasababu ya wema wa Mungu. Sharti la kuhesabiwa haki ni itikio la imani. Imani kikwelii inahitajika na kuhesabiwa haki kwetu bado ni kwa ajili ya utukufu wa Mungu kama yeye alivyotupa karama ya imani ambayo kwa hiyo twaweza kuitikia neema yake. Kuhesabiwa haki ni kwa neema na pia ni shariti: kwa neema kwa njia ya imani.
+Kumbuka: Mungu anadai imani na haghairi neema ya Mungu. Mashariti ya kuhesabiwa haki kwa matendo iko katika ushindani pamoja na neema ya Mungu ambao ni wema wake ambao ulikusudiwa tu kwasababu ya wema wa Mungu. Sharti la kuhesabiwa haki ni itikio la imani. Imani kikwelii inahitajika na kuhesabiwa haki kwetu bado ni kwa ajili ya utukufu wa Mungu kama yeye alivyotupa karama ya imani ambayo kwa hiyo twaweza kuitikia neema yake. Kuhesabiwa haki ni kwa neema na pia ni shariti: kwa neema kwa njia ya imani.
 
 ### Ushuhuda wa Daudi (mst. 6—8)
 
@@ -38,7 +38,7 @@ Paulo anatoa ushuhuda kutoka kwa Daudi unaosaidia ujumbe wa kuhesabiwa haki kwa 
 
 Daudi alikuwa anamshukuru Mungu kwamba dhambi zake zilikuwa zimesamehewa na hakuhesabiwa dhambi tena. Ikiwa dhambi haikuwa ndani yake na kusamehewa hii humaaniisha yeye akihifadhiwa katika uhusiano sahihi na Mungu.
 
-## Abrahamu alikuwa amehesabiwa haki kwa neema nasio kwa tohara (mst. 9—17)
+## Ibrahamu alikuwa amehesabiwa haki kwa neema nasio kwa tohara (mst. 9—17)
 
 Wayahudi walitazamia tohara na sheria kama chanzo cha haki yao. Ibrahimu alihesabiwa haki kabla ya agano la tohara. Alihesabiwa kuwa mwenye haki katika sura 15 na alikuwa na umri miaka 86 katika sura ya 16 wakati Ishimaili alipozaliwa. Mwanzo 17:24 inatoa habari ya kutahiriwa Ibrahimu akiwa umri wa miaka 99. Inaweka wazi kwamba yeyealihesabiwa kabla ya kutahiriwa. Kifungu hiki kinawaambia Wayahudi kwamba Ibrahimu alihesabiwa haki kabla ya kupokea agano la tohara.
 

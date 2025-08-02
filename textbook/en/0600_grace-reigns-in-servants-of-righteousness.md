@@ -30,7 +30,7 @@ The New Testament describes Salvation in three tenses: present, past, and future
 
 We can find a concise illustration of this in 2 Corinthians 1:10:
 
-> 2 Corinthians 1:10—Who delivered us [PAST] from so great a death, and doth deliver [PRESENT]: in whom we trust that he will yet deliver us [FUTURE];
+> 2 Corinthians 1:10—Who delivered us [past] from so great a death, and doth deliver [present]: in whom we trust that he will yet deliver us [future];
 
 #### How do we become dead to sin?
 
@@ -75,9 +75,9 @@ We are dead to sin, but alive to God. Death was vanquished and defeated by Chris
 
 Take authority over your mind in the name of Jesus. Verse 12 says "**let** not sin...." There is a power in God (His grace) that enables man to become dead to sin and live right. The believer must exercise his faith diligently in God's provision that the believer is no longer under the dominion of sin. "Self-control" is required of saints in order to remain under grace and out from under the curse of the law. Notice the words of action demanded of the saints in these verses: "reckon ye also yourselves...," "Let not sin therefore reign in your mortal body...," and "Neither yield ye your members as instruments of unrighteousness unto sin: but yield yourselves unto God...." We overcome sin by the word of God—by doing what He says. Yielding yourselves to God means that you find the root cause of your sin and remove it from your life.
 
-## Being Under Grace is not a license to sin (v. 15–23)
+## Being under grace is not a license to sin (v. 15–23)
 
-### The Story of Grace (v. 15)
+### The story of grace (v. 15)
 
 The saint is set free from his old master when he is crucified with Christ, but he finds a new master. Lordship of the believer's life belongs to Christ. We are free from sin, but this also means we are bound to righteousness. Sin is the slave trap of Satan, but righteousness is the service of Christ. If ye sin ye are the servants of Satan, and not the servants of God. You cannot serve sin and also be a servant to God.
 

@@ -228,7 +228,7 @@ Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya 
 
 ## Faida ya kweli ya kuwa na sheria (mst. 1—2)
 
-### Faida SIO ILE ambayo wao kwakurithi ni kuu kwa mataifa
+### Faida sio ile ambayo wao kwakurithi ni kuu kwa mataifa
 
 Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao Wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
 
@@ -260,7 +260,7 @@ Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama ba
 
 #### Wayahudi hungangania urithi wao kama wana wa Ibrahimu kama haki yao (mst. 3)
 
-Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kubatilisha ahadi zetu halisi tumekwisha pewa kwa kupitia Abrahamu. Walikuwa katika tokeo la kusema hakuna haja zaidi kile tulivyo, sisi ni wa uzao wa Abrahamu na hiyo itatufikisha mbinguni.
+Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kubatilisha ahadi zetu halisi tumekwisha pewa kwa kupitia Ibrahamu. Walikuwa katika tokeo la kusema hakuna haja zaidi kile tulivyo, sisi ni wa uzao wa Ibrahamu na hiyo itatufikisha mbinguni.
 
 #### Jibu kwa halisi: ni sio! (mst. 4a)
 
@@ -326,7 +326,7 @@ Ulinzi wa mshitakiwa ni nini? Mshitakiwa hana la kusema; kila kinywa kimefungwa.
 
 ## Uamuzi (mst. 20)
 
-### HATIA KAMA ILIVYO SHITAKIWA!
+### Hatia kama ilivyo shitakiwa!
 
 ### Hakuna mwenye mweili atakaye hesabiwa haki kwa matendo sheria
 
@@ -408,9 +408,9 @@ Kazi ya sheria katika kuhesabiwa haki ni ile inayoleta kuijua dhambi. Mtu haihes
 
 > Rum. 4:3—...Ibrahimu alimwamini Mungu, ikahesabiwa kwake kuwa haki.
 
-Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Abrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Abrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
+Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Ibrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Ibrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
 
-Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Abrahamu ("wana wa Abrahamu kimwili") kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa. Paulo anajibu maswali ya Wayahudi:
+Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Ibrahamu ("wana wa Ibrahamu kimwili") kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa. Paulo anajibu maswali ya Wayahudi:
 
 - Ni nini kuhusu Ibrahimu Baba yetu?
 - Ni agano gani la tohara lililotolewa kwa Abrahimu, lisilo tufanya sisi kuwa haki?
@@ -430,7 +430,7 @@ Kabla ya torati kwa Musa na kwa mda mrefu hata kabla hata musa kuzaliwa, Ibrahim
 
 Wale wasio zaliwa mara ya pili ni wenye dhambi na wapagani. Mwenye kutubu hutangazwa kuwa mwenye haki na Mungu kupitia damu ya Yesu. Wapagani hawana lolote la kufanya kwa ajili ya kuupata wokovu. Watahesabiwa haki kwa neema tu kwa njia ya imani.
 
-KUMBUKA: Mungu anadai imani na haghairi neema ya Mungu. Mashariti ya kuhesabiwa haki kwa matendo iko katika ushindani pamoja na neema ya Mungu ambao ni wema wake ambao ulikusudiwa tu kwasababu ya wema wa Mungu. Sharti la kuhesabiwa haki ni itikio la imani. Imani kikwelii inahitajika na kuhesabiwa haki kwetu bado ni kwa ajili ya utukufu wa Mungu kama yeye alivyotupa karama ya imani ambayo kwa hiyo twaweza kuitikia neema yake. Kuhesabiwa haki ni kwa neema na pia ni shariti: kwa neema kwa njia ya imani.
+Kumbuka: Mungu anadai imani na haghairi neema ya Mungu. Mashariti ya kuhesabiwa haki kwa matendo iko katika ushindani pamoja na neema ya Mungu ambao ni wema wake ambao ulikusudiwa tu kwasababu ya wema wa Mungu. Sharti la kuhesabiwa haki ni itikio la imani. Imani kikwelii inahitajika na kuhesabiwa haki kwetu bado ni kwa ajili ya utukufu wa Mungu kama yeye alivyotupa karama ya imani ambayo kwa hiyo twaweza kuitikia neema yake. Kuhesabiwa haki ni kwa neema na pia ni shariti: kwa neema kwa njia ya imani.
 
 ### Ushuhuda wa Daudi (mst. 6—8)
 
@@ -438,7 +438,7 @@ Paulo anatoa ushuhuda kutoka kwa Daudi unaosaidia ujumbe wa kuhesabiwa haki kwa 
 
 Daudi alikuwa anamshukuru Mungu kwamba dhambi zake zilikuwa zimesamehewa na hakuhesabiwa dhambi tena. Ikiwa dhambi haikuwa ndani yake na kusamehewa hii humaaniisha yeye akihifadhiwa katika uhusiano sahihi na Mungu.
 
-## Abrahamu alikuwa amehesabiwa haki kwa neema nasio kwa tohara (mst. 9—17)
+## Ibrahamu alikuwa amehesabiwa haki kwa neema nasio kwa tohara (mst. 9—17)
 
 Wayahudi walitazamia tohara na sheria kama chanzo cha haki yao. Ibrahimu alihesabiwa haki kabla ya agano la tohara. Alihesabiwa kuwa mwenye haki katika sura 15 na alikuwa na umri miaka 86 katika sura ya 16 wakati Ishimaili alipozaliwa. Mwanzo 17:24 inatoa habari ya kutahiriwa Ibrahimu akiwa umri wa miaka 99. Inaweka wazi kwamba yeyealihesabiwa kabla ya kutahiriwa. Kifungu hiki kinawaambia Wayahudi kwamba Ibrahimu alihesabiwa haki kabla ya kupokea agano la tohara.
 
@@ -450,7 +450,7 @@ Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria h
 
 ### Ahadi kwa Ibrahimu (mst. 18—22)
 
-Abrahamu alipewa ahadi ya Mungu. Mungu alimwahidi kuwa atakuwa na mwana. Pia Mesiha angekuwa mwana wa Ibrahimu. Yesu alitimiza unabii na aliziwa kulingana na ukoo wa mababu wa Abrahamu.
+Ibrahamu alipewa ahadi ya Mungu. Mungu alimwahidi kuwa atakuwa na mwana. Pia Mesiha angekuwa mwana wa Ibrahimu. Yesu alitimiza unabii na aliziwa kulingana na ukoo wa mababu wa Ibrahamu.
 
 ### Ahadi ya kkuhesabiwa haki (mst. 23—24)
 
@@ -460,7 +460,7 @@ Mtu hupokea kuhesabiwa haki kutoka kwa Mungu kwa imani.
 
 ### Ujasiri wa imani na kitendo cha kimungu cha kuhesabiwa
 
-Abrahamu aliamini ahadi ya Mungu. Dhidi ya tumaini aliamini katika tumaini. Abrahamu aliamini ahadi ya Mungu bila kujali hali. Sara alikuwa na miaka karibia 90 na Ibrahimu alikuwa ni miaka zaidi ya 100. Hapakuwa na njia ya asili ya wao kujipatia mtoto. Abrahimu alikuwa hajakata tamaa kwa ahadi ya Mungu (mst. 20).
+Ibrahamu aliamini ahadi ya Mungu. Dhidi ya tumaini aliamini katika tumaini. Ibrahamu aliamini ahadi ya Mungu bila kujali hali. Sara alikuwa na miaka karibia 90 na Ibrahimu alikuwa ni miaka zaidi ya 100. Hapakuwa na njia ya asili ya wao kujipatia mtoto. Abrahimu alikuwa hajakata tamaa kwa ahadi ya Mungu (mst. 20).
 
 Kuhesabiwa haki ni kazi ya kimungu. Mtu hawezi kujihesabia haki mwenyewe zaidi ya kule Ibrahimu kupata mwana. Kuhesabiwa haki ni kazi ya Mungu inayotolewa kwa neema katika kuitikia kwa imani.
 
@@ -752,7 +752,7 @@ Kila muumini amependelewa, amewezeshwa na awajibike kuishi maisha matakatifu. Kw
 
 ### "Mimi" katika sehemu hii
 
-Ufunguo wa maana wa sehemu hii ni msingi katika kurudia rudia kwa Paulo kujirejelea mwenyewe ("mimi", "yangu"). Angalau, mara 48 katika sura hii, Paulo alionyesha mapungufu wake mwenyewe bila kutaja hata mara moja Roho Mtakatifu. **KUMBUKA**: Katika sura ya 7 sheria imetajwa zaidi ya mara 20 na katika sura ya 8 Roho Mtakatifu ametajwa zaidi ya mara 20.
+Ufunguo wa maana wa sehemu hii ni msingi katika kurudia rudia kwa Paulo kujirejelea mwenyewe ("mimi", "yangu"). Angalau, mara 48 katika sura hii, Paulo alionyesha mapungufu wake mwenyewe bila kutaja hata mara moja Roho Mtakatifu. **Kumbuka**: Katika sura ya 7 sheria imetajwa zaidi ya mara 20 na katika sura ya 8 Roho Mtakatifu ametajwa zaidi ya mara 20.
 
 Sauti hii ilichukuliwa katika sehemu hii ni katika sehemu kesi ya Paulo akitumia diplomasia (utaalam). Badala ya kutoa maneno ya dini yake na bidii ya wasomaji kwasababu ya kujilinda, Paulo alifika kwa ndugu zake na alijiamini mwenyewe na kushuhudia kwa uzoefu chini ya sheria.
 
@@ -776,7 +776,7 @@ Yeye alifahamu daima maadili tunaambukizana na chuki ndani yetu yetu. Alikuwa na
 
 ### Sambamba
 
-Katika mkono mmoja utu a ndani ni furaha katika sheria ya Mungu. Katika mkono mwingine aliona sheria tofauti katika washirika wake waliosimama kinyume cha sheria ya akili yake na kumleta katika kifungo cha kiroho. **KUMBUKA**: "mtu wa ndani" hata baki kama akivyokuwa "utu upya," wala akili itatumika milele kwa kuhuisha ile asili. Haitaiweza sehemu ya mwili.
+Katika mkono mmoja utu a ndani ni furaha katika sheria ya Mungu. Katika mkono mwingine aliona sheria tofauti katika washirika wake waliosimama kinyume cha sheria ya akili yake na kumleta katika kifungo cha kiroho. **Kumbuka**: "mtu wa ndani" hata baki kama akivyokuwa "utu upya," wala akili itatumika milele kwa kuhuisha ile asili. Haitaiweza sehemu ya mwili.
 
 ### Kuna sheria nne zilizotajwa katika mstari 21—22
 
@@ -941,13 +941,13 @@ Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe
 
 Wayahudi bado ni watu wa pekee kwa sababu Mungu amewapa baraka nyingi. Paulo anatoa urithi wa Wayahudi kama kuwa na sehemu ya saba. Kwa mafungamana ya Wayahudi:
 
-1. **KUKUBALIWA** - faida ya kukubaliwa - uwana
-2. **UTUKUFU** - Shekinah ya uwepo wa Mungu
-3. **MAAGANO** - Ahadi za Mungu zilifanywa kwa Israel
-4. **SHERIA** - Sheria ilitolewa kwenye mlima Sinai
-5. **HUDUMA** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
-6. **AHADI** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria.
-7. **MASIHA WA ISRAEL**
+1. **Kukubaliwa** - faida ya kukubaliwa - uwana
+2. **Utukufu** - Shekinah ya uwepo wa Mungu
+3. **Maagano** - Ahadi za Mungu zilifanywa kwa Israel
+4. **Sheria** - Sheria ilitolewa kwenye mlima Sinai
+5. **Huduma** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
+6. **Ahadi** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria.
+7. **Masiha wa Israel**
 
 Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yn. 14:15; 1 Pet. 2:7—8)
 
@@ -955,11 +955,11 @@ Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yn. 14:15; 1 Pet. 2:7—8)
 
 ## Mwisraeli wa kweli ni kulingana na ahadi (mst. 6—10)
 
-Wengi wa waisrael wamekosea lengo. Kristo ni ukamilifu wa sheria, lakini waisrael wamejikwa kwake kama kwenye jiwe na kjishikisha kwe sheria na dini. Wanadhani wao ni wana wa Mungu kwasababu wao ni wana wa Ibrahimu na Isaka na kwamba wao ndio sheria ilifunuliwa kwa ajili yao.
+Wengi wa Waisraeli wamekosea lengo. Kristo ni ukamilifu wa sheria, lakini Waisraeli wamejikwa kwake kama kwenye jiwe na kjishikisha kwe sheria na dini. Wanadhani wao ni wana wa Mungu kwasababu wao ni wana wa Ibrahimu na Isaka na kwamba wao ndio sheria ilifunuliwa kwa ajili yao.
 
 Ukweli kwamba Mataifa walijumuishwa katika ahadi unazua maswali kwamba "je neno la Mungu lilishindwa?" na "Je Mungu alishindwa kutimiza ahadi zake?"
 
-Mwiisraeli wa kweli ni mteule, sio kwa mbegu ya asili. Tunaona mpango wa Mungu ambao haujafungwa. Sio kila mtu ambaye hajazaliwa katika taifa la Israel ametengwa na Israel ya kiroho. Wana waisraeli ni wale tu wa kimwili, bali wana wa ahadi ni wana wa Mungu (Yn. 3:6 "walio zaliwa kwa Roho"). Kanisa la Agano Jipya lina rejelewa kama israeli wa Mungu (Gal. 6:16) kwasababu ya imani yao kwa Mungu na mwanae, Yesu kristo na sio kwasababu ya ukoo wao (10:1—4).
+Mwiisraeli wa kweli ni mteule, sio kwa mbegu ya asili. Tunaona mpango wa Mungu ambao haujafungwa. Sio kila mtu ambaye hajazaliwa katika taifa la Israel ametengwa na Israel ya kiroho. Wana Waisraelii ni wale tu wa kimwili, bali wana wa ahadi ni wana wa Mungu (Yn. 3:6 "walio zaliwa kwa Roho"). Kanisa la Agano Jipya lina rejelewa kama israeli wa Mungu (Gal. 6:16) kwasababu ya imani yao kwa Mungu na mwanae, Yesu kristo na sio kwasababu ya ukoo wao (10:1—4).
 
 ## Uteuzi na nadharia sio kazi yake aliyeita (mst. 11—13)
 
@@ -986,7 +986,7 @@ Utawala wa Mungu umeelezwaje? Mungu ni mtawala na kwahiyo ni Mungu wa haki.
 
 ## Wito wa Mungu kwa watu wake (mst. 25—29)
 
-Katika mstari ya 25 Paulo, anachukua kutoka nabii Hosea (2:23) kifungu ambacho hasahasa kiliongelea Waisrael, bali hakupatta utimilifu kwa waisrael bali zaidi ya hapo inaonekana kutimilizwa kwa mataifa kupokea injli. Sentensi katika sehemu ya mwisho ya msitari huu ni za mkato sana, na zinajieleza kwa kuendelea; zikiacha yale maneno yaliyotumiwa na Watafasiri: nitasema kwa watu ambao HAWAKUWA WATU WANGU, NINYI NI WATU WANGU na wao watasema, MUNGU WETU (1 Pet. 2:9—10).
+Katika mstari ya 25 Paulo, anachukua kutoka nabii Hosea (2:23) kifungu ambacho hasahasa kiliongelea Waisrael, bali hakupatta utimilifu kwa Waisraeli bali zaidi ya hapo inaonekana kutimilizwa kwa mataifa kupokea injli. Sentensi katika sehemu ya mwisho ya msitari huu ni za mkato sana, na zinajieleza kwa kuendelea; zikiacha yale maneno yaliyotumiwa na Watafasiri: nitasema kwa watu ambao HAWAKUWA WATU WANGU, NINYI NI WATU WANGU na wao watasema, MUNGU WETU (1 Pet. 2:9—10).
 
 Katika mstari ya 26, tunaona watu wa mataifa. Neema ya kwanza ya Mungu imewapata wale ambao mara ya kwanza waliitwa "mbwa" (Mat. 15:26) na kuwapa wao wito "waliitwa kuwa wana Mungu aliye hai."
 
@@ -1046,9 +1046,9 @@ Wasikiaji walikataa kuamini. Tunajukumu katika mpango wa Mungu kwa ajili ya ukom
 
 # Warumi sura ya 11
 
-## Kukataa kwa wa waisrael na kusudi la Mungu na msitakabali wao (11:1—32)
+## Kukataa kwa wa Waisraeli na kusudi la Mungu na msitakabali wao (11:1—32)
 
-### Kukataa kwa waisrael sio kitu cha kidunia (11:1—10)
+### Kukataa kwa Waisraeli sio kitu cha kidunia (11:1—10)
 
 Ukataaji ni kutokuamini kwa Wayahudi (Mdo. 14:2; Ufu. 21:8).
 
@@ -1388,7 +1388,7 @@ Roho ya kifungu hiki ni ya kipekee na maalumu unapofikiria kwamba Paulo hakukuta
 
 ## Amri ya Fibi (mst. 1–2)
 
-[KUMBUKA: nukuu kadhaa katika sehemu zimechukuliwa kutoka fafanuzi za Alexander Maclaren ya maandiko matakatifu". Alexander MacClaren (February 11, 1826 - May 5, 1910) alikuwa mvuka salama na mhudumu wa injili kwa takribani miaka 65 aliyefanya kazi bila kuchoka katika kuhubiri na kuandika kuhusiana na maandiko matakatifu. Fafanuzi za MacClaren za maandiko matakatifu ni mkusanytiko wa zaidi ya hotuba 1,500]
+[Kumbuka: nukuu kadhaa katika sehemu zimechukuliwa kutoka fafanuzi za Alexander Maclaren ya maandiko matakatifu". Alexander MacClaren (February 11, 1826 - May 5, 1910) alikuwa mvuka salama na mhudumu wa injili kwa takribani miaka 65 aliyefanya kazi bila kuchoka katika kuhubiri na kuandika kuhusiana na maandiko matakatifu. Fafanuzi za MacClaren za maandiko matakatifu ni mkusanytiko wa zaidi ya hotuba 1,500]
 
 ### Paulo anamwamru dada (sio dada katika mwili bali katika Bwana)
 

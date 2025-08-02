@@ -1,4 +1,4 @@
-## The Establishing of the Law (v. 31)
+## The establishing of the Law (v. 31)
 
 Justification by faith establishes the law. The law of faith does not make the law useless or void, but establishes it. Faith does not remove or destroy the law, but excels the law.
 

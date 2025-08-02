@@ -43,7 +43,7 @@ Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya 
 
 ## Faida ya kweli ya kuwa na sheria (mst. 1—2)
 
-### Faida SIO ILE ambayo wao kwakurithi ni kuu kwa mataifa
+### Faida sio ile ambayo wao kwakurithi ni kuu kwa mataifa
 
 Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao Wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
 

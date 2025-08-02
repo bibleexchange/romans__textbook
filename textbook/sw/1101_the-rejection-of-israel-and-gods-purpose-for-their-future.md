@@ -1,8 +1,8 @@
 # Warumi sura ya 11
 
-## Kukataa kwa wa waisrael na kusudi la Mungu na msitakabali wao (11:1—32)
+## Kukataa kwa wa Waisraeli na kusudi la Mungu na msitakabali wao (11:1—32)
 
-### Kukataa kwa waisrael sio kitu cha kidunia (11:1—10)
+### Kukataa kwa Waisraeli sio kitu cha kidunia (11:1—10)
 
 Ukataaji ni kutokuamini kwa Wayahudi (Mdo. 14:2; Ufu. 21:8).
 

@@ -1,6 +1,6 @@
-# Paul's Introduction to Romans (1:1–17)
+# Paul's introduction to Romans (1:1–17)
 
-## Paul's Salutation (v. 1–7)
+## Paul's salutation (v. 1–7)
 
 An apostle is one who has been sent forth as a messenger or representative of and fully authorized by the sender—a delegate or ambassador (Acts 9:3–9, 15–22, 28). Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts chapter one, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
 
@@ -20,7 +20,7 @@ It is unquestionable that the recipients of this epistle were the Roman Christia
 
 This is a common greeting of Paul in his epistles. The title "Jesus Christ our Lord" or "Lord Jesus Christ" is used ten times in Romans. Jesus is the personal name as Savior. Matt. 1:21. Christ is "God's anointed one" Lord denotes He is Lord of all things in heaven and earth (Acts 10:36).
 
-## Paul's Readiness to Visit, Impart, and Preach (v. 8–15)
+## Paul's readiness to visit, impart, and preach (v. 8–15)
 
 Verses 8–15 express Paul's personal feelings for the Roman saints.
 

@@ -2,6 +2,6 @@
 
 #### Textbook
 
-# ROMANS
+# Romans
 
 ## The Gospel Explained

@@ -38,7 +38,7 @@ Walikuwa na ari ya Mungu, lakini walipoteza ukweli wa muhimu: Haki ya Mungu amba
 
 ### Kukataa injili kwa Wayahudi (10:16—21)
 
-**Soma Isaya 65:1—10**. Mungu atuma mhubiri -> mhubiri ahubiri -> wasikiaji wanasikia -> wasikiaji wanaamini -> muumini analiita jina la Bwana -> Bwana ana mwokoa. KUTOKUUNGANIKA kuko wapi? "Hawaja itii injili au kuisikiliza."
+**Soma Isaya 65:1—10**. Mungu atuma mhubiri -> mhubiri ahubiri -> wasikiaji wanasikia -> wasikiaji wanaamini -> muumini analiita jina la Bwana -> Bwana ana mwokoa. Kutokuunganika kuko wapi? "Hawaja itii injili au kuisikiliza."
 
 - Je Mungu alituma mhubiri? Ndio (mst. 19, 20, Musa, Isaya, n. k.)
 - Mhubiri alihuri? Ndio (mst. 16)

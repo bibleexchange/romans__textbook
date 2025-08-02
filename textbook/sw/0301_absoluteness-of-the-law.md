@@ -20,7 +20,7 @@ Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama ba
 
 #### Wayahudi hungangania urithi wao kama wana wa Ibrahimu kama haki yao (mst. 3)
 
-Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kubatilisha ahadi zetu halisi tumekwisha pewa kwa kupitia Abrahamu. Walikuwa katika tokeo la kusema hakuna haja zaidi kile tulivyo, sisi ni wa uzao wa Abrahamu na hiyo itatufikisha mbinguni.
+Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kubatilisha ahadi zetu halisi tumekwisha pewa kwa kupitia Ibrahamu. Walikuwa katika tokeo la kusema hakuna haja zaidi kile tulivyo, sisi ni wa uzao wa Ibrahamu na hiyo itatufikisha mbinguni.
 
 #### Jibu kwa halisi: ni sio! (mst. 4a)
 

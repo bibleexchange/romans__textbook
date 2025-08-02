@@ -22,7 +22,7 @@ The fifteenth chapter of Romans has a strong feeling of conclusion. As is Paul's
 
 - The strong ought to bear the infirmities of the weak.
 - Please our neighbor to their good and edification.
-- Bearing toward another the mind of Christ. That ye may with ONE mind and ONE mouth glorify God.
+- Bearing toward another the mind of Christ. That ye may with one mind and one mouth glorify God.
 - Jesus is a minister to the Jew and Gentile.
 - The Gentiles have reason to rejoice and are commanded to do so in the Scripture.
 
@@ -91,7 +91,7 @@ Paul restates again his desire and intention to visit the church at Rome and his
 
 ## Conclusion
 
-### The Unity of the Trinity
+### The unity of the trinity
 
 In Verse 30 we once again see the trinity:
 

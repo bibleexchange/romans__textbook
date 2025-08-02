@@ -18,13 +18,13 @@ Paul was known as the writer of the epistle to the Romans as early as AD 95. Som
 2. Ignatius of Antioch (AD 110)
 3. Polycarp, the Bishop of Smyrna (after AD 110)
 
-## Who did not start the Church at Rome
+## Who did not start the church at Rome
 
 Paul wrote this epistle, but did not start the church at Rome, nor had he ever visited this church up until sometime after writing of this epistle. The Christian church in Rome was already existed before the writing of the epistle to the Romans with groups of believers meeting in homes, such as that of Priscilla and Aquilla. If we compared Romans 1:8, 1:11, and chapter 16, we can safely conclude there was a Christian church at Rome before Paul or even Peter.
 
 There is not much historical record of the founding of the church in Rome, but we will can also conclude that Peter did not found the Roman church either, as advocated by the Roman Catholic church. Paul never once names Peter as being in Rome, and it would seem logical if Peter was the leader of the church that Paul would have mentioned him in his salutation in Romans 16. Instead, Paul lists 28 people in that salutation among whom listed first were Priscilla and Aquilla. Furthermore, the Book of Acts places Peter in Jerusalem not in Rome founding the church there in Jerusalem.
 
-## The birth of a Christian Church at Rome
+## The birth of a Christian church at Rome
 
 The Roman Empire was in power at the time of the writing of this epistle and Rome was also the capital city of this empire—it was the chief city of the world. It has been said that "all roads led to Rome." This is because it was the Romans who introduced and built a new system of roads stemming from the capital city of Rome itself. Rome was the center of the world and a strategic place out of which gospel could spread.
 

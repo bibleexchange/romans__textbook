@@ -1,4 +1,4 @@
-## The Unbending Authority of the Law (v. 9—19)
+## The unbending authority of the Law (v. 9—19)
 
 The whole world is under the sentence of condemnation.
 
@@ -28,7 +28,7 @@ What is the defense of the accused? The accused has nothing to say; every mouth 
 
 ## The verdict (v. 20)
 
-### GUILTY AS CHARGED!
+### Guilty as charged!
 
 ### No flesh is justified by deeds of law.
 

@@ -25,7 +25,7 @@ Roho ya kifungu hiki ni ya kipekee na maalumu unapofikiria kwamba Paulo hakukuta
 
 ## Amri ya Fibi (mst. 1–2)
 
-[KUMBUKA: nukuu kadhaa katika sehemu zimechukuliwa kutoka fafanuzi za Alexander Maclaren ya maandiko matakatifu". Alexander MacClaren (February 11, 1826 - May 5, 1910) alikuwa mvuka salama na mhudumu wa injili kwa takribani miaka 65 aliyefanya kazi bila kuchoka katika kuhubiri na kuandika kuhusiana na maandiko matakatifu. Fafanuzi za MacClaren za maandiko matakatifu ni mkusanytiko wa zaidi ya hotuba 1,500]
+[Kumbuka: nukuu kadhaa katika sehemu zimechukuliwa kutoka fafanuzi za Alexander Maclaren ya maandiko matakatifu". Alexander MacClaren (February 11, 1826 - May 5, 1910) alikuwa mvuka salama na mhudumu wa injili kwa takribani miaka 65 aliyefanya kazi bila kuchoka katika kuhubiri na kuandika kuhusiana na maandiko matakatifu. Fafanuzi za MacClaren za maandiko matakatifu ni mkusanytiko wa zaidi ya hotuba 1,500]
 
 ### Paulo anamwamru dada (sio dada katika mwili bali katika Bwana)
 

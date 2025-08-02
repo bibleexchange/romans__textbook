@@ -1,4 +1,4 @@
-# The Law in a Right Perspective (chapter 3)
+# The Law in a right perspective (chapter 3)
 
 Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (v. 1–2), absolute in its nature (v. 3–8), unbending in its authority (v. 9–19), has a distinct purpose (v. 20–30), and is not made void, but rather is established by our faith (v. 31).
 
@@ -10,11 +10,11 @@ Paul sets the Law in its right perspective. The religious Jew clung to his knowl
 
 This conviction in the pre-eminence of the law is what fed the Jew's objection to Christ. The Holy Ghost knew the Jews were holding to their superiority and trying to justify their rejection of the Gospel. In Romans 3, we find refutations of the excuses of the Jews to further show they are condemned and in need of Jesus.
 
-1. The True Advantage of Having the Law (v. 1–2)
-2. The Absoluteness of the Law (v. 3–8)
-3. The Unbending Authority of the Law (v. 9–19)
-4. The True Purpose of the Law (v. 20–30)
-5. The Establishing of the Law (v. 31)
+1. The true advantage of having the law (v. 1–2)
+2. The absoluteness of the law (v. 3–8)
+3. The unbending authority of the law (v. 9–19)
+4. The true purpose of the law (v. 20–30)
+5. The establishing of the law (v. 31)
 
 ### What Law?
 
@@ -31,7 +31,7 @@ Though we can find the same word "law" used in 52 verses in Romans, Paul is not 
 - Romans 7:22 : Law of God
 - Romans 7:23 : Law of Sin
 - Romans 8:2 : Law of the Spirit of life in Christ Jesus
-- Romans 9:31 : Law of Righteousness
+- Romans 9:31 : Law of righteousness
 
 Moses was used as an oracle of God, but he was not the only nor the last of God's messengers. Ultimately, he was only trailblazer for the Living Word! The law in our conscience or the law given through Moses are both abstractions of the Law of God. God gave His eternal principles to Moses and God desires His will, His law, His prescriptions to be hidden in the heart of every person and realized in their life.
 
@@ -41,13 +41,13 @@ A man can be justified in the eyes of God without the deeds of the law of Moses 
 
 > Romans 7:22—For I delight in the law of God after the inward man:
 
-## The True Advantage of Having the Law (v. 1–2)
+## The true advantage of having the Law (v. 1–2)
 
-### The Advantage IS NOT that they are inherently superior to the Gentiles
+### The advantage is not that they are inherently superior to the Gentiles
 
 Justification by faith is a doctrine of equality of all men which the Jews despised due to their insistence on being superior to the Gentiles. The Jew wanted to flaunt his greatness over the Gentile. Many Jews continued to reject the Gospel and hold to their pre-eminence and exalted position in Jehovah simply because of their lineage to Abraham. Most Jews were appalled by the concept of the Gentiles being equal to them and having the same access to God as them through faith in Jesus.
 
-### The Advantage IS they had first received the oracles of God.
+### The advantage is they had first received the oracles of God.
 
 "Yes the Jew has an advantage, but it is not what you think!" Oracle literally means utterance and is used here to refer to the Words or utterances of God proclaimed through the prophets and preserved in the Holy Scriptures. The Jews had received the prophecies of the Messiah and therefore had an advantage of increased revelation of Messiah that the Gentiles did not have. The advantage the Jew had was the very thing that condemns him as many still continue to reject Jesus as the Messiah (John 1:11).
 

@@ -1,20 +1,20 @@
-# The Rejection of Israel and Human Responsibility (9:30—10:21)
+# The rejection of Israel and human responsibility (9:30—10:21)
 
-## Stumbling and Overcoming: The Conclusion of Chapter 9 (9:30—33)
+## Stumbling and overcoming: The conclusion of chapter 9 (9:30—33)
 
-### Righteousness Through Faith (9:30)
+### Righteousness through faith (9:30)
 
 The Gentiles, not following after righteousness (righteousness by the law), attain to it by faith. Faith is contrasted in the text in this way: seeking righteousness by the keeping of the law versus seeking righteousness through faith in Jesus Christ.
 
-### No Righteousness Through the Law (9:31)
+### No righteousness through the law (9:31)
 
 Israel followed after the law of righteousness, but could not attain it (they could not keep the law). Israel, following after the law stumbled at the way.
 
-### Must Seek Righteousness By Faith (9:32)
+### Must seek righteousness by faith (9:32)
 
 Israel did not seek it by faith.
 
-### A Stumblingstone is Laid (9:33)
+### A stumblingstone is Laid (9:33)
 
 They stumbled over the rock of offense. They stumbled over Jesus. He offended the leaders of Israel by exposing sin.
 
@@ -36,12 +36,12 @@ They had a zeal of God, but were missing important truth: the righteousness of G
 
 ### The Jews' path to God (10:12—15)
 
-### The Jew's Rejection of the Gospel (10:16—21)
+### The Jew's rejection of the Gospel (10:16—21)
 
-**Read Isaiah 65:1—10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the DISCONNECT? "They have not obeyed or heeded the Gospel."
+**Read Isaiah 65:1—10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the disconnect? "They have not obeyed or heeded the Gospel."
 
-- Did God send a preacher? YES (v. 19, 20, Moses, Isaiah, etc.)
-- Did the preacher preach? YES (v. 16)
-- Did the Audience Hear? YES (v. 18, Moses Foretold, Isaiah Foretold)
+- Did God send a preacher? Yes (v. 19, 20, Moses, Isaiah, etc.)
+- Did the preacher preach? Yes (v. 16)
+- Did the audience Hear? Yes (v. 18, Moses foretold, Isaiah foretold)
 
 The hearers refused to believe. We have a responsibility in God's plan of redemption. God is using the Gentiles to provoke the Jew to jealousy (10:19).

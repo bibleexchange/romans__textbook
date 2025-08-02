@@ -6,7 +6,7 @@ Every believer is privileged, enabled and obligated to live a holy life. For tho
 
 ### The "I's" in this section
 
-A key to the meaning of this section is found in the repetition of Paul referring to himself ("I", "me", "my"). At least, 48 times in this chapter, Paul exposes his own weakness without a single mention of the Holy Ghost. **NOTE**: In chapter 7 the law is mentioned more than 20 times and in Chapter 8 the Holy Spirit is mentioned more than 20 times.
+A key to the meaning of this section is found in the repetition of Paul referring to himself ("I", "me", "my"). At least, 48 times in this chapter, Paul exposes his own weakness without a single mention of the Holy Ghost. **Note**: In chapter 7 the law is mentioned more than 20 times and in Chapter 8 the Holy Spirit is mentioned more than 20 times.
 
 This voice taken in this section is in part a case of Paul using diplomacy. Instead of giving his religious and zealous readers cause to be defensive, Paul reaches out to his brethren and is self-critical and testifies of his experience under the law.
 
@@ -16,21 +16,21 @@ The emphasis on self profoundly exhibits the inability of the flesh. Paul in his
 
 ### We see three confessions in this section of the Chapter:
 
-#### The First Confession: "For we know that the law is spiritual: but I am carnal, sold under sin." (v. 14)
+#### The first confession: "For we know that the law is spiritual: but I am carnal, sold under sin." (v. 14)
 
 The 2 words in the Greek for carnal. One implies that which is purely material, and the other implies that which is ethical. The first suggests man's nature as weak, and the second suggests man's character as sinful.
 
-#### The Second Confession: "In my flesh dwelleth no good thing." (v. 18—20)
+#### The second confession: "In my flesh dwelleth no good thing." (v. 18—20)
 
 Here we see Paul describing a struggle. In him so far as his person was carnal, there dwelt no good thing because of the influence of sin.
 
-#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21—25)
+#### The third confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21—25)
 
 He is ever conscious of moral contraction and conflict within. He has a desire to do good and yet an evil is always present.
 
 ### Parallel
 
-On the one hand the inward man is delighted in God's law. On the other hand he saw a different law in his members warring against the law of his mind and bringing him into a spiritual bondage. **NOTE**: The "inward man" is not the same as "the new man", nor is the mind ever used of the renewed nature. It is the immaterial part of man.
+On the one hand the inward man is delighted in God's law. On the other hand he saw a different law in his members warring against the law of his mind and bringing him into a spiritual bondage. **Note**: The "inward man" is not the same as "the new man", nor is the mind ever used of the renewed nature. It is the immaterial part of man.
 
 ### There are four laws mentioned in verses 21—22
 
@@ -53,7 +53,7 @@ The body of this death—what a fearful description of the body! It is unredeeme
 
 > Romans 6:14—For sin shall not have dominion over you: for ye are not under the law, but under grace.
 
-Can I Overcome Evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:13; 2 Peter 2:20; 1 John 2:13; Col 3:1—3). Our mind does not have to be captive to sin (Romans 12:2). Verse 25 says, "I thank God, (for deliverance) through Jesus Christ our Lord." In summary, Paul discovered:
+Can I overcome evil? Yes! A Remedy has been provided for indwelling sin (Eph. 6:13; 2 Pet. 2:20; 1 John 2:13; Col. 3:1—3). Our mind does not have to be captive to sin (Rom. 12:2). Verse 25 says, "I thank God, (for deliverance) through Jesus Christ our Lord." In summary, Paul discovered:
 
 1. That sin dwelt in him, even though he delighted in God's law.
 2. That his will was powerless against it.

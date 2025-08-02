@@ -14,12 +14,12 @@ This is Paul's great plea for personal consecration to God. Paul teaches that ea
 
 ### The sacrifice
 
-Verse 1 says tells us to "present your bodies," this means that we need to give not only the soul to God, but the body as well. It is a free will offering, and it will cost you something. It is a living sacrifice. We must present ourselves ALIVE to God!
+Verse 1 says tells us to "present your bodies," this means that we need to give not only the soul to God, but the body as well. It is a free will offering, and it will cost you something. It is a living sacrifice. We must present ourselves alive to God!
 
 - **Bodies** — In the mortal body we must glorify God. Not just someday and for now do the best that we can. ...We should live soberly, righteously, and godly, in this present world.—Titus 2:12
 - **Living sacrifice** — The flesh must be crucified. Our will must be crucified. We offer alive, but God thoroughly will purge us as long as we remain on the altar.
 
-### Reasonable Service
+### Reasonable service
 
 **God has given so much to His people**. He has given grace, He has dealt to every man the measure of faith, He has made one body in Christ, and He has given gifts of prophecy, ministry, and teaching.
 

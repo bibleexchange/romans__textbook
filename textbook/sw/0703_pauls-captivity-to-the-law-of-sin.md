@@ -6,7 +6,7 @@ Kila muumini amependelewa, amewezeshwa na awajibike kuishi maisha matakatifu. Kw
 
 ### "Mimi" katika sehemu hii
 
-Ufunguo wa maana wa sehemu hii ni msingi katika kurudia rudia kwa Paulo kujirejelea mwenyewe ("mimi", "yangu"). Angalau, mara 48 katika sura hii, Paulo alionyesha mapungufu wake mwenyewe bila kutaja hata mara moja Roho Mtakatifu. **KUMBUKA**: Katika sura ya 7 sheria imetajwa zaidi ya mara 20 na katika sura ya 8 Roho Mtakatifu ametajwa zaidi ya mara 20.
+Ufunguo wa maana wa sehemu hii ni msingi katika kurudia rudia kwa Paulo kujirejelea mwenyewe ("mimi", "yangu"). Angalau, mara 48 katika sura hii, Paulo alionyesha mapungufu wake mwenyewe bila kutaja hata mara moja Roho Mtakatifu. **Kumbuka**: Katika sura ya 7 sheria imetajwa zaidi ya mara 20 na katika sura ya 8 Roho Mtakatifu ametajwa zaidi ya mara 20.
 
 Sauti hii ilichukuliwa katika sehemu hii ni katika sehemu kesi ya Paulo akitumia diplomasia (utaalam). Badala ya kutoa maneno ya dini yake na bidii ya wasomaji kwasababu ya kujilinda, Paulo alifika kwa ndugu zake na alijiamini mwenyewe na kushuhudia kwa uzoefu chini ya sheria.
 
@@ -30,7 +30,7 @@ Yeye alifahamu daima maadili tunaambukizana na chuki ndani yetu yetu. Alikuwa na
 
 ### Sambamba
 
-Katika mkono mmoja utu a ndani ni furaha katika sheria ya Mungu. Katika mkono mwingine aliona sheria tofauti katika washirika wake waliosimama kinyume cha sheria ya akili yake na kumleta katika kifungo cha kiroho. **KUMBUKA**: "mtu wa ndani" hata baki kama akivyokuwa "utu upya," wala akili itatumika milele kwa kuhuisha ile asili. Haitaiweza sehemu ya mwili.
+Katika mkono mmoja utu a ndani ni furaha katika sheria ya Mungu. Katika mkono mwingine aliona sheria tofauti katika washirika wake waliosimama kinyume cha sheria ya akili yake na kumleta katika kifungo cha kiroho. **Kumbuka**: "mtu wa ndani" hata baki kama akivyokuwa "utu upya," wala akili itatumika milele kwa kuhuisha ile asili. Haitaiweza sehemu ya mwili.
 
 ### Kuna sheria nne zilizotajwa katika mstari 21—22
 
