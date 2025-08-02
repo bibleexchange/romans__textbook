@@ -15,7 +15,7 @@ Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Abrahamu ("wana wa Abraha
 - Ni nini kuhusu Ibrahimu Baba yetu?
 - Ni agano gani la tohara lililotolewa kwa Abrahimu, lisilo tufanya sisi kuwa haki?
 
-War sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
+War sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
 
 1. katika sura ya 3, Paulo anathibitisha kwamba imani haipuki sheria bali zaidi ya hapo inaithibitisha.
 2. Katika sura ya 4 ahadi iliotolewa kwa Ibrahimu haikuwa kwa njia ya sheria (tohara) bali kwa njia ya haki ya imani.
@@ -24,7 +24,7 @@ War sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabi
 
 > Mwanzo 15:6 — Akamwamini BWANA, naye akamhesabia jambo hili kuwa haki.
 
-Kabla ya torati kwa Musa na kwa mda mrefu hata kabla hata musa kuzaliwa, Ibrahimu alikuwa amekwisha hesabiwa haki kwa imani kama ilivyo kwa wakristo wa leo. Mungu alimpa Ibrahimu ahadi; yeye alimwamini Mungu ikahesabiwa kwake kuwa haki (War. 4:4).
+Kabla ya torati kwa Musa na kwa mda mrefu hata kabla hata musa kuzaliwa, Ibrahimu alikuwa amekwisha hesabiwa haki kwa imani kama ilivyo kwa Wakristo wa leo. Mungu alimpa Ibrahimu ahadi; yeye alimwamini Mungu ikahesabiwa kwake kuwa haki (War. 4:4).
 
 ### Mungu humhesabia haki mtu asiye mcha (mst. 5)
 
@@ -34,14 +34,14 @@ KUMBUKA: Mungu anadai imani na haghairi neema ya Mungu. Mashariti ya kuhesabiwa 
 
 ### Ushuhuda wa Daudi (mst. 6—8)
 
-Paulo anatoa ushuhuda kutoka kwa Daudi unaosaidia ujumbe wa kuhesabiwa haki kwa imani. Daudi alienziwa na wayahudi kama mfalme wao mkuu. Nukuu hii kutoka Zaburi huthibitisha kwamba watu huhesabiwa haki kwa imani tu na sio kwa matendo (Zab. 32:1—2).
+Paulo anatoa ushuhuda kutoka kwa Daudi unaosaidia ujumbe wa kuhesabiwa haki kwa imani. Daudi alienziwa na Wayahudi kama mfalme wao mkuu. Nukuu hii kutoka Zaburi huthibitisha kwamba watu huhesabiwa haki kwa imani tu na sio kwa matendo (Zab. 32:1—2).
 
 Daudi alikuwa anamshukuru Mungu kwamba dhambi zake zilikuwa zimesamehewa na hakuhesabiwa dhambi tena. Ikiwa dhambi haikuwa ndani yake na kusamehewa hii humaaniisha yeye akihifadhiwa katika uhusiano sahihi na Mungu.
 
 ## Abrahamu alikuwa amehesabiwa haki kwa neema nasio kwa tohara (mst. 9—17)
 
-Wayahudi walitazamia tohara na sheria kama chanzo cha haki yao. Ibrahimu alihesabiwa haki kabla ya agano la tohara. Alihesabiwa kuwa mwenye haki katika sura 15 na alikuwa na umri miaka 86 katika sura ya 16 wakati Ishimaili alipozaliwa. Mwanzo 17:24 inatoa habari ya kutahiriwa Ibrahimu akiwa umri wa miaka 99. Inaweka wazi kwamba yeyealihesabiwa kabla ya kutahiriwa. Kifungu hiki kinawaambia wayahudi kwamba Ibrahimu alihesabiwa haki kabla ya kupokea agano la tohara.
+Wayahudi walitazamia tohara na sheria kama chanzo cha haki yao. Ibrahimu alihesabiwa haki kabla ya agano la tohara. Alihesabiwa kuwa mwenye haki katika sura 15 na alikuwa na umri miaka 86 katika sura ya 16 wakati Ishimaili alipozaliwa. Mwanzo 17:24 inatoa habari ya kutahiriwa Ibrahimu akiwa umri wa miaka 99. Inaweka wazi kwamba yeyealihesabiwa kabla ya kutahiriwa. Kifungu hiki kinawaambia Wayahudi kwamba Ibrahimu alihesabiwa haki kabla ya kupokea agano la tohara.
 
 Tohara haikumhesabia Ibrahimu haki. Tohara ilikuwa imetolewa kama ishara ya ahadi. Ilikuwa imetolewa kama mhuri wa haki ya imani. Ni alama ya kuindoa sehemu ya mwili. Hakuna nguvu ya haki katika tendo la kimwili. Hii kwa uhalisi ni kazi ya Mungu mara nyingi katika njia hiyo hiyo ubatizo ni alama ya kazi kamili.
 
-Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria hakuna uasi inarejea kwenye ukweli kwamba ikiwa hakuna sheria basi hakuna kuivunja sheria. Hii pia lazima inarejea kwenye sheria ya maadili kama ilivyo kwa sheria Musa. Ibrahimu alikuwa amehesabiwa kwa imani kwa njia ya neema (mst. 16). Hakujipatia haki kwa uwezo wake mwenyewe;Itolewa pasipo kusitahili kwasababu ya imani yake.
+Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria hakuna uasi inarejea kwenye ukweli kwamba ikiwa hakuna sheria basi hakuna kuivunja sheria. Hii pia lazima inarejea kwenye sheria ya maadili kama ilivyo kwa sheria Musa. Ibrahimu alikuwa amehesabiwa kwa imani kwa njia ya neema (mst. 16). Hakujipatia haki kwa uwezo wake mwenyewe; Itolewa pasipo kusitahili kwasababu ya imani yake.

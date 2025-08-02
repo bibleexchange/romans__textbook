@@ -1,6 +1,6 @@
 # Upendo unaoendelea wa Paulo kwa watu wa Kiyahudi (9:1—5)
 
-Paulo alikuwa mtume kwa Mataifa na hakuamini kwamba sheria inaweza kuokoa mtu yeyote, lakini bado alikuwa Myahudi na aliwapenda sana Wayahudi. Warumi sura ya tisa inaongelea kuhusu masikitiko ya Paulo kwa ajili ya wayahudi. Tunapatakuwa sio wazao wote wa Ibrahimu walikuwa wana wa ahadi (9:7—8).
+Paulo alikuwa mtume kwa Mataifa na hakuamini kwamba sheria inaweza kuokoa mtu yeyote, lakini bado alikuwa Myahudi na aliwapenda sana Wayahudi. Warumi sura ya tisa inaongelea kuhusu masikitiko ya Paulo kwa ajili ya Wayahudi. Tunapatakuwa sio wazao wote wa Ibrahimu walikuwa wana wa ahadi (9:7—8).
 
 ## Unyofu wa hisia yake (mst. 1)
 
@@ -16,7 +16,7 @@ Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe
 
 ## Msingi wa hisia yake (mst. 3b-5)
 
-Wayahudi bado ni watu wa pekee kwa sababu Mungu amewapa baraka nyingi. Paulo anatoa urithi wa Wayahudi kama kuwa na sehemu ya saba. Kwa mafungamana ya wayahudi:
+Wayahudi bado ni watu wa pekee kwa sababu Mungu amewapa baraka nyingi. Paulo anatoa urithi wa Wayahudi kama kuwa na sehemu ya saba. Kwa mafungamana ya Wayahudi:
 
 1. **KUKUBALIWA** - faida ya kukubaliwa - uwana
 2. **UTUKUFU** - Shekinah ya uwepo wa Mungu

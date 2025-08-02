@@ -8,7 +8,7 @@ Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wan
 
 Paulo anaiweka sheria katika taswira yake ilio sahihi. Myahudi wa kidini anatoa sauti ya mgongano katika ujuzi wake wa sheria ya Musa kana kwamba ilikuwa kitu cha kuwahesabia haki mbele za Mungu. Wao walikuwa wamefunika taswira ya kile ambacho sheria hufanya. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
 
-Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa wayahudi kwa Kristo. Roho mtakatifu alijuwa wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika War. 3, tunakutana na ukanushi wa udhuru wa wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
+Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wayahudi kwa Kristo. Roho mtakatifu alijuwa Wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika War. 3, tunakutana na ukanushi wa udhuru wa Wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
 
 1. Faida ya kweli ya kuwa na sheria (mst. 1—2)
 2. Uhalisi wa sheria (mst. 3—8)
@@ -18,9 +18,9 @@ Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa wa
 
 ### Sheria ni nini?
 
-Neno "sheria" kwa ujumla humaanisha kanuni "maandishi ya maelekezo." Ingawa ilikuwa imetolewa kwa wayahudi na Mungu kwa kupitia Musa, wote wayahudi na wamataifa walikuwa na sheria ya Mungu katika dhamiri zao (Iwe isiwe wanachagua kuipokea ilikuwa chaguo lao).
+Neno "sheria" kwa ujumla humaanisha kanuni "maandishi ya maelekezo." Ingawa ilikuwa imetolewa kwa Wayahudi na Mungu kwa kupitia Musa, wote Wayahudi na wamataifa walikuwa na sheria ya Mungu katika dhamiri zao (Iwe isiwe wanachagua kuipokea ilikuwa chaguo lao).
 
-Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado kwa wakati huo huo anathibitisha thamani yake ya ukweli. Sheria iliotolewa kwa Musa kwakweli ni mapenzi ya Mungu, lakini haikuwa jumla ya maelekezo yake. Kosa la wayahudi lilikuwa kwamba walifanya zile kanuni pamoja na sherehe zake na kuambatanisha mapokeo kwenye jumla ya kusudi la Mungu mbele ya ubinadamu.
+Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado kwa wakati huo huo anathibitisha thamani yake ya ukweli. Sheria iliotolewa kwa Musa kwakweli ni mapenzi ya Mungu, lakini haikuwa jumla ya maelekezo yake. Kosa la Wayahudi lilikuwa kwamba walifanya zile kanuni pamoja na sherehe zake na kuambatanisha mapokeo kwenye jumla ya kusudi la Mungu mbele ya ubinadamu.
 
 Ingawa tunaweza kupata neno lilelile "sheria" limetumika katika mistr 52 katika Warumi, Paulo mda wote hajadili kanuni zilezile au maelekezo.
 
@@ -45,10 +45,10 @@ Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya 
 
 ### Faida SIO ILE ambayo wao kwakurithi ni kuu kwa mataifa
 
-Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
+Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao Wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
 
 ### Faida ni kwamba wao walipokea kwanza mambo ya Mungu.
 
-"Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yoh. 1:11).
+"Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yoh. 1:11).
 
 Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua fursa ya kupokea imani kutoka kwa Mungu. Tunaweza kujua zaidi na kutamani kumpendeza Mungu.

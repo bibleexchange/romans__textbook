@@ -16,15 +16,15 @@ The emphasis on self profoundly exhibits the inability of the flesh. Paul in his
 
 ### We see three confessions in this section of the Chapter:
 
-#### The First Confession: "For we know that the law is spiritual: but I am carnal, sold under sin." (vs. 14)
+#### The First Confession: "For we know that the law is spiritual: but I am carnal, sold under sin." (v. 14)
 
 The 2 words in the Greek for carnal. One implies that which is purely material, and the other implies that which is ethical. The first suggests man's nature as weak, and the second suggests man's character as sinful.
 
-#### The Second Confession: "In my flesh dwelleth no good thing." (vs. 18—20)
+#### The Second Confession: "In my flesh dwelleth no good thing." (v. 18—20)
 
 Here we see Paul describing a struggle. In him so far as his person was carnal, there dwelt no good thing because of the influence of sin.
 
-#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (vs. 21—25)
+#### The Third Confession: "I find then a law, that, when I would do good, evil is present with me." (v. 21—25)
 
 He is ever conscious of moral contraction and conflict within. He has a desire to do good and yet an evil is always present.
 

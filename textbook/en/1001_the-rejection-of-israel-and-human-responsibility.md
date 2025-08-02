@@ -40,8 +40,8 @@ They had a zeal of God, but were missing important truth: the righteousness of G
 
 **Read Isaiah 65:1—10**. God sends a preacher -> a preacher preaches -> an audience hears -> the hearer believes -> the believer calls on the name of the Lord -> the Lord saves him. Where is the DISCONNECT? "They have not obeyed or heeded the Gospel."
 
-- Did God send a preacher? YES (vs. 19, 20, Moses, Isaiah, etc.)
-- Did the preacher preach? YES (vs. 16)
-- Did the Audience Hear? YES (vs. 18, Moses Foretold, Isaiah Foretold)
+- Did God send a preacher? YES (v. 19, 20, Moses, Isaiah, etc.)
+- Did the preacher preach? YES (v. 16)
+- Did the Audience Hear? YES (v. 18, Moses Foretold, Isaiah Foretold)
 
 The hearers refused to believe. We have a responsibility in God's plan of redemption. God is using the Gentiles to provoke the Jew to jealousy (10:19).

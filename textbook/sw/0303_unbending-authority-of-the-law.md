@@ -4,7 +4,7 @@ Dunia yote iko chini ya hukumu.
 
 ## Shitaka limetozwa dhidi ya mwenye dhambi (mst. 9)
 
-Mwenye dhambi ni nani? Tumeshathibitisha kuwa wote wayahudi na wamataifa wako chini ya dhambi kwahivyo wote wanahatia ya kuvunja sheria.
+Mwenye dhambi ni nani? Tumeshathibitisha kuwa wote Wayahudi na wamataifa wako chini ya dhambi kwahivyo wote wanahatia ya kuvunja sheria.
 
 ## Ushahidi hutolewa mbele ya mshitakiwa
 

@@ -26,7 +26,7 @@ Agano Jipya linaeleza Wokovu katika nyakati tatu: uliopo, uliopita, na ujao:
 | Tumeokolewa: alimaliza kwa wakati uliopita                                               | Tunaokolewa: kitendo kinachoendelea                                                                                    | Tutaokolewa: itakamilika kwa wakati ujao                                                                                                                                                                                        |
 | Tumeokolewa kutoka kwenye adhabu ya dhambi na hatia: Kuhesabiwa haki, msamaha, kuokolewa | Kutoka nguvu ya dhambi: endelevu -> kutakaswa, kusafishwa                                                              | Kuokolewa mbali na dhambi kwa wakati uliopo: Alitukuzwa, imekamilika                                                                                                                                                            |
 | Nafsi, mwili, roho                                                                       | Uzima, mazungumzo, mwenendo                                                                                            | Kukamilishwa, fanikishwa, kumaliza                                                                                                                                                                                              |
-| II Tim. 1:9; Tit.3:5; Efes. 2:8—9; Luk.7:50; Yoh.5:24; 6:47;                             | I Kor. 1:18 ("Tumeokolewa"), Filp. 2:12 II Kor. 2:15; II Kor. 15:2; Efes. 2:5, 8; Rum. 6:14; Gal. 2:19–20; IIKor. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yoh. 10:9; Rum. 10:13; IKor. 3:15, 5:15; Efes. 1:13, 14; I Thes. 5:8; Ebr. 10:36; I Tim. 2:4; I Petr. 1:5, 4:18; I Yoh. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
+| II Tim. 1:9; Tit. 3:5; Efes. 2:8—9; Luk. 7:50; Yoh. 5:24; 6:47;                          | I Kor. 1:18 ("Tumeokolewa"), Filp. 2:12 II Kor. 2:15; II Kor. 15:2; Efes. 2:5, 8; Rum. 6:14; Gal. 2:19–20; IIKor. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yoh. 10:9; Rum. 10:13; IKor. 3:15, 5:15; Efes. 1:13, 14; I Thes. 5:8; Ebr. 10:36; I Tim. 2:4; I Petr. 1:5, 4:18; I Yoh. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
 
 Tunaweza kupata maelezo ya muhtasari katika II Wakorintho 1:10:
 
@@ -81,7 +81,7 @@ Chukua mamlaka juu ya akili yako katika jina la Yesu. Mstari wa 12 unasema, "Bas
 
 Mtakatifu amewekwa huru kutoka kwa bwana wae wa zamani aliposulibishwa pamoja na Kristo, lakini alipata bwana mpya. Ubwana wa maisha ya muumini yamemilikiwa na Kristo. Tuko huru mbali na dhambi, lakini hii pia maana yake tumefungwa kwenye haki. Dhambi ni mtego wa utumwa wa Shetani, bali haki ni huduma ya Kristo. Basi mkifanya dhambi ninyi ni watumishi wa Shetani, na sio watumishi wa Mungu. Huwezi kutumikia dhambi na pia kuwa mtumishi wa Mungu.
 
-Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi (damu ya Yesu) (Efes.1:7). Neema itatawala kwa njia ya haki (War. 5:21). Neema ya Mungu haiwezi kutusaidia sisi kutumikia dhambi, bali inatuwezesha kumtumikia Mungu. Watumishi wa Mungu wajitakase" wajitenge mbali na dhambi na wajitenge kwa Mungu. Neema ya Mungu ni **ushawishi wa Mungu** juu ya moyo na fikra zake katika maisha (Luk. 2:40; Yoh. 1:14; 1:17; Mdo. 4:33).
+Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi (damu ya Yesu) (Efes. 1:7). Neema itatawala kwa njia ya haki (War. 5:21). Neema ya Mungu haiwezi kutusaidia sisi kutumikia dhambi, bali inatuwezesha kumtumikia Mungu. Watumishi wa Mungu wajitakase" wajitenge mbali na dhambi na wajitenge kwa Mungu. Neema ya Mungu ni **ushawishi wa Mungu** juu ya moyo na fikra zake katika maisha (Luk. 2:40; Yoh. 1:14; 1:17; Mdo. 4:33).
 
 ### Sisi ni watumishi wa dhambi au wa Mungu (mst. 6)
 
@@ -91,7 +91,7 @@ Maisha ya Mkristo ni ya hiyari, lakini tuwe wazalishaji wa hiyari sisi wenyewe k
 
 "Tabia ya zamani ni ngumu kufa." Kitu kinachobadilisha utumishi wetu kutoka kwenye dhambi ni wewe mwenyewe kwa Mungu, tunatakiwa tuwe na tahadhari katika jitihada zetu za kumtumikia Bwana wetu kwa uaminifu. Tunaelekezwa kufanya baadhi ya mambo:
 
-Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efes.5:12).
+Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efes. 5:12).
 
 ### Linganisha matokeo ya dhambi na matokeo ya haki (mst. 20—23)
 

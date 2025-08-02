@@ -1,12 +1,12 @@
-## The law is holy, just, and good (vs. 7–13)
+## The law is holy, just, and good (v. 7–13)
 
 In Romans 7:7–13, Paul establishes the goodness of God's Law and the wickedness of sin. Paul is writing to the Jew, those who understand the law (v. 1), and he properly frames the purpose and nature of the law. Service to the letter of the law cannot make one righteous, but in its exactness it awakens the sinner to his need of Christ.
 
-### Question: Is the law sin? (vs. 7a)
+### Question: Is the law sin? (v. 7a)
 
 Why Would Paul Ask this question? Paul had written in verse 6 that the law was something he was delivered from. This would seem to infer that the law is "bad."
 
-### Answer: No, the law has a good gurpose (vs. 7b)
+### Answer: No, the law has a good gurpose (v. 7b)
 
 The main theme of chapter seven is the believer's relation to the law. The believer is united with Christ, who is "the new husband." When we are born we are bound to the law like as a marriage. To be free from the law, because the law will never die or change we must die. We become dead to the law by the body of Christ, which allows us to marry Jesus, who is raised from the dead.
 
@@ -17,24 +17,24 @@ Serving the old letter of the law did not make Paul righteous, but rather it exp
 
 The law reveals the fact of sin (Col. 3:5; I Thess. 4:5). What would be the results of a world without law? The law is representative of order, security, stability, faithfulness, uniformity, equality. Absence of the law produces chaos, with its attendant evils. If the laws of nature were to stop what would be the results? The end of the world.
 
-### Sin brought death (vs. 8)
+### Sin brought death (v. 8)
 
 Paul personifies sin and in so doing abstracts sin from the person. The sword of the spirit is cutting a discerning division so that we might see we can be free from sin. If sin is characterized as an enemy waiting to pounce and take advantage of someone, then that someone can given the right situation, deny that sin. The murderer is within the sinner. But, if sin is merely the automatic reactions of nature, how can righteous judgment be made?
 
 What was the opportunity that sin took advantage of? The law defines the sinner as **dead** in his sins. Being dead, the rebellion of sin takes advantage to work more death.
 
-#### The law reveals the power of sin (vs. 9)
+#### The law reveals the power of sin (v. 9)
 
 Under the law, a man becomes condemned to death because of sin. Romans 7:5 describes the state of a Jew as in the flesh serving sin which considered as being under law. It reveals that he is cursed (Deut. 27:26; 28:15; Ps. 119:21; Jer. 11:3; Gal. 3:10).
 
 - The curses were proclaimed principally to secure obedience to the commandments.
 - The curses were never meant to destroy the individual but produce repentance.
 
-#### The law was meant for life, but it brought death (vs. 10)
+#### The law was meant for life, but it brought death (v. 10)
 
 The end result for Paul was that he who vigorously followed the law and served it tenaciously, was dead in sin! All his religion was a work in unrighteousness--in light of the cross, all the commands of God were a sentence of death.
 
-#### The law reveals the deceitfulness of sin (vs. 11)
+#### The law reveals the deceitfulness of sin (v. 11)
 
 Sin takes advantage of us and deceives us. The law of God is known in different ways: the ceremonial laws, the social laws, natural laws, moral laws, and health laws. The Jews believed you had to keep all of those laws to become holy. By the time of Paul's ministry, the rabbis had summed up all of the Old Testament law into 613 commandments. It is impossible to keep them all, especially since they had strained at the laws beyond the intention of God.
 
@@ -46,7 +46,7 @@ The law itself is holy, righteous, and good:
 - It is righteous because it condemns the sinner
 - It is good because of its spiritual purpose (it is part of God's ultimate plan to bring man to Himself)
 
-#### The law reveals the sinfulness of sin (vs. 12–13)
+#### The law reveals the sinfulness of sin (v. 12–13)
 
 The law is like a plumb-line: It shows where and what we are in the sight of God. It is intended to awaken the sinner to his need for Christ. The law then becomes the conductor to Christ in order that we may be justified by faith.
 

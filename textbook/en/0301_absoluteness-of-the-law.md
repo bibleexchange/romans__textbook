@@ -14,7 +14,7 @@ God's Law is governed by the nature of God. What is in the Law of God is because
 
 > 2 Samuel 22:31—As for God, his way is perfect; the word of the LORD is tried: he is a buckler to all them that trust in him. (Compare with Psalm 101)
 
-### If some do not believe, will God break his promise? (vs. 3—4)
+### If some do not believe, will God break his promise? (v. 3—4)
 
 Has God cancelled his covenant with Abraham because some Jews are bad? If some do not believe does it hinder God's plan? Will unbelief cancel God's faithfulness? See II Timothy 2:13.
 
@@ -22,7 +22,7 @@ Has God cancelled his covenant with Abraham because some Jews are bad? If some d
 
 Their objection was even though some did not believe; nothing can nullify our special promises we have been given by God through Abraham. They were in effect saying no matter what else we are, we are Abraham's seed and that will get us into heaven.
 
-#### The answer: Absolutely Not! (v.4a)
+#### The answer: Absolutely Not! (v. 4a)
 
 Will God be unfaithful because man is unfaithful? Absolutely Not!
 
@@ -30,11 +30,11 @@ Will God be unfaithful because man is unfaithful? Absolutely Not!
 
 It is not because, some Jews were unfaithful that requires faith in Jesus Christ. It is because the fullness of God's plan of redemption has always been in Christ.
 
-#### Illustrated from David's Life (v.4b)
+#### Illustrated from David's Life (v. 4b)
 
 The Psalm of David is quoted which showed God to be righteous even when David was condemned for his sin. According to Psalm 51:4, God is just when He speaks and clear when He judges. This is used here to show that God is right to condemn the Jews because they rejected the Messiah who came from the seed of Abraham according to the promises. These promises they claimed would justify them in fact brought condemnation to the Jew because of their rejection of Jesus Christ.
 
-### If our sin commends God's righteousness, how can He judge us? (vs. 5—7)
+### If our sin commends God's righteousness, how can He judge us? (v. 5—7)
 
 #### Let us first understand the meaning of the question.
 
@@ -48,7 +48,7 @@ The answer is: Certainly not. For if this principle is used then how could God p
 
 The truth is, God can judge the world because he is righteous.
 
-### Let us do evil that good may come? (vs. 8)
+### Let us do evil that good may come? (v. 8)
 
 Some abuse the truth of God's mercy and boast that their sinful lives and God's unconditional acceptance, is illustrative of God's great Mercy. Paul was NOT preaching this false doctrine, but was being accused of doing so.
 

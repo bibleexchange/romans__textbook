@@ -48,7 +48,7 @@ Kuhesabiwa haki sio tu Mungu kuonyesha huruma juu ya mwenye dhambi na kumwacha h
 
 ### Hebu tuangalie kifungu kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
 
-Katika kipindi cha Agano la kale, damu ya wanyama haikuweza kuondoa dhambi (Waebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la kale na jipya.
+Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Waebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na Jipya.
 
 ## Mtu anahesabiwa haki kwa imani pasipo matendo ya sheria (mst. 28)
 

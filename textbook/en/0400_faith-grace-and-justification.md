@@ -4,7 +4,7 @@
 
 The role of the law in justification is that it brings the knowledge of sin. A person is not justified through the works of the law. For justification takes place in the case of the believer "by grace through faith." By Grace a gift of eternal life is freely offered to the entire world and it is through faith that gift is received. God made the first move in the plan of redemption and for that plan to be effective in me, I must choose to receive that gift through faith. (God's grace is resistible by the nature of the free will given by God to man.) See also Ephesians 2:8 and Romans 4:16. Justification by faith is demonstrated in the life of Abraham.
 
-## Abraham was justified by Faith and not by Works (vs. 1—8)
+## Abraham was justified by Faith and not by Works (v. 1—8)
 
 > Romans 4:3—...Abraham believed God, and it was counted unto him for righteousness.
 
@@ -20,13 +20,13 @@ Romans chapter 4 deals with "Abraham's Righteousness." Abraham is an example of 
 1. In chapter 3, Paul affirms that faith does not void the Law but rather establishes it.
 2. In chapter 4, the promise given to Abraham was not through the Law (circumcision) but through the righteousness of faith.
 
-### Before the Torah was Given, Abraham was counted as righteous (vs. 1—4)
+### Before the Torah was Given, Abraham was counted as righteous (v. 1—4)
 
 > Genesis 15:6 — And he believed in the LORD; and he counted it to him for righteousness.
 
 Before the Torah was given to Moses and long before Moses was even born, Abraham was justified by faith the same way the Christians are today. God gave Abraham a promise; he believed God and it was counted unto him for righteousness (4:4).
 
-### God justifies the ungodly (vs. 5)
+### God justifies the ungodly (v. 5)
 
 Those who are not born-again are sinners and ungodly. The repentant sinner is declared righteous by God through the blood of Jesus. The ungodly do nothing to earn their salvation. They are justified "by grace alone through faith alone".
 
@@ -44,4 +44,4 @@ The Jews looked to circumcision and the Law as their source of righteousness. Ab
 
 Circumcision did not justify Abraham. Circumcision was given as a sign of the promise. It was given as a seal of the righteousness of faith. It is a symbol of the cutting away of the flesh. There is no power of righteousness in a physical action. This is merely a sign of the work of God in much the same way that baptism is a sign of a completed work.
 
-The law gives knowledge of sin (vs. 15). For where there is no law there is no transgression refers to the fact that if there were no law then there would be no law to break. This also must have reference to the moral law as well as Moses' law. Abraham was justified by faith through grace (v. 16). He did not earn justification; it was given to him without merit because of his faith.
+The law gives knowledge of sin (v. 15). For where there is no law there is no transgression refers to the fact that if there were no law then there would be no law to break. This also must have reference to the moral law as well as Moses' law. Abraham was justified by faith through grace (v. 16). He did not earn justification; it was given to him without merit because of his faith.

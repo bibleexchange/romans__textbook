@@ -2,9 +2,9 @@
 
 ## Utangulizi
 
-Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu.tunapaswa kuwasaidia wale ambao ni wadhaifu katika imani yao. Tunaona hitaji la kuwa na upendo. Tunapaswa kumishia Mungu, na yote tunayohitaji kwa Mungu. Hatupaswi kuhukumiana, kwa kuwa siku moja kila mmoja atatoa hesabu ya maisha yake mwenyewe.
+Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu. Tunapaswa kuwasaidia wale ambao ni wadhaifu katika imani yao. Tunaona hitaji la kuwa na upendo. Tunapaswa kumishia Mungu, na yote tunayohitaji kwa Mungu. Hatupaswi kuhukumiana, kwa kuwa siku moja kila mmoja atatoa hesabu ya maisha yake mwenyewe.
 
-## Tunawatendeaje wakristo wenye maoni tofauti (mst. 1)
+## Tunawatendeaje Wakristo wenye maoni tofauti (mst. 1)
 
 Kunatofauti katika afya za imani zetu vile vile kunatofauti za maoni (madhaifu na yenye nguvu). Kunamaelekezo yaliyo wazi yaliyotolewa katika maandiko matakatifu:
 
@@ -30,9 +30,9 @@ Kila mtu angekuwa kama mimi?
 
 ### Udhaifu katika vyakula Weakness in eating
 
-Katika Wakor wa kwanza sura ya 8 Paulo alipaswa kushughulika na swala lile lile na Kanisa la Wakoritho. Hili linaweza kusikika kama kitu kisicho na maana na sio cha kidini na mabishano kwa mkristo wa sasa, lakini Biblia ya maoni ya Layman inatupatia mwanga kwenye ubishi huu:
+Katika Wakor wa kwanza sura ya 8 Paulo alipaswa kushughulika na swala lile lile na Kanisa la Wakoritho. Hili linaweza kusikika kama kitu kisicho na maana na sio cha kidini na mabishano kwa Mkristo wa sasa, lakini Biblia ya maoni ya Layman inatupatia mwanga kwenye ubishi huu:
 
-> Ilikuwa ni aina tofauti ya swali la kidini katika utawala wa kirumi. Uhakika ni katika soko la kirumi ungeweza kwa ugumu kupata nyama nzuri au ya kuokwa au aina yeyote ya nyama ambayo haikutokana na wanyama waliochinjwa ndani hekalu. Mnyama angeweza kuchinjwa kwa ajili ya sadaka ya kutekezwa;kisha kuhani (amabo walikuwa hawana idadi ingawa walikuwepo lakini haingwezekana kula wanyama wote walioletwa kama sadaka) wangeweza kuwauza kwa reja reja kwenye vituo. Hii ilikuwa chanzo kikuu cha nyama katika masoko, Mkristo mnunuzi angekumbana na shida: katika kununua na kuila nyama hii, nifanye au nisitoe msaada kwa ibada ya kipagani?
+> Ilikuwa ni aina tofauti ya swali la kidini katika utawala wa kirumi. Uhakika ni katika soko la kirumi ungeweza kwa ugumu kupata nyama nzuri au ya kuokwa au aina yeyote ya nyama ambayo haikutokana na wanyama waliochinjwa ndani hekalu. Mnyama angeweza kuchinjwa kwa ajili ya sadaka ya kutekezwa; kisha kuhani (amabo walikuwa hawana idadi ingawa walikuwepo lakini haingwezekana kula wanyama wote walioletwa kama sadaka) wangeweza kuwauza kwa reja reja kwenye vituo. Hii ilikuwa chanzo kikuu cha nyama katika masoko, Mkristo mnunuzi angekumbana na shida: katika kununua na kuila nyama hii, nifanye au nisitoe msaada kwa ibada ya kipagani?
 
 ### Watumishi — wewe ni nani hata umuhukumu mtumishi wa mwingine?
 

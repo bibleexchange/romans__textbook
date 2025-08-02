@@ -6,7 +6,7 @@ Wengi wa waisrael wamekosea lengo. Kristo ni ukamilifu wa sheria, lakini waisrae
 
 Ukweli kwamba Mataifa walijumuishwa katika ahadi unazua maswali kwamba "je neno la Mungu lilishindwa?" na "Je Mungu alishindwa kutimiza ahadi zake?"
 
-Mwiisraeli wa kweli ni mteule, sio kwa mbegu ya asili. Tunaona mpango wa Mungu ambao haujafungwa. Sio kila mtu ambaye hajazaliwa katika taifa la Israel ametengwa na Israel ya kiroho. Wana waisraeli ni wale tu wa kimwili, bali wana wa ahadi ni wana wa Mungu (Yoh. 3:6 "walio zaliwa kwa Roho"). Kanisa la Agano jipya lina rejelewa kama israeli wa Mungu (Gal. 6:16) kwasababu ya imani yao kwa Mungu na mwanae, Yesu kristo na sio kwasababu ya ukoo wao (10:1—4).
+Mwisraeli wa kweli ni mteule, sio kwa mbegu ya asili. Tunaona mpango wa Mungu ambao haujafungwa. Sio kila mtu ambaye hajazaliwa katika taifa la Israel ametengwa na Israel ya kiroho. Wana waisraeli ni wale tu wa kimwili, bali wana wa ahadi ni wana wa Mungu (Yoh. 3:6 "walio zaliwa kwa Roho"). Kanisa la Agano Jipya lina rejelewa kama israeli wa Mungu (Gal. 6:16) kwasababu ya imani yao kwa Mungu na mwanae, Yesu kristo na sio kwasababu ya ukoo wao (10:1—4).
 
 ## Uteuzi na nadharia sio kazi yake aliyeita (mst. 11—13)
 

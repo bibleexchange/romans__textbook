@@ -14,9 +14,9 @@ Sheria ya Mungu inatawaliwa na asili yake. Kile kilicho ndani ya sheria ya Mungu
 
 > 2 Samuel 22:31—Mungu njia yake ni kamilifu; Ahadi ya Bwana imehakikishwa; Yeye ndiye ngao yao Wote wanaomkimbilia. (linganisha na Zab. 101)
 
-### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst.3—4)
+### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst. 3—4)
 
-Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya wayahudi ni wabaya? Kama baadhi yao hawa amini je itazuia mpango wa Mungu? Je, wasio amini hufuta mpango wa Mungu? Angali II Tim. 2:13.
+Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama baadhi yao hawa amini je itazuia mpango wa Mungu? Je, wasio amini hufuta mpango wa Mungu? Angali II Tim. 2:13.
 
 #### Wayahudi hungangania urithi wao kama wana wa Ibrahimu kama haki yao (mst. 3)
 
@@ -26,13 +26,13 @@ Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kuba
 
 > II Tim. 2:13—Kama sisi hatuamini, yeye hudumu wa kuaminiwa. Kwa **maana hawezi kujikana mwenyewe.**
 
-Hii sio sababu, ya baadhi ya wayahudi ambayo hawakuwa waaminifu na ikahitajika imani katika kumwamini Yesu Kristo. Hii ni kwasababu ya ukamilifu wa mpango wa Mungu ambao muda wote uko katika Kristo.
+Hii sio sababu, ya baadhi ya Wayahudi ambayo hawakuwa waaminifu na ikahitajika imani katika kumwamini Yesu Kristo. Hii ni kwasababu ya ukamilifu wa mpango wa Mungu ambao muda wote uko katika Kristo.
 
 #### Ilielezewa toka maisha ya Daudi (mst. 4b)
 
 > Nimekutenda dhambi Wewe peke yako, Na kufanya maovu mbele za macho yako. Wewe ujulikane kuwa una haki unenapo, Na kuwa safi utoapo hukumu (mst. 4).
 
-Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zab. 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
+Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zab. 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu Wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa Wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
 
 ### Ikiwa dhambi zetu zinaitukuza haki ya Mungu, je yeye atatuhukumuje? (mst. 5—7)
 
@@ -40,7 +40,7 @@ Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa D
 
 Lazima tutegemee kwenye mukitadha kutusaidia kufahamu maana ya swali hili. Hii imetolewa kama maswali mawili katika kifungu na kimerahisishwa kwa ajili ya kujifunza. Swali kwa halisi huuliza:kama kutokuwa haki kwetu kumetukuzwa au kulela usikivu kwenye haki ya Mungu na huruma; je Mungu atakuwa hana haki anapotuhukumu?
 
-Hii bado iko upande wetu kufahamu. Kukumbuka kwamba Mungu anashughulika na vizuizi halisi vya wayahudi. Kizuizi ni sawa na vizuizi vya wengi leo. Tungeuliza kwa njia hii: Ikiwa Mungu ni mwenye haki kwanini anihukumu kwa ajili ya dhambi yangu na kunitupa jehanamu? (Hasahasa tukiwa watoto wa Ibrahimu.)
+Hii bado iko upande wetu kufahamu. Kukumbuka kwamba Mungu anashughulika na vizuizi halisi vya Wayahudi. Kizuizi ni sawa na vizuizi vya wengi leo. Tungeuliza kwa njia hii: Ikiwa Mungu ni mwenye haki kwanini anihukumu kwa ajili ya dhambi yangu na kunitupa jehanamu? (Hasahasa tukiwa watoto wa Ibrahimu.)
 
 #### Mungu amepinga: kwahiyo basi jinsi gani atauhukumu ulimwengu?
 

@@ -23,7 +23,7 @@ The spirit of this chapter is exceptional particularly when you consider that Pa
 - approved in Christ
 - chosen in the Lord
 
-## Phebe's commendation (vs. 1–2)
+## Phebe's commendation (v. 1–2)
 
 [NOTE: Several of the quotes in the section are taken from "Alexander MacLaren's Expositions of Holy Scripture". Alexander MacClaren (February 11, 1826 - May 5, 1910) was a Scotsman and minister of the Gospel for almost 65 years who labored tirelessly in preaching and writing concerning the Scripture. MacClaren's Expositions of Holy Scripture is a collection of over 1,500 expository sermons.]
 
@@ -49,7 +49,7 @@ The spirit of this chapter is exceptional particularly when you consider that Pa
 > To the world in which Paul lived it was a strange, new thought that women could share with man in his loftiest emotions. Historically the emancipation of one half of the human race is the direct result of the Christian principle that all are one in Christ Jesus.  
 > —MacClaren
 
-## Greetings and salutations (vs. 3–15)
+## Greetings and salutations (v. 3–15)
 
 Paul Salutes 16 groups of people at Rome:
 
@@ -70,17 +70,17 @@ Paul Salutes 16 groups of people at Rome:
 15. **Asyncritus, Phlegon, Hermas, Patrobas, Hermes, and the brethren which are with them**.
 16. **Philologus, and Julia, Nereus, and his sister, and Olympas, and all the saints which are with them**.
 
-## A holy kiss (vs. 16)
+## A holy kiss (v. 16)
 
 - The 'Holy Kiss" is an ancient traditional Jewish and Christian greeting. Also called "kiss of peace", "Brother kiss" among men, or "Sister kiss" among women.
 - Mentioned 5 times in the New Testament: Romans 16:16; 1 Corinthians 16:20 ; 2 Corinthians 13:12 ; I Thessalonians 5:26 ; 1 Peter 5:14. ("peace be with you", "Shalom")
 - For the first several centuries at least, this kiss was not mouth to cheek, but mouth to mouth. From an early date, to guard against any abuse of this form of salutation, women and men were required to sit separately, and the kiss of peace was given only by women to women and by men to men.
 - Most Protestant churches have readopted the holy kiss metaphorically (in that members extend a pure, warm welcome that is referred to as a holy kiss).
 
-## One final warning (vs. 17–20)
+## One final warning (v. 17–20)
 
 Paul follows with some pastoral guidance and instruction. He says "mark" them. This word _mark_ meeans to "take aim, take heed." The same word is used in Philippians 3:17.
 
-## Closing (vs. 21–27)
+## Closing (v. 21–27)
 
 Paul ends with a hallelujah!

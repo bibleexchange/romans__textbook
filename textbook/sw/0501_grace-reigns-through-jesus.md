@@ -27,7 +27,7 @@ Pia angalia II Kor. 1:22; Gal. 4:4—7; Efes. 1:13—14.
 
 ### Yesu alihamishwa na upendo (mst. 6)
 
-Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, n.k.) yaliwezekana kwasababu, "Hatukuwa na nguvu bado, mpaka wakati wa kufa kwake Kristo kwa ajili ya wenye dhambi." Ni damu ya Yesu Kristo iliyoishinda sheria na msukumo wa upendo wa matendo yake.
+Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, n. k.) yaliwezekana kwasababu, "Hatukuwa na nguvu bado, mpaka wakati wa kufa kwake Kristo kwa ajili ya wenye dhambi." Ni damu ya Yesu Kristo iliyoishinda sheria na msukumo wa upendo wa matendo yake.
 
 ## Ni upendo usio wa kawaida (mst. 7—8)
 

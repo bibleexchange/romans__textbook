@@ -10,7 +10,7 @@ Absolute consecration is spoken of in these words. Paul was set apart to preach 
 
 Paul's message is the Gospel. The Gospel does not originate from Paul and is wholly concerned with Jesus Christ.
 
-### His readers (v.6–7a)
+### His readers (v. 6–7a)
 
 Those connected to Jesus are connected with Him by His calling. The Called that Paul is writing to does not simply mean those invited, but means those invited that have come.
 

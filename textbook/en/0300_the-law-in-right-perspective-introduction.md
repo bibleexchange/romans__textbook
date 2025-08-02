@@ -1,6 +1,6 @@
 # The Law in a Right Perspective (chapter 3)
 
-Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (vs. 1–2), absolute in its nature (vs. 3–8), unbending in its authority (vs. 9–19), has a distinct purpose (vs. 20–30), and is not made void, but rather is established by our faith (v. 31).
+Justification is by faith without the deeds of the Law. The Law is: an advantage to those who know it (v. 1–2), absolute in its nature (v. 3–8), unbending in its authority (v. 9–19), has a distinct purpose (v. 20–30), and is not made void, but rather is established by our faith (v. 31).
 
 ## Introduction
 
@@ -10,10 +10,10 @@ Paul sets the Law in its right perspective. The religious Jew clung to his knowl
 
 This conviction in the pre-eminence of the law is what fed the Jew's objection to Christ. The Holy Ghost knew the Jews were holding to their superiority and trying to justify their rejection of the Gospel. In Romans 3, we find refutations of the excuses of the Jews to further show they are condemned and in need of Jesus.
 
-1. The True Advantage of Having the Law (vs. 1–2)
-2. The Absoluteness of the Law (vs. 3–8)
-3. The Unbending Authority of the Law (vs. 9–19)
-4. The True Purpose of the Law (vs. 20–30)
+1. The True Advantage of Having the Law (v. 1–2)
+2. The Absoluteness of the Law (v. 3–8)
+3. The Unbending Authority of the Law (v. 9–19)
+4. The True Purpose of the Law (v. 20–30)
 5. The Establishing of the Law (v. 31)
 
 ### What Law?
@@ -24,7 +24,7 @@ Throughout Romans, Paul illustrates the weakness of the Law given to Moses and y
 
 Though we can find the same word "law" used in 52 verses in Romans, Paul is not always discussing the same set of principles or prescriptions.
 
-- Romans 2:12–13,17,18,20,23,25,26 : The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
+- Romans 2:12–13, 17, 18, 20, 23, 25, 26 : The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
 - Romans 2:14–15 : The Gentiles did have a law in their heart or their conscience
 - Romans 3:27 : Law of faith.
 - Romans 7:2 : Law of her husband
@@ -41,7 +41,7 @@ A man can be justified in the eyes of God without the deeds of the law of Moses 
 
 > Romans 7:22—For I delight in the law of God after the inward man:
 
-## The True Advantage of Having the Law (vs. 1–2)
+## The True Advantage of Having the Law (v. 1–2)
 
 ### The Advantage IS NOT that they are inherently superior to the Gentiles
 

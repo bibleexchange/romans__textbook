@@ -12,7 +12,7 @@ The conclusion of this chapter continues on describing this people who are guilt
 
 ### They knew God (1:19–23)
 
-God has manifested Himself to them (v.19). Creation itself clearly declares the things of God (v.20). Even those who did not receive the Law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v.21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.
+God has manifested Himself to them (v. 19). Creation itself clearly declares the things of God (v. 20). Even those who did not receive the Law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v. 21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.
 
 ## Jewish/religious guilt (2:1–29)
 

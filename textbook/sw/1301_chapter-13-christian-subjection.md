@@ -2,7 +2,7 @@
 
 ## Pitio la sura ya 13
 
-Warumi sura ya 13 inaelezea kazi yetu katika amri na sheria, vilevile kazi za kiraia. Ndani yake tunaona kwamba upendo ni utimilifu wa sheria na kwamba hatuhitaji utoaji wowote kwa ajili ya mwili (mst.14).
+Warumi sura ya 13 inaelezea kazi yetu katika amri na sheria, vilevile kazi za kiraia. Ndani yake tunaona kwamba upendo ni utimilifu wa sheria na kwamba hatuhitaji utoaji wowote kwa ajili ya mwili (mst. 14).
 
 Kwa kuwa sisi tunapokea ahadi ilioko kwenye Zaburi 47:3 (yeye atawashusha watu chini yetu na mataifa chini ya miguu yetu.) sasa tunaenda kujiunza kwenda kuwa watiifu sisi wenyewe kwa Mungu kwenye mamlaka yake. Hebu tuchunguze "utii wa Mkristo" (utii kwa watawala kama walivyo agizwa na Mungu) katika War sura ya kumi na tatu.
 
@@ -32,7 +32,7 @@ Tunapaswa kuwa wa watiifu sio kwa sababu ya kuepuka adhabu, bali pia kwa kuhifad
 
 > Mathayo 22:21—Wakamwambia, Ni ya Kaisari. Akawaambia, Basi, mlipeni Kaisari yaliyo ya Kaisari, na Mungu yaliyo ya Mungu.
 
-Kanuni inayohusiana na maandiko matakatiu ni ndefu kiasi kwamba "Kaisari" haihitaji zaidi ya kile ambacho Mungu anataka sisi kubakia katika utiifu. Kwa kadiri iwezekanavyo, tunapaswa kuishi kwa amani. Labda miaka kama 4 au 5 kabula paulo hajaandika barua hii kwa Warumi, kulikuwa na amri iliotolewa na serikali ya Kirumi ambayo ilikuwa inazuia wayahudi (kwa kuongezeka, Wakristo) kubakia katika mji wa Rumi. Na haki kwa ajili ya amri hii iliozuia mnongono ulioenea wa Wayahudi waliokuwa waleta matatizo. Paulo haelezei "haki za kiraia" za wayahudi na wakristo katika sura hii, badala yake anasisitiza majukumu yao wenyewe.
+Kanuni inayohusiana na maandiko matakatiu ni ndefu kiasi kwamba "Kaisari" haihitaji zaidi ya kile ambacho Mungu anataka sisi kubakia katika utiifu. Kwa kadiri iwezekanavyo, tunapaswa kuishi kwa amani. Labda miaka kama 4 au 5 kabula paulo hajaandika barua hii kwa Warumi, kulikuwa na amri iliotolewa na serikali ya Kirumi ambayo ilikuwa inazuia Wayahudi (kwa kuongezeka, Wakristo) kubakia katika mji wa Rumi. Na haki kwa ajili ya amri hii iliozuia mnongono ulioenea wa Wayahudi waliokuwa waleta matatizo. Paulo haelezei "haki za kiraia" za Wayahudi na Wakristo katika sura hii, badala yake anasisitiza majukumu yao wenyewe.
 
 Katika mistari ya 6 na 7 tunaona mifano ya utii kwa mamlaka ya kiraia:
 
@@ -53,7 +53,7 @@ Bwana anaahidi kurudi, lakini wakati wakurudi ataikuta imani duniani? (Luk. 18:8
 
 ### Kutembea kwetu
 
-Kila mwanafunzi wa kikristo, lazima awe na kusudi, au maono, vinginevyo tutashindwa. Hili ni jambo ambalo Kristo atatupa.
+Kila mwanafunzi wa Kikristo, lazima awe na kusudi, au maono, vinginevyo tutashindwa. Hili ni jambo ambalo Kristo atatupa.
 
 ### Je, tunafanya kazi ya Mungu au kazi zetu?
 
@@ -67,4 +67,4 @@ Fursa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kweny
 
 ## Hitimisho la sura ya 13
 
-Amri za sura hii huelekezwa kwetu leo kama zilivyoelekezwa katika siku za Paulo. Mkristo anapaswa kuchukuliana na kila hali kulingana na Mungu alivyo na kile Mungu afanyacho. Matazamio ya mkristo yameelekezwa kwa mtazamo wa Mungu wa dunia na kusudi la Mungu katika dunia.
+Amri za sura hii huelekezwa kwetu leo kama zilivyoelekezwa katika siku za Paulo. Mkristo anapaswa kuchukuliana na kila hali kulingana na Mungu alivyo na kile Mungu afanyacho. Matazamio ya Mkristo yameelekezwa kwa mtazamo wa Mungu wa dunia na kusudi la Mungu katika dunia.

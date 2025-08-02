@@ -1,6 +1,6 @@
-## Those in Christ are no longer condemned (vs. 1—9)
+## Those in Christ are no longer condemned (v. 1—9)
 
-### They walk in liberty with no condemnation (vs. 1)
+### They walk in liberty with no condemnation (v. 1)
 
 The deliverance Paul cried for in 7:24 is announced in 8:1. Sin brought bondage, but the Law of the Spirit of life in Christ Jesus has worked great liberty! **Our position in Christ** includes freedom from condemnation.
 
@@ -11,9 +11,9 @@ The righteousness of the law is fulfilled in us through following Christ by the 
 1. following after the flesh
 2. following after the Spirit of God
 
-My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (vs. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16—26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
+My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16—26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
 
-### They walk according to a new law (vs. 2—3)
+### They walk according to a new law (v. 2—3)
 
 #### There are three laws mentioned here
 
@@ -25,12 +25,12 @@ My will may not always be contrary to God's will, but to prioritize the flesh ov
 
 It provides justification where the old law only condemned. It works liberty where the old law only worked bondage. This law works righteousness in the believer, but the old law could only identify unrighteousness. This life is subject to the law of God, whereas the flesh is not and cannot be for it is an enemy of God.
 
-#### The fulfilling of the "law of the Spirit of life" (vs. 4)
+#### The fulfilling of the "law of the Spirit of life" (v. 4)
 
 It is fulfilled in the one that walks not after the flesh, but after the Spirit. If the Spirit of God dwell in you then His life is fulfilled in you. You no longer try to serve God in the flesh, but you have the Spirit of Christ to inspire and insure life. This life is not your own, but is Christ's life (Gal. 2:20). This life is not debtor to the flesh, but to God to serve Him and obey Him (v. 12). This life is fulfilled in mortifying carnal deeds of the flesh (v. 13).
 
-### They walk with a new mind (vs. 5—6)
+### They walk with a new mind (v. 5—6)
 
 Those in Christ do things differently—both actions and thoughts. They walk following after the Spirit of God. Walking after the Spirit also includes minding the things of the Spirit. The Spirit of God will lead us to life, but the flesh will lead to death and self-destruction.
 
-### Ye are in the Spirit, if the Spirit is in You (vs. 9)
+### Ye are in the Spirit, if the Spirit is in You (v. 9)

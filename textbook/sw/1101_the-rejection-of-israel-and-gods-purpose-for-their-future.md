@@ -4,7 +4,7 @@
 
 ### Kukataa kwa waisrael sio kitu cha kidunia (11:1—10)
 
-Ukataaji ni kutokuamini kwa wayahudi (Mdo. 14:2; Ufu. 21:8).
+Ukataaji ni kutokuamini kwa Wayahudi (Mdo. 14:2; Ufu. 21:8).
 
 ### Upofu ulikuwa kwa kusudi na sio kitu cha kudumu (11:11—21)
 

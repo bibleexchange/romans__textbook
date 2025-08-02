@@ -25,9 +25,9 @@ Mapenzi yangu mara zote yanafanya kinyume cha mapenzi ya Mungu, lakini ukiutangu
 
 Huleta kuhesabia haki pale katika sheria ya zamani ilipokua inatufunga. Sheria hii inafanya kazi njema kwa muumini, bali sheria ya zamani inaweza kutambua tu uovu. Uzima huu ni somo la shreia ya Mungu, ambapo mwili hautaweza na hauwezi kuwa adui wa Mungu.
 
-#### Utimilifu wa "sheria ya Roho wa uzima" (mst.4)
+#### Utimilifu wa "sheria ya Roho wa uzima" (mst. 4)
 
-Ilitimilizwa kati ya mmoja ambaye alitembea si kwa mwili, bali kwa Roho. Kama Roho wa Mungu akikaa ndani yako ndipo uzima wake utakamilika kwako. Usijaribu kumtumikia Mungu katika hali ya mwilini, bali unaye Roho wa Kristo atakye kuvuvia na kuhakikishia uzima. Huu uzima si wako mwenyewe, bali ni uzima wa Kristo (Gal.2:20). Huu uzima haudaiwi kwenye mwili, bali kwa kumtumikia Mungu na kumtii Yeye (mst. 12). Huu uzima ulitimilika kwa kupoteza matendo ya mwili (mst. 13).
+Ilitimilizwa kati ya mmoja ambaye alitembea si kwa mwili, bali kwa Roho. Kama Roho wa Mungu akikaa ndani yako ndipo uzima wake utakamilika kwako. Usijaribu kumtumikia Mungu katika hali ya mwilini, bali unaye Roho wa Kristo atakye kuvuvia na kuhakikishia uzima. Huu uzima si wako mwenyewe, bali ni uzima wa Kristo (Gal. 2:20). Huu uzima haudaiwi kwenye mwili, bali kwa kumtumikia Mungu na kumtii Yeye (mst. 12). Huu uzima ulitimilika kwa kupoteza matendo ya mwili (mst. 13).
 
 ### Tembea katika akili mpya (mst. 5—6)
 

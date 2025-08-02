@@ -14,9 +14,9 @@ Hitimisho la sura hii linaendelezea watu hawa ambao wanahatia nakusitahili ghadh
 
 Mungu alijidhihirisha mwenyewe kwao (mst. 19). Uumbaji wenyewe unatangaza matendo ya Mungu (mst. 20). Hiyo hata kwa wale wasio pokea sheria au kamwe hawajawahi kuisikia injili wamepewa ufunuo wa Mungu kwa njia ya asili kwa hiyo hawana udhuru. Kwa mara ya kwanza walimjua Mungu lakini hawakumtukuza kama Mungu (mst. 21). Picha za sanamu ni matokeo ya kuukataa ukweli na kutomtukuza Mungu.
 
-## Hatia ya kidini/ya kiyahudi (2:1—29)
+## Hatia ya kidini/ya Kiyahudi (2:1—29)
 
-Warumi sura ya pili inazungumzzia juu ya myahudi mwenye hatia au hatia ya mtu wa kidini. Myahudi aliyekataa nuru ya Ufunuo. Katika sura hii tunaona wayahudi wakiwalaumu wengine, kama mafarisayo walivyofanya. Vilevile sura hii inazungumzia kuhusu tohara ya moyo, ambayo ni ya muhimu sana.
+Warumi sura ya pili inazungumzzia juu ya myahudi mwenye hatia au hatia ya mtu wa kidini. Myahudi aliyekataa nuru ya Ufunuo. Katika sura hii tunaona Wayahudi wakiwalaumu wengine, kama mafarisayo walivyofanya. Vilevile sura hii inazungumzia kuhusu tohara ya moyo, ambayo ni ya muhimu sana.
 
 ### Kanuni za hukumu za Mungu (2:1—16)
 
@@ -30,7 +30,7 @@ Hukumu ya Mungu nikulinga na ukweli haina upendeleo, na ni halisi. Mwanadamu ana
 
 Haitoshi kuifahamu sheria, lazima KUITIMIZA. Ujinga wa sheria hautawaokoa watu wamataifa. Hii inarejea kwa watu wamataifa ambao hawakuipokea sheria ya Musa. Ingawa wao hawakuwa na sheria ya Musa, watu wote wamekwisha pewa habari kuhusu uumbaji na kuwa na sheria ya Mungu, iliofunuliwa na dhamiri ya mwanadamu, ilioandikwa katika moyo. Paulo ameshaonyesha kwamba watu wote wako chini ya hukumu kwa hiyo kuna hitaji la wokovu.
 
-Wale ambao wamefanya dhambi katika sheria watahukumiwa kwa sheria. Yeye husimama mahali pa faraja kuu na haki yake kwa yeye ANAJUA sheria, lakini HAKUNA HAKI KWA KUIJUA SHERIA. Paulo anajiwakilisha kama mmataifa mwenye hatia kwasababu yeye hakuifanya sheria na sio kwamba yeye hakuwa na sheria, kama wayahudi wafanyavyo, na wayahudi pia hawakusamehewa kwasababu ya hatia yao walionao na sio sheria, na wao pia watahukumiwa kwa kutoifanya sheria. Ushuhda wao ni uovu, hujivuna kwakuijua sheria, lakini kutomheshimu Mungu ni KUVUNJA sheria.
+Wale ambao wamefanya dhambi katika sheria watahukumiwa kwa sheria. Yeye husimama mahali pa faraja kuu na haki yake kwa yeye ANAJUA sheria, lakini HAKUNA HAKI KWA KUIJUA SHERIA. Paulo anajiwakilisha kama mmataifa mwenye hatia kwasababu yeye hakuifanya sheria na sio kwamba yeye hakuwa na sheria, kama Wayahudi wafanyavyo, na Wayahudi pia hawakusamehewa kwasababu ya hatia yao walionao na sio sheria, na wao pia watahukumiwa kwa kutoifanya sheria. Ushuhda wao ni uovu, hujivuna kwakuijua sheria, lakini kutomheshimu Mungu ni KUVUNJA sheria.
 
 #### Utii ni kigezo kwa ajili ya kuhesabiwa haki (2:13)
 
@@ -38,11 +38,11 @@ Kuhesabiwa kwasasa inatolea kwa imani katika Kristo Yesu. Kristo ni utimilifu wa
 
 ### Sheria ya Mungu imeandikwa kwenye mioyo ya wanadamu (2:14—16)
 
-Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika MIOYO yao na dhamiri yao zinashuhudia.
+Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama Wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika MIOYO yao na dhamiri yao zinashuhudia.
 
 Paulo anakabiliana na udhuru wa mwanadamu, kujibu swali: Jinsi gani Mungu anaweza kuhukumu mataifa ambao hawakuwa na sheria? Mungu atamhukumu mtu kulingana na ukweli ambao aliutoa kwake. Wamataifa wanaotenda dhambi watapotea, lakini sheria ya Musa haitatumika kama kiwango cha hukumu dhidi yao. Watu wote bado walikuwa na sheria ya dhamiri zao na ushuhuda wa uumbaji. Mtenda dhambi yuko chini ya hukumu hata kama bila sheria ya Musa.
 
-Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. Mungu tu ndio mwenye kiwango cha maadili. Hakuna sheria moja kwa ajili ya wayahudi na nyingine kwa ajili ya wamataifa.
+Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. Mungu tu ndio mwenye kiwango cha maadili. Hakuna sheria moja kwa ajili ya Wayahudi na nyingine kwa ajili ya wamataifa.
 
 #### Mungu atahukumu siri za wanadamu (2:16)
 
@@ -50,9 +50,9 @@ Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. 
 
 #### Wayahudi walitua kwenye sheria (2:17—18)
 
-Wayahudi walidai kusamehewa kutoka kwenye hukumu iliojikita kwenye urithi. Wakati Yesu anawalaumu wayahudi, wao walijibu: sisi ni wa uzao wa Ibrahimu; Yesu aliitikia:ikiwa ninyi wa uzao wa Ibrahimu, mngefanya kazi za Ibrahimu (Yoh. 8:33—39). Wayahudi waliamini wao wangepokea uzima wa milele juu ya stahili ya kuwa myahudi na agano la tohara. Maandiko ya zamani ya kirabi huelezea kwamba mtu aliyetahiriwa hatapotea. Wayahudi walikuwa na mapokeo kwamba Ibrahimu alisimama kwenye malango ya kuzimu kuhakikisha kwamba hakuna mtu aliyetahiriwa ambaye ingia hapo.
+Wayahudi walidai kusamehewa kutoka kwenye hukumu iliojikita kwenye urithi. Wakati Yesu anawalaumu Wayahudi, wao walijibu: sisi ni wa uzao wa Ibrahimu; Yesu aliitikia:ikiwa ninyi wa uzao wa Ibrahimu, mngefanya kazi za Ibrahimu (Yoh. 8:33—39). Wayahudi waliamini wao wangepokea uzima wa milele juu ya stahili ya kuwa myahudi na agano la tohara. Maandiko ya zamani ya kirabi huelezea kwamba mtu aliyetahiriwa hatapotea. Wayahudi walikuwa na mapokeo kwamba Ibrahimu alisimama kwenye malango ya kuzimu kuhakikisha kwamba hakuna mtu aliyetahiriwa ambaye ingia hapo.
 
-Ujuzi wa sheria hauwezi kumuokoa Myahudi. Myahudi anayejivuna katika sheria huamini yeye ni kiongozi kwa kipofu, bali yeye mwenyewe ni kipofu. Kwamba yeye anaijua njia, kwamba hakuna mwingine ajuaye zaidi. Anasimama katika sehemu hii kwa ujasiri mkubwa wa binafsi kwasababu yeye ANAJUA sheria, lakini HAKUNA HAKI KATIKA KUJUA SHERIA. Paulo naongea mojo kwa moja kwa msisitizo kuelekea pointi yake, wewe uhubiriye kwamba mtu asiibe, mbona wewe waiba? Paulo kwa wazi anawakilisha kwamba eti mmataifa anahatia kwasababu hafanyi matakwa ya sheria bali si hivyo kwa kuwa yeye hana sheria, kama wayahudi wafanyavyo, vilevile wayahudi hawasamehewi hatia yao kwasababu wanao sheria na wanaijua, bali hatahivyo wanahukumiwa kwasababu hawatimizi. Ujasiri wao ni ujinga wa moyo kwakuwa wao ni vipofu na wanaongoza kipofu.
+Ujuzi wa sheria hauwezi kumuokoa Myahudi. Myahudi anayejivuna katika sheria huamini yeye ni kiongozi kwa kipofu, bali yeye mwenyewe ni kipofu. Kwamba yeye anaijua njia, kwamba hakuna mwingine ajuaye zaidi. Anasimama katika sehemu hii kwa ujasiri mkubwa wa binafsi kwasababu yeye ANAJUA sheria, lakini HAKUNA HAKI KATIKA KUJUA SHERIA. Paulo naongea mojo kwa moja kwa msisitizo kuelekea pointi yake, wewe uhubiriye kwamba mtu asiibe, mbona wewe waiba? Paulo kwa wazi anawakilisha kwamba eti mmataifa anahatia kwasababu hafanyi matakwa ya sheria bali si hivyo kwa kuwa yeye hana sheria, kama Wayahudi wafanyavyo, vilevile Wayahudi hawasamehewi hatia yao kwasababu wanao sheria na wanaijua, bali hatahivyo wanahukumiwa kwasababu hawatimizi. Ujasiri wao ni ujinga wa moyo kwakuwa wao ni vipofu na wanaongoza kipofu.
 
 #### Wayahudi wanamini wao wako juu ya wamataifa (2:19—24)
 

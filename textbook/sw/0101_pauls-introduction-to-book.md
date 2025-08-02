@@ -14,7 +14,7 @@ Ujumbe wa Paulo ni injili. Injili haikutokana na Paulo injili yote inamhusu Yesu
 
 Wale waliounganishwa na Yesu wameungwa pamoja naye katika wito wake. Walioitwa ambao Paulo anaandika haimanishi waalikwa, bali humaanisha wale walioalikwa ambao wamekuja tayari.
 
-Haina shaka kwamba waandikiwa wa waraka huu walikuwa ni wakristo Warumi (mst. 7, 15). Kanisa lilikuwa na Wakristo Wayahudi na Wamataifa.
+Haina shaka kwamba waandikiwa wa waraka huu walikuwa ni Wakristo Warumi (mst. 7, 15). Kanisa lilikuwa na Wakristo Wayahudi na Wamataifa.
 
 ### Salamu zake (mst. 7b)
 
@@ -34,10 +34,10 @@ Imani ya watakatifu wa Rumi katika utawala wote. Hawa wakridto wa kirumi walikuw
 
 ### Yeye amekuwa na shauku ya kutembelea watakatifu wa Rumi na kuwatakia karama za roho kwa kusudi lake kuliona kanisa likiwa limethibitika (mst. 10–12)
 
-Roma ilikuwa ya kimkakati, lakini Paulo anaongozwa na Roho na sio takwimu. Inawezekana kwamba Paulo alitambua thamani ya kimkakati ya kujenga kanisa katika mji mkuu wa Dola la Kirumi, lakini Paulo alikuwa aina ya mhubiri ambayo ingewekeza sana katika jiji ambalo hakuna mtu aliyewahi kusikia. Alibarikiwa kusikia kwamba kulikuwa na watakatifu kule Roma na alitamani kuwatembelea ili kufanya sehemu yake kuimarisha kanisa huko. Ni mantiki kwamba uamsho katika mji wa Roma ungeathiri Dola yote, lakini ukweli ni, Mungu angechagua mahali popote kuwa mwanzo wa uamsho ambao ungeugeuza ulimwengu (Mdo. 17:6).
+Rumi ilikuwa ya kimkakati, lakini Paulo anaongozwa na Roho na sio takwimu. Inawezekana kwamba Paulo alitambua thamani ya kimkakati ya kujenga kanisa katika mji mkuu wa Dola la Kirumi, lakini Paulo alikuwa aina ya mhubiri ambayo ingewekeza sana katika jiji ambalo hakuna mtu aliyewahi kusikia. Alibarikiwa kusikia kwamba kulikuwa na watakatifu kule Rumi na alitamani kuwatembelea ili kufanya sehemu yake kuimarisha kanisa huko. Ni mantiki kwamba uamsho katika mji wa Rumi ungeathiri Dola yote, lakini ukweli ni, Mungu angechagua mahali popote kuwa mwanzo wa uamsho ambao ungeugeuza ulimwengu (Mdo. 17:6).
 
-### Paulo alikuwa amezuiliwa kwenda Roma (mst. 13–15)
+### Paulo alikuwa amezuiliwa kwenda Rumi (mst. 13–15)
 
-Alikuwa anataka na hata alipanga kwenda, lakini alikuwa amezuiliwa. Paulo siku moja angeenda Roma kama mfungwa kusimama mbele ya viongozi wa Warumi na kutangaza Injili ya Yesu Kristo. Kitabu cha Matendo kinatuambia kwamba Paulo alikaa miaka miwili huko Roma. Inaaminika kwamba alikuwa chini ya kukamatwa kwa nyumba wakati huu wa kuwa Roma. Alikatwa kichwa huko Roma mnamo 67 BK.
+Alikuwa anataka na hata alipanga kwenda, lakini alikuwa amezuiliwa. Paulo siku moja angeenda Rumi kama mfungwa kusimama mbele ya viongozi wa Warumi na kutangaza Injili ya Yesu Kristo. Kitabu cha Matendo kinatuambia kwamba Paulo alikaa miaka miwili huko Roma. Inaaminika kwamba alikuwa chini ya kukamatwa kwa nyumba wakati huu wa kuwa Roma. Alikatwa kichwa huko Rumi mnamo 67 BK.
 
 Paulo alikuwa na hamu kubwa ya kuhubiri Injili huko Roma. Yeye hutumia neno "mdaiwa" akimaanisha mwenyewe kuonyesha kuwa amejitolea kuwahubiria watu wote (mst. 14). Alikuwa na deni kwa mwenye dhambi kumwambia juu ya Kristo. "Wayunani" hutumiwa kurejelea Mataifa wenye busara ambao wameelimishwa kwa tamaduni na falsafa ya Uigiriki. "Wasio Wayunani" hutumiwa kurejelea wale walio nje ya tamaduni ya Uigiriki, ambayo isingeelimishwa. Paulo yuko tayari kuhubiria kila mtu.

@@ -4,7 +4,7 @@
 
 Romans chapter fourteen talks about how you should treat a weak brother. We need to help those that are weak in their faith. We see the need to be charitable. We need to live for God, and all that we do needs to be unto God. We should not judge one another, for one day every man will give an account of his own life.
 
-## How should we treat Christians with differences of opinion? (vs. 1)
+## How should we treat Christians with differences of opinion? (v. 1)
 
 There are differences in the health of our faith and there are also differences of opinion (weak and strong). There is clear instruction given in Scripture:
 
@@ -26,7 +26,7 @@ Most often our opinions are inspired by Scripture, but we tend to fill the gray 
 
 Should everybody be just like me?
 
-## What is a weak brother in this context? (vs. 2–4)
+## What is a weak brother in this context? (v. 2–4)
 
 ### Weakness in eating
 
@@ -42,7 +42,7 @@ In I Corinthians chapter 8 Paul had to deal with this same issue with the Corint
 
 The spirit of the law does not ask "did you remember the day?", but it asks "did you do it as unto the Lord?" They worshiped on certain days, they fasted and feasted on certain days, and they were putting more importance on days and not the Christ.
 
-## We are brethren and not judges (vs. 5–12)
+## We are brethren and not judges (v. 5–12)
 
 Verse six clearly states that both sides of the argument know the Lord.
 
@@ -54,10 +54,10 @@ What we are supposed to be doing for others:
 - **Stop judging** (Romans 14:13)
 - **We are to carry each others burdens** (Gal. 6:2)
 
-## Do not put a stumbling block in my brother's way, (vs. 13–17)
+## Do not put a stumbling block in my brother's way, (v. 13–17)
 
-## We are told to pursue after peace in our differences (vs. 18–20)
+## We are told to pursue after peace in our differences (v. 18–20)
 
-## The blessing of liberty (vs. 22–23)
+## The blessing of liberty (v. 22–23)
 
 It is Much more blessed to have liberty before God which we do not use on account of our brother's weaknesses, than to insist on liberty, though it is distinctly given.
