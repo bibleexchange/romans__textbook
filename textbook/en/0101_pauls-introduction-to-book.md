@@ -12,7 +12,7 @@ Paul's message is the Gospel. The Gospel does not originate from Paul and is who
 
 ### His readers (v. 6–7a)
 
-Those connected to Jesus are connected with Him by His calling. The Called that Paul is writing to does not simply mean those invited, but means those invited that have come.
+Those connected to Jesus are connected with Him by His calling. The "called" that Paul is writing to does not simply mean those invited, but means those invited that have come.
 
 It is unquestionable that the recipients of this epistle were the Roman Christians (v. 7, 15). The church contained both Jews and Gentiles Christians.
 

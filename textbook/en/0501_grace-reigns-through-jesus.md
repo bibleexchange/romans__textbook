@@ -48,7 +48,7 @@ _Reconciliation_ means "To come to terms; agree." When I'm reconciled to God, He
 
 Reconciliation has to do with man's relationship with God. We have received the _ministry of reconciliation_ (2 Cor. 5:16–21). God changes man thoroughly through reconciliation, and this change is the **work of God**. The "new things" are created by God, just as in creation God spoke the earth into existence. The the earth has its source in God. Salvation is God reconciling the world unto Himself.
 
-We have been made ambassadors of the office of reconcilliation (Rom. 5:19–20). Man's sin separates him from God, but He has committed to us a great word of reconciliation (Rom. 5:21).
+We have been made ambassadors of the office of reconciliation (Rom. 5:19–20). Man's sin separates him from God, but He has committed to us a great word of reconciliation (Rom. 5:21).
 
 ## Through Christ's atonement grace reigns (v. 11–21)
 

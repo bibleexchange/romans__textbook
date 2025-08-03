@@ -8,7 +8,7 @@ Believers are to receive one another, as Christ received the gentiles—to God's
 
 ### There are some differences (historical background)
 
-There are many cultural and religious differences between the Jews and gentiles and with the opening of the Gospel to the gentiles there were alot of hurdles to overcome. Paul admonishes the church adamantly, that we are to labor to receive the gentiles as God has already received them. The high standard and rule by which our conduct is measured is "as Christ also received us to the glory of God" (v. 7).
+There are many cultural and religious differences between the Jews and gentiles and with the opening of the Gospel to the gentiles there were a lot of hurdles to overcome. Paul admonishes the church adamantly, that we are to labor to receive the gentiles as God has already received them. The high standard and rule by which our conduct is measured is "as Christ also received us to the glory of God" (v. 7).
 
 Being predominately Jewish, the early churches would feel "very Jewish" (a mixture of culture and conviction). There was an early expulsion from Rome of all Jews and it is only natural the cultural shift that took place in the Roman churches. Eventually, Jews began to return back to the city of Rome finding things different than when they had left. In order to not become divided, the early church had to labor together in overcoming their cultural differences by learning what things were "most needful" (Acts 15:28; Ephesians 4:3, 13).
 

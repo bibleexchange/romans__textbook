@@ -11,7 +11,7 @@ The righteousness of the law is fulfilled in us through following Christ by the 
 1. following after the flesh
 2. following after the Spirit of God
 
-My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16—26, The "fruit of the Spirit" are constrasted with the "works of the flesh."
+My will may not always be contrary to God's will, but to prioritize the flesh over the Spirit of God is the very recipe for failure. The carnal mind or the mind that is governed by that which is carnal is the very definition of rebellion against God (v. 7). To walk after the flesh is to not trust Christ as Savior and not follow him as Lord of all. Walking after the flesh is a lifestyle centered on myself. To walk after the Spirit, is to walk where He leads. This will require self-denial and involves a process of maturity. In Galatians 5:16—26, The "fruit of the Spirit" are contrasted with the "works of the flesh."
 
 ### They walk according to a new law (v. 2—3)
 

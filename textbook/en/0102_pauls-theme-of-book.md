@@ -1,4 +1,4 @@
-## Paul's Theme: The Gospel (1:16–17)
+## Paul's theme: the Gospel (1:16–17)
 
 Verses 16 and 17 are the key verses of this epistle and are a summary of the epistle.
 

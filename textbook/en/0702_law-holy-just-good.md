@@ -6,7 +6,7 @@ In Romans 7:7–13, Paul establishes the goodness of God's Law and the wickednes
 
 Why Would Paul Ask this question? Paul had written in verse 6 that the law was something he was delivered from. This would seem to infer that the law is "bad."
 
-### Answer: No, the law has a good gurpose (v. 7b)
+### Answer: No, the law has a good purpose (v. 7b)
 
 The main theme of chapter seven is the believer's relation to the law. The believer is united with Christ, who is "the new husband." When we are born we are bound to the law like as a marriage. To be free from the law, because the law will never die or change we must die. We become dead to the law by the body of Christ, which allows us to marry Jesus, who is raised from the dead.
 

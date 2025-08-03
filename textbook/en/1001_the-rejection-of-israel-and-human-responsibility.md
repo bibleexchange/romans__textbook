@@ -14,7 +14,7 @@ Israel followed after the law of righteousness, but could not attain it (they co
 
 Israel did not seek it by faith.
 
-### A stumblingstone is Laid (9:33)
+### A stumblingblock is Laid (9:33)
 
 They stumbled over the rock of offense. They stumbled over Jesus. He offended the leaders of Israel by exposing sin.
 
@@ -24,7 +24,7 @@ What is the message of the Gospel that is open to all? "And whosoever believeth 
 
 #### They are not saved (10:1)
 
-The Gospel is for the Jew (Rom. 1:16; 2:9—10). The majority of the Jews rejected the Gospel (Acts 2:22). The first perseuction of Christians was largely from the Jews (Acts 9:1—2).
+The Gospel is for the Jew (Rom. 1:16; 2:9—10). The majority of the Jews rejected the Gospel (Acts 2:22). The first persecution of Christians was largely from the Jews (Acts 9:1—2).
 
 ### The Jews' zeal (10:2)
 

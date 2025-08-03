@@ -8,9 +8,9 @@ It is interesting to note that there is somewhat a controversy over Romans 15:14
 
 ### The personality of this passage: personal
 
-Romans chapter sixteen shows us the personal side of Paul as he sends greetings to Believers who live in Rome. He speaks as one does to friends and not only as a leader or pastor. This sixteenth chapter is often neglected by many. It is by far the most extensive, intimate, and particular of all the words of greeting in Paul's letters (second to it is Colossians 4). No one can afford to miss this wonderful outpouring of the heart of our apostle toward the saints whom he so loved, which means all the church of God.
+Romans chapter sixteen shows us the personal side of Paul as he sends greetings to believers who live in Rome. He speaks as one does to friends and not only as a leader or pastor. This sixteenth chapter is often neglected by many. It is by far the most extensive, intimate, and particular of all the words of greeting in Paul's letters (second to it is Colossians 4). No one can afford to miss this wonderful outpouring of the heart of our apostle toward the saints whom he so loved, which means all the church of God.
 
-The spirit of this chapter is exceptional particularly when you consider that Paul did not found the church at Rome and had not even visited it yet (Similar to his letter to Colossae)! Despite that, Paul mentions by name 26 people in that church. Each name listed in Paul's closing remarks undoubtedly has a story of courage, love and devotion to the Lord Jesus Christ. Other than by their names, Paul identifies these people as:
+The spirit of this chapter is exceptional particularly when you consider that Paul did not found the church at Rome and had not even visited it yet (similar to his letter to Colossae)! Despite that, Paul mentions by name 26 people in that church. Each name listed in Paul's closing remarks undoubtedly has a story of courage, love and devotion to the Lord Jesus Christ. Other than by their names, Paul identifies these people as:
 
 - kinsmen, sisters, brethren, mother
 - servants of the church
@@ -79,7 +79,7 @@ Paul Salutes 16 groups of people at Rome:
 
 ## One final warning (v. 17–20)
 
-Paul follows with some pastoral guidance and instruction. He says "mark" them. This word _mark_ meeans to "take aim, take heed." The same word is used in Philippians 3:17.
+Paul follows with some pastoral guidance and instruction. He says "mark" them. This word _mark_ means to "take aim, take heed." The same word is used in Philippians 3:17.
 
 ## Closing (v. 21–27)
 

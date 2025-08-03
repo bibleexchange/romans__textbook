@@ -15,7 +15,7 @@ There are differences in the health of our faith and there are also differences 
 But There is also a lot of opinion of interpretation and application that fill in-between the lines. Christians divide over things such as:
 
 - Politics
-- Woman in ministry (Can a woman be a pastor?)
+- Woman in ministry (can a woman be a pastor?)
 - The authority of the Word of God
 - The baptism of the Holy Ghost
 - Saturday/Sunday debate
@@ -30,7 +30,7 @@ Should everybody be just like me?
 
 ### Weakness in eating
 
-In I Corinthians chapter 8 Paul had to deal with this same issue with the Corinthian church. This may sound trivial and non-religious of a dispute to the modern Christian, but The Layman's Bible Commentary gives insight into this controversy:
+In 1 Corinthians chapter 8 Paul had to deal with this same issue with the Corinthian church. This may sound trivial and non-religious of a dispute to the modern Christian, but The Layman's Bible Commentary gives insight into this controversy:
 
 > It was a different kind of religious question in the Roman Empire. The fact is in a Roman market you could hardly find a steak or a roast or any kind of meat that had not come from some animal slaughtered in a heathen temple. The animal would be killed as a sacrifice; then the priests (who, numerous though they were, could not possibly eat all the animals the people offered) would sell the meat through retail outlets. This being the major source of meats on the market, the Christian shopper was faced with a problem: in buying and eating this meat, am I or am I not helping out the heathen worship?
 

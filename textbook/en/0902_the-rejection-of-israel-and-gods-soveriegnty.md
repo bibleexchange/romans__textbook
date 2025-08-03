@@ -1,6 +1,6 @@
 # The inclusion of Gentiles in the promise (9:6—29)
 
-## The True Israel is According to the Promise (v. 6—10)
+## The true Israel is according to the promise (v. 6—10)
 
 The majority of Israel has missed the point. Christ is the fulfillment of the law, but Israel stumbles over him as if a stone and hold to their laws and religion. They think they are the children of God because they are the children of Abraham and Isaac and that they are the ones to whom the law was revealed.
 
@@ -41,4 +41,4 @@ In verse 27 the apostle quotes another prophet, Isaiah, concerning a remnant (Is
 
 The ways of God are not our ways. He waits long - He forbears - He is silent: then suddenly puts into execution an eternally formed purpose.
 
-Verse 29 is a quote from Isaiah 1:9 shows that if God had not intervened by his grace, they would have all become as Sodom and Gomorrah (2 Thessalonians 2:7).
+Verse 29 is a quote from Isaiah 1:9 shows that if God had not intervened by his grace, they would have all become as Sodom and Gomorrah (2 Thess. 2:7).
