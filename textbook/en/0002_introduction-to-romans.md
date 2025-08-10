@@ -47,3 +47,5 @@ Paul wanted to introduce himself to the Christians at Rome before making his sto
 Romans is a theological treatise of the meaning of the Gospel. Though the church is predominately Gentile, Judaism was a dominate influence early on. There were many Jews in Rome at the time of the writing of the Epistle to the Romans and even the Jewish Christians were heavily bound to the traditions and heritage of Judaism. The Jews believed because they had Moses's Law and the covenant of circumcision that they were guaranteed eternal life with God. They believed they were superior to the heathen Gentiles and that they did not need to submit to heathen rulers. Paul refutes the doctrines of the Jews which were inconsistent with Scripture.
 
 <!--Paul is a good candidate to write the book of Romans, since he was both extremely knowledgeable in the Jewish Scripture and also the self-named apostle to the Gentiles.-->
+
+<!--Paul used a lot of scripture from the Old Testament. He uses the phrase "It is written" many times (1:17; 2:24; 3:4, 10; 4:17; 8:36; 9:13, 33; 10:15; 11:8, 26; 15:3, 9, 21). In 15:4 he says that the Old Testament was written for our instruction.-->

@@ -10,6 +10,8 @@ Absolute consecration is spoken of in these words. Paul was set apart to preach 
 
 Paul's message is the Gospel. The Gospel does not originate from Paul and is wholly concerned with Jesus Christ.
 
+<!--The Gospel of Christ was revealed by Scripture. Paul shows this in the letter, since he quotes the Old Testament more than he does in any of his other letters.-->
+
 ### His readers (v. 6–7a)
 
 Those connected to Jesus are connected with Him by His calling. The "called" that Paul is writing to does not simply mean those invited, but means those invited that have come.
@@ -39,3 +41,7 @@ Rome was strategic, but Paul is led by the Spirit and not statistics. It is prob
 He had wanted to and even planned to go, but he had been hindered. Paul would one day go to Rome as a prisoner to stand before the Roman leaders and proclaim the Gospel of Jesus Christ. The book of Acts tells us that Paul dwelt two years in Rome. It is believed that he was under house arrest during this time of being in Rome. He was beheaded in Rome in AD 67.
 
 Paul had great desire to preach the Gospel in Rome. He uses the word "debtor" in reference to himself to show that he is committed to preach to all men (v. 14). He was a debtor to the sinner to tell him about Christ. "Greeks" is used to refer to the wise Gentiles who have been educated in Greek culture and philosophy. "Barbarians" is used to refer to those outside of the Greek culture, that would not have been educated. Paul is ready to preach to everyone.
+
+<!--The opposition of Greek and barbarian is standard in Greek and Latin texts of the educated elite, dividing the world between those who participate in Greco-Roman culture and those who do not
+
+Gaventa, B. R. (2024). Romans: A Commentary (C. C. Black, J. T. Carroll, & S. E. Hylen, Eds.; First edition, p. 44). Westminster John Knox Press.-->
