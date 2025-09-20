@@ -25,24 +25,13 @@ The spirit of this chapter is exceptional particularly when you consider that Pa
 
 ## Phebe's commendation (v. 1–2)
 
-[Note: Several of the quotes in the section are taken from "Alexander MacLaren's Expositions of Holy Scripture". Alexander MacClaren (February 11, 1826 - May 5, 1910) was a Scotsman and minister of the Gospel for almost 65 years who labored tirelessly in preaching and writing concerning the Scripture. MacClaren's Expositions of Holy Scripture is a collection of over 1,500 expository sermons.]
-
 ### Paul recommends a sister (a sister not in the flesh but in the Lord)
 
 ### Cenchrea was a small harbor in Corinth
 
-> But if we take into account the hideous immoralities of Corinth, we shall deem it probable that the port, with its shifting maritime population, was, like most seaports, a soil in which goodness was hard put to it to grow, and a church had much against which to struggle. To be a Christian at Cenchrea can have been no light task.  
-> —MacClaren
-
 ### Phebe was one of the many good women who helped Paul in the work of the Gospel
 
-> Her name is a purely idolatrous one, and stamps her as a Greek, and by birth probably a worshiper of Apollo.  
-> —MacClaren
-
 ### To Phebe is intrusted this letter who would personally deliver it to the church at Rome
-
-> Here are Paul the Jew, Phoebe the Greek, and the Roman readers of the epistle, all fused together by the power of the divine love that melted their hearts, and the common faith that unified their lives. The list of names in this chapter, comprising as it does men and women of many nationalities, and some slaves as well as freemen.  
-> —MacClaren
 
 > Galatians 3:28—There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus.
 

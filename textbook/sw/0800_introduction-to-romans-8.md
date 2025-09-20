@@ -23,11 +23,7 @@ Mapenzi yangu mara zote yanafanya kinyume cha mapenzi ya Mungu, lakini ukiutangu
 2. **Sheria ya Mungu** (aliyopewa kupitia Musa). Ni haki, nzuri, na takatifu. Inapinga dhambi na kazi za mwili. Inakuletea kushawishika na uamuzi. Sheria ikiwa dhaifu haiwezi kuokoa lakini inaelekeza kwa Kristo.
 3. **Sheria ya uzima wa Roho**. Sheria hii ni kuliko sheria ya dhambi na kifo. Ni maisha ya Yesu yalitolewa kwa waamini wa imani. Uhuru ni hali ya kuzaliwa kwa mtu upya, uhuru wa kumtumikia Yesu Kristo. Kumtumikia Bwana huleta wingi wa uzima. Kila muumini lazima adhihirishe maisha ya Yesu zaidi na zaidi.
 
-#### Asili ya "sheria ya Roho wa uzima"
-
-Huleta kuhesabia haki pale katika sheria ya zamani ilipokua inatufunga. Sheria hii inafanya kazi njema kwa muumini, bali sheria ya zamani inaweza kutambua tu uovu. Uzima huu ni somo la shreia ya Mungu, ambapo mwili hautaweza na hauwezi kuwa adui wa Mungu.
-
-#### Utimilifu wa "sheria ya Roho wa uzima" (mst. 4)
+#### Utimilifu wa "sheria ya roho wa uzima" (mst. 4)
 
 Ilitimilizwa kati ya mmoja ambaye alitembea si kwa mwili, bali kwa Roho. Kama Roho wa Mungu akikaa ndani yako ndipo uzima wake utakamilika kwako. Usijaribu kumtumikia Mungu katika hali ya mwilini, bali unaye Roho wa Kristo atakye kuvuvia na kuhakikishia uzima. Huu uzima si wako mwenyewe, bali ni uzima wa Kristo (Gal. 2:20). Huu uzima haudaiwi kwenye mwili, bali kwa kumtumikia Mungu na kumtii Yeye (mst. 12). Huu uzima ulitimilika kwa kupoteza matendo ya mwili (mst. 13).
 
@@ -62,11 +58,9 @@ Roho Mtakatifu alimfufua Yesu kutoka wafu. Mwili wa kufa unayo hesabiwa kufa uta
 
 Je, sisi sote ni watoto wa Mungu? Watu wote ni viumbe wa Mungu, bali wale tu waliozaliwa mara ya pili ndio watoto wa Mungu. (Yn. 1:12, 13; Gal. 3:26; Kol. 1:16).
 
-#### Roho atatupa mwomgozo (mst. 14)
-
-#### Roho atatuhuisha (mst. 15)
-
-#### Roho atatushuhudia (mst. 16)
+1. Roho atatupa mwomgozo (mst. 14)
+2. Roho atatuhuisha (mst. 15)
+3. Roho atatushuhudia (mst. 16)
 
 #### Urithi wa Mungu (mst. 17a)
 

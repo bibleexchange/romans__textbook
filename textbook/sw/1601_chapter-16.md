@@ -25,24 +25,13 @@ Roho ya kifungu hiki ni ya kipekee na maalumu unapofikiria kwamba Paulo hakukuta
 
 ## Amri ya Fibi (mst. 1–2)
 
-[Kumbuka: nukuu kadhaa katika sehemu zimechukuliwa kutoka fafanuzi za Alexander Maclaren ya maandiko matakatifu". Alexander MacClaren (February 11, 1826 - May 5, 1910) alikuwa mvuka salama na mhudumu wa injili kwa takribani miaka 65 aliyefanya kazi bila kuchoka katika kuhubiri na kuandika kuhusiana na maandiko matakatifu. Fafanuzi za MacClaren za maandiko matakatifu ni mkusanytiko wa zaidi ya hotuba 1,500]
-
 ### Paulo anamwamru dada (sio dada katika mwili bali katika Bwana)
 
 ### Cenchrea ilikuwa bandari ndogo katika Korinto
 
-> Lakini kama tutahesabu kutokuwa na maadili kwingi kuliko jificha kwa wakrinto, tutadhani labda ilikuwa hapa kulikuwa mji, wenye maji mengi, ilikuwa kama bandari nyingi, udongo ambamo wema kwa ulipandwa ilikukuwa, na kanisa lilikuwa na upinzani mwingi ambao walipaswa kupambana. Kuwa Mkristo katika Cenchrea inawezekana haikuwa kazi rahisi.
-> —MacClaren
-
 ### Fibi alikuwa mmoja wa wanawake wema wengi walio msaidia Paulo katika kazi ya injili
 
-> Jina lake kwa wazi alikuwa mwabudu sanamu, na linamwelezea kama Mgriki, na kwa kuzaliwa labda alikuwa mwabudu wa Apolo.  
-> —MacClaren
-
 ### Kwa Fibi inaaminika aliipewa hii barua ili kuiwasilisha katika kanisa la Roma
-
-> Hapa ni Paulo myahudi, Fibi mgiriki, na wasomaji wa kirumi wa barua, wote waliungana kwa pamoja katika upendo wa kimungu ambao uliyeyusha mioyo yao, na imani ya kawaida ambayo iliounganisha maisha yao. Orodha ya majina katika sura hii, yanajumuishwa kama wanaume na wanawake wenye uraia mbalimbali, na baadhi ni watumwa kama watu huru.  
-> —MacClaren
 
 > Wagalatia 3:28—Hapana Myahudi wala Myunani. Hapana mtumwa wala huru. Hapana mtu mume wala mtu mke. Maana ninyi nyote mmekuwa mmoja katika Kristo Yesu.
 

@@ -4,7 +4,7 @@
 
 ### They walk in liberty with no condemnation (v. 1)
 
-The deliverance Paul cried for in 7:24 is announced in 8:1. Sin brought bondage, but the Law of the Spirit of life in Christ Jesus has worked great liberty! **Our position in Christ** includes freedom from condemnation.
+The deliverance Paul cried for in 7:24 is announced in 8:1. Sin brought bondage, but the law of the spirit of life in Christ Jesus has worked great liberty! **Our position in Christ** includes freedom from condemnation.
 
 ### They walk not after the flesh but after the Spirit
 
@@ -23,11 +23,7 @@ My will may not always be contrary to God's will, but to prioritize the flesh ov
 2. **The law of God** (given through Moses). It is righteous, good, and holy. It opposes sin and the works of the flesh. It brings you to conviction and decision. The law being weak cannot save but does point to Christ.
 3. **The law of the Spirit of life**. This law is greater than the law of sin and death. It is the life of Jesus imparted to the believer by faith. Liberty is man's born again state—free to serve the Lord Jesus Christ. Serving the Lord brings more abundant life. Every believer must manifest the life of Jesus more and more.
 
-#### The nature of the "law of the Spirit of life"
-
-It provides justification where the old law only condemned. It works liberty where the old law only worked bondage. This law works righteousness in the believer, but the old law could only identify unrighteousness. This life is subject to the law of God, whereas the flesh is not and cannot be for it is an enemy of God.
-
-#### The fulfilling of the "law of the Spirit of life" (v. 4)
+#### The fulfilling of the "law of the spirit of life" (v. 4)
 
 It is fulfilled in the one that walks not after the flesh, but after the Spirit. If the Spirit of God dwell in you then His life is fulfilled in you. You no longer try to serve God in the flesh, but you have the Spirit of Christ to inspire and insure life. This life is not your own, but is Christ's life (Gal. 2:20). This life is not debtor to the flesh, but to God to serve Him and obey Him (v. 12). This life is fulfilled in mortifying carnal deeds of the flesh (v. 13).
 
@@ -62,11 +58,9 @@ The Holy Ghost raised Jesus from the dead. The mortal body that is subject to de
 
 Are we all God's children? All people are God's creation, but only those born again are God's children (John 1:12–13; Gal. 3:26; Col. 1:16).
 
-#### The Spirit gives guidance (v. 14)
-
-#### The Spirit gives adoption (v. 15)
-
-#### The Spirit gives witness (v. 16)
+1. The Spirit gives guidance (v. 14)
+2. The Spirit gives adoption (v. 15)
+3. The Spirit gives witness (v. 16)
 
 #### Heirs of God (v. 17)
 
