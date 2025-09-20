@@ -125,26 +125,17 @@ Kudhihirisha ni kuonyesha au kutangaza
 
 #### Mwenye haki aliyetangazwa
 
-Maana ya "kuhesabiwa" haki ni kutangazwa kuwa mwenye haki. Kuhesabiwa ni kuwekwa mahali penye uhusiano sahihi pamoja na Mungu. Paulo anaongea na watu jinsi gani wataweza kuhesabiwa haki au kutangazwa haki; kwa njia Yesu Kristo.
+Maana ya "kuhesabiwa" haki ni kutangazwa kuwa mwenye haki. Kuhesabiwa ni kuwekwa mahali penye uhusiano sahihi pamoja na Mungu. Paulo anaongea na watu jinsi gani wataweza kuhesabiwa haki au kutangazwa haki: kwa njia Yesu Kristo.
 
-> Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi.  
-> — Wiersbe, W. W. (1996). The Bible Exposition Commentary
-
-Bado, Wokovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki (Rum. 5:19).
-
-#### Haki hurejea usafi wa maadili
-
-Kirahisi humaanisha kuwa haki ni kuwa kinyume cha ubaya. Dhambi ni ubaya na Mungu ni haki. Ilivyotumika kwa Mungu inarejea kuwa kamili au utakatifu wa asili yake; Mungu muda wote ni mwenye haki.
-
-#### haki hii hutoka kwa Mungu
-
-Hii sio haki ya kuifanyia kazi au hata matendo ya haki. Kuhesabiwa haki ni haki ya Mungu kuwekwa kwenye hesabu ya mtu; Hiyo ni Mungu kumhesabia mtu haki kwa njia ya haki ya Kristo. Kifungu hiki humwonyesha mtu kuwa chanzo pekee cha haki ni kutoka kwa Mungu.
+> Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi.<sup>[1]</sup>
 
 ### Njia ya Mungu kumhesabia mtu haki (mst. 24)
 
 #### Imetolewa kwa neema ya Mungu
 
 Mwenye dhambi hasitahili kupata haki. Mtu anasitahili kwa ajili ya dhambi. Mungu kwa uhuru huwahesabia haki wale ambao wanapokea utoaji ya Kristo kwa imani. Wokovu ni zawadi ya Mungu kwa wale wanao pokea utoaji wa Kristo kwa imani.
+
+Hii sio haki ya kuifanyia kazi au hata matendo ya haki. Kuhesabiwa haki ni haki ya Mungu kuwekwa kwenye hesabu ya mtu; Hiyo ni Mungu kumhesabia mtu haki kwa njia ya haki ya Kristo. Kifungu hiki humwonyesha mtu kuwa chanzo pekee cha haki ni kutoka kwa Mungu.
 
 #### Kwa njia ya ukombozi katika Kristo Yesu
 
@@ -156,23 +147,22 @@ Ukombozi humaanisha kununuliwa, kuwekwa huru kwa malipo ya fidia. Yesu alilipa g
 
 Kuhesabiwa haki sio tu Mungu kuonyesha huruma juu ya mwenye dhambi na kumwacha huru bila malipizi kulipwa. Neno uheri limetumika katika rejea kwa Kristo kukidhi matakwa ya sheria. Uheri sio sababu utekelezaji wa hukumu iliositahili. Huelezewa kwenye neno la kiebrania kumaanisha kiti ccha rehema ambacho kilikuwa kikiwekwa damu ya malipizi na kunyunyizwa ili kukidhi hukumu ya Mungu. Hii damu ya kunyunyiza ilifunika vibao vya sheria ikiwa nipamoja na sanduku la agano. Huu ni mfano wake yeye ambaye angekuja kumwaga damu ya kiungu kukidhi sheria. Damu ya Yesu ni sababu ya hukumu kutotekelezwa kuhusu mwenye kutubu.
 
-#### Kipatanisho
-
-> Kipatanisho kihalisi humaanisha kuonyesha uondoaji wa ghadhabu kwa utoaji zawadi. Katika Angano la Kale huelezwa kwa tendo la kukausha samaki (malipo). Jambo la kipanisho huinuka kwa ukubwa wa jambo kutoka kwenye dhana nzima ya ghadhabu ya Mungu, ambao watetezi wa mtazamo huu huwakilisha jamii na msemo wa kale. Wanahisi watu wa sasa hawawezi kushikilia dhana hii. Lakini watu wa Agano wa la kale hawakuwa na makatazo kama hayo. Kwa wao Mungu hukasirishwa na uovu kila siku (Zab. 7:11). Wao hawakuwa na shaka kwamba dhambi kwa kutoepuka huamsha mwitikio wenye nguvu kutoka kwa Mungu. Yeye kwa ujasiri yuko kinyume uovu katika kila muonekano na mundo wakati yeye huo huo yeey anaweza kuwa mpole wa hasira.  
-> -Kamusi mpya ya Biblia
-
-#### Hebu tuangalie kifungu kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
+#### Kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
 
 Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Ebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na Jipya.
 
 ### Mtu anahesabiwa haki kwa imani pasipo matendo ya sheria (mst. 28)
 
-#### Imani ni kigezo cha kupokea kutoka kwa Mungu
-
-#### Matendo ya sheria hayawezi kumhesabia mtu haki
+Imani ni kigezo cha kupokea kutoka kwa Mungu. Matendo ya sheria hayawezi kumhesabia mtu haki.
 
 ## Kuthibitishwa kwa sheria (mst. 31)
 
 Kuhesabiwa haki kwa imani huthibitisha sheria. Sheria ya imani haifanyi sheria isitumike au kuepukika, bali huithibitisha. Imani haiondoi wala kuharibu sheria, bali kuiboresha.
 
 Sheria huleta kuijuwa dhambi kwa mtu, na huyo mtu ambaye ameitambua hali yake awezekuhesabiwa haki kwa imani. Pasipo sheria mtu hangeweza kuijua dhambi, na kwa hiyo hangekuwa na hitaji kwa ajili ya kuhesabiwa haki, ukombozi au malipizi ya dhambi. Sheria ambayo kwa mara ya kwanza ilivunjwa imethibitishwa kwa njia ya imani katika kazi iliomalizika ya Kristo kwa maana kwa njia ya haki yake imetosheleza.
+
+---
+
+<small>
+  - [1] Wiersbe, W. W. (1996). The Bible Exposition Commentary
+</small>

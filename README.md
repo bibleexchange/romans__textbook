@@ -4,8 +4,6 @@ Need to do some cultural setup: what the Roman empire was, who the Gentiles are,
 
 Need to balance the textbook better. There is too much content for the first half of the book (1-10) and too little for the last half of the book (11-16).
 
-0102 might be able to be removed completely or at least greatly shortened, since it is too topical and not following the Scripture itself (the topical ideas are covered more in detail later and it is best to cover it there to avoid repetition).
-
 Chapter 3 is a good place to shorten. There are five files for this chapter.
 
 Chapter 7 is a little long.

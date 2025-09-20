@@ -6,19 +6,9 @@ Kazi ya sheria katika kuhesabiwa haki ni ile inayoleta kuijua dhambi. Mtu haihes
 
 ## Abrahimu alihesabiwa haki kwa njia ya imani na sio kwa matendo (mst. 1—8)
 
-> Rum. 4:3—...Ibrahimu alimwamini Mungu, ikahesabiwa kwake kuwa haki.
+Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Ibrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Ibrahamu kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa.
 
-Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Ibrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Ibrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
-
-Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Ibrahamu ("wana wa Ibrahamu kimwili") kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa. Paulo anajibu maswali ya Wayahudi:
-
-- Ni nini kuhusu Ibrahimu Baba yetu?
-- Ni agano gani la tohara lililotolewa kwa Abrahimu, lisilo tufanya sisi kuwa haki?
-
-Warumi sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
-
-1. katika sura ya 3, Paulo anathibitisha kwamba imani haipuki sheria bali zaidi ya hapo inaithibitisha.
-2. Katika sura ya 4 ahadi iliotolewa kwa Ibrahimu haikuwa kwa njia ya sheria (tohara) bali kwa njia ya haki ya imani.
+Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
 
 ### Kabla ya Torati kutolewa, Ibrahimu alihesabiwa kama mweye haki (mst. 4)
 
@@ -45,3 +35,21 @@ Wayahudi walitazamia tohara na sheria kama chanzo cha haki yao. Ibrahimu alihesa
 Tohara haikumhesabia Ibrahimu haki. Tohara ilikuwa imetolewa kama ishara ya ahadi. Ilikuwa imetolewa kama mhuri wa haki ya imani. Ni alama ya kuindoa sehemu ya mwili. Hakuna nguvu ya haki katika tendo la kimwili. Hii kwa uhalisi ni kazi ya Mungu mara nyingi katika njia hiyo hiyo ubatizo ni alama ya kazi kamili.
 
 Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria hakuna uasi inarejea kwenye ukweli kwamba ikiwa hakuna sheria basi hakuna kuivunja sheria. Hii pia lazima inarejea kwenye sheria ya maadili kama ilivyo kwa sheria Musa. Ibrahimu alikuwa amehesabiwa kwa imani kwa njia ya neema (mst. 16). Hakujipatia haki kwa uwezo wake mwenyewe; Itolewa pasipo kusitahili kwasababu ya imani yake.
+
+## Mungu atatimiza ahadi yake (4:18—25)
+
+### Ahadi kwa Ibrahimu (mst. 18—22)
+
+Ibrahamu alipewa ahadi ya Mungu. Mungu alimwahidi kuwa atakuwa na mwana. Pia Mesiha angekuwa mwana wa Ibrahimu. Yesu alitimiza unabii na aliziwa kulingana na ukoo wa mababu wa Ibrahamu.
+
+### Ahadi ya kuhesabiwa haki (mst. 23—24)
+
+### Shariti la kuhesabiwa haki (mst. 24)
+
+Mtu hupokea kuhesabiwa haki kutoka kwa Mungu kwa imani.
+
+### Ujasiri wa imani na kitendo cha kimungu cha kuhesabiwa
+
+Ibrahamu aliamini ahadi ya Mungu. Dhidi ya tumaini aliamini katika tumaini. Ibrahamu aliamini ahadi ya Mungu bila kujali hali. Sara alikuwa na miaka karibia 90 na Ibrahimu alikuwa ni miaka zaidi ya 100. Hapakuwa na njia ya asili ya wao kujipatia mtoto. Abrahimu alikuwa hajakata tamaa kwa ahadi ya Mungu (mst. 20).
+
+Kuhesabiwa haki ni kazi ya kimungu. Mtu hawezi kujihesabia haki mwenyewe zaidi ya kule Ibrahimu kupata mwana. Kuhesabiwa haki ni kazi ya Mungu inayotolewa kwa neema katika kuitikia kwa imani.
