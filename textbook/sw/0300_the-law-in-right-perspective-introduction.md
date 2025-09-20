@@ -1,14 +1,8 @@
 # Sheria ni taswira sahihi (sura ya 3)
 
-Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wanaoijua (mst. 1–2), kwa uhalisi katika asili yake (mst. 3–8), pasipo kupinda katika mamlaka yake (mst. 9–19), kuna kusudi tofauti (mst. 20–30), hakufaywa kwa kuepuka, bali zaidi huthibitishwa kwa imani yetu (mst. 31).
-
 ## Utangulizi
 
-### Katika sura ya 3, tuna kanuni tano kuhusiana na sheria:
-
-Paulo anaiweka sheria katika taswira yake ilio sahihi. Myahudi wa kidini anatoa sauti ya mgongano katika ujuzi wake wa sheria ya Musa kana kwamba ilikuwa kitu cha kuwahesabia haki mbele za Mungu. Wao walikuwa wamefunika taswira ya kile ambacho sheria hufanya. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
-
-Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wayahudi kwa Kristo. Roho mtakatifu alijuwa Wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika Rum. 3, tunakutana na ukanushi wa udhuru wa Wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
+Katika sura ya 3, tuna kanuni tano kuhusiana na sheria:
 
 1. Faida ya kweli ya kuwa na sheria (mst. 1—2)
 2. Uhalisi wa sheria (mst. 3—8)
@@ -16,11 +10,13 @@ Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wa
 4. Kusudi la kweli la sheria (mst. 20—30)
 5. Kuthibitishwa kwa sheria (mst. 31)
 
+Paulo anaiweka sheria katika taswira yake ilio sahihi. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
+
 ### Sheria ni nini?
 
 Neno "sheria" kwa ujumla humaanisha kanuni "maandishi ya maelekezo." Ingawa ilikuwa imetolewa kwa Wayahudi na Mungu kwa kupitia Musa, wote Wayahudi na wamataifa walikuwa na sheria ya Mungu katika dhamiri zao (Iwe isiwe wanachagua kuipokea ilikuwa chaguo lao).
 
-Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado kwa wakati huo huo anathibitisha thamani yake ya ukweli. Sheria iliotolewa kwa Musa kwakweli ni mapenzi ya Mungu, lakini haikuwa jumla ya maelekezo yake. Kosa la Wayahudi lilikuwa kwamba walifanya zile kanuni pamoja na sherehe zake na kuambatanisha mapokeo kwenye jumla ya kusudi la Mungu mbele ya ubinadamu.
+Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado kwa wakati huo huo anathibitisha thamani yake ya ukweli. Sheria iliotolewa kwa Musa kwakweli ni mapenzi ya Mungu, lakini haikuwa jumla ya maelekezo yake.
 
 Ingawa tunaweza kupata neno lilelile "sheria" limetumika katika mistr 52 katika Warumi, Paulo mda wote hajadili kanuni zilezile au maelekezo.
 
@@ -39,16 +35,144 @@ Musa alikuwa ametumiwa kama mwaaguzi wa Mungu, lakini yeye hakuwa mjumbe pekee n
 
 Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya Musa (mwizi msalabani). Mtu hawezi kamwe kuhesabiwa ikiwa anakinzana na mawazo ya Mungu.
 
-> Rum. 7:22—Kwa maana naifurahia sheria ya Mungu kwa utu wa ndani,
-
 ## Faida ya kweli ya kuwa na sheria (mst. 1—2)
 
 ### Faida sio ile ambayo wao kwakurithi ni kuu kwa mataifa
 
-Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao Wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
+Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
 
-### Faida ni kwamba wao walipokea kwanza mambo ya Mungu.
+### Faida ni kwamba wao walipokea kwanza mambo ya Mungu
 
-"Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yn. 1:11).
+Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yn. 1:11).
 
 Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua fursa ya kupokea imani kutoka kwa Mungu. Tunaweza kujua zaidi na kutamani kumpendeza Mungu.
+
+## Uhalisia wa sheria (3:3—8)
+
+### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst. 3—4)
+
+Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama baadhi yao hawa amini je itazuia mpango wa Mungu? Je, wasio amini hufuta mpango wa Mungu? Angali 2 Tim. 2:13.
+
+#### Wayahudi hungangania urithi wao kama wana wa Ibrahimu kama haki yao (mst. 3)
+
+Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kubatilisha ahadi zetu halisi tumekwisha pewa kwa kupitia Ibrahamu. Walikuwa katika tokeo la kusema hakuna haja zaidi kile tulivyo, sisi ni wa uzao wa Ibrahamu na hiyo itatufikisha mbinguni.
+
+#### Jibu kwa halisi: ni sio! (mst. 4a)
+
+> 2 Tim. 2:13—Kama sisi hatuamini, yeye hudumu wa kuaminiwa. Kwa **maana hawezi kujikana mwenyewe.**
+
+#### Ilielezewa toka maisha ya Daudi (mst. 4b)
+
+Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zaburi 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu Wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa Wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
+
+### Ikiwa dhambi zetu zinaitukuza haki ya Mungu, je yeye atatuhukumuje? (mst. 5—7)
+
+#### Hebu tufahamu maana ya swali
+
+Lazima tutegemee kwenye mukitadha kutusaidia kufahamu maana ya swali hili. Hii imetolewa kama maswali mawili katika kifungu na kimerahisishwa kwa ajili ya kujifunza. Swali kwa halisi huuliza:kama kutokuwa haki kwetu kumetukuzwa au kulela usikivu kwenye haki ya Mungu na huruma; je Mungu atakuwa hana haki anapotuhukumu?
+
+#### Mungu amepinga: kwahiyo basi jinsi gani atauhukumu ulimwengu?
+
+Jibu ni: kwa hakika sio. Kama kanuni hii imetumika kisha itakuwaje Mungu kuipitia hukumu juu y a ulimwengu? Ulimwengu hapa unalelewa kama mataifa. Ni kitu maalumu kwa Mungu mwenye haki kuhukumu wasio haki wenye dhambi haijalishi ni Wayahudi ama Wamataifa.
+
+Ukweli ni, Mungu anaweza kuuhukumu ulimwengu kwasababu yeye ni mwenye haki.
+
+### Je tutende uovu ili wema uweze kuja? (mst. 8)
+
+Baadhi ya watu huharibu ukweli wa huruma ya Mungu na kujivuna kwamba hali yao ya dhambi huishi na kibali cha Mungu kisicho na mashariti, kinaielezea huruma kuu ya Mungu. Paulo hakuwa anahubiri mafundisho haya potofu, lakini alikuwa ameshitakiwa kwa kufanya hivyo pia.
+
+Maelezo ya Paulo kwa hawa aliowahubiria yalikuwa ni: wale ambao hukumu ni haki yao. Kwakuwa shitaka halikuwa kweli Paulo hakwenda ndani zaidi kwenye jibu hili; yeye anathibitisha tu kwamba hukumu ya Mungu juu yao ni sahihi.
+
+## Mamlaka yasiyopindika ya sheria (3:9—20)
+
+Dunia yote iko chini ya hukumu.
+
+### Shitaka limetozwa dhidi ya mwenye dhambi (mst. 9)
+
+Mwenye dhambi ni nani? Tumeshathibitisha kuwa wote Wayahudi na wamataifa wako chini ya dhambi kwahivyo wote wanahatia ya kuvunja sheria.
+
+#### Ushahidi hutolewa mbele ya mshitakiwa
+
+1. Ushahidi wa uumbaji (1:20)
+2. Ushahidi wa dhamira (2:15)
+3. Ushahidi wa amri (3:19)
+
+### Shitaka lililo somwa toka Maandiko (mst. 10—18)
+
+Kulingana na sheria za kimahakama shitaka rasimi lazima liwe limeandikwa. Hakimu mkuu haachi udhuru kwa ajili binadamu na Paulo ametumia neno lililoandikwa kuonyesha mshitakiwa.
+
+Myahudi alitamka kwamba alikuwa na Maandiko; sasa Mungu anatumia Neno lile lile kufungua dhambi zao. Mungu anawafanya kuwajibika kwa Neno Lake.
+
+### Ulinzi wa mshitakiwa (mst. 19)
+
+Ulinzi wa mshitakiwa ni nini? Mshitakiwa hana la kusema; kila kinywa kimefungwa. Siku ya hukumu itakuwa ni siku ya kunyamaza kimya.
+
+### Uamuzi (mst. 20)
+
+Hatia kama ilivyo shitakiwa!
+
+#### Hakuna mwenye mweili atakaye hesabiwa haki kwa matendo sheria
+
+Sheria inarejea zaidi ya sheria ya Musa; vilevile pia kwenye sheria ya maadili na sheria ya dhamiri. Watu wamataifa hawakuimiliki sheria ya Musa, lakini kila mtu anasheria ya maadili ya Mungu ilioandikwa katika moyo wake na kuthibitishwa na dhamiri yake.
+
+#### Malipo ya kifo yameshatolewa dhidi ya mhukumiwa (Rum. 6:23)
+
+## Kusudi la kweli la sheria (mst. 21—30)
+
+### haki ya Mungu imedhihirishwa kwa wanadamu (mst. 21—23)
+
+Kudhihirisha ni kuonyesha au kutangaza
+
+#### Mwenye haki aliyetangazwa
+
+Maana ya "kuhesabiwa" haki ni kutangazwa kuwa mwenye haki. Kuhesabiwa ni kuwekwa mahali penye uhusiano sahihi pamoja na Mungu. Paulo anaongea na watu jinsi gani wataweza kuhesabiwa haki au kutangazwa haki; kwa njia Yesu Kristo.
+
+> Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi.  
+> — Wiersbe, W. W. (1996). The Bible Exposition Commentary
+
+Bado, Wokovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki (Rum. 5:19).
+
+#### Haki hurejea usafi wa maadili
+
+Kirahisi humaanisha kuwa haki ni kuwa kinyume cha ubaya. Dhambi ni ubaya na Mungu ni haki. Ilivyotumika kwa Mungu inarejea kuwa kamili au utakatifu wa asili yake; Mungu muda wote ni mwenye haki.
+
+#### haki hii hutoka kwa Mungu
+
+Hii sio haki ya kuifanyia kazi au hata matendo ya haki. Kuhesabiwa haki ni haki ya Mungu kuwekwa kwenye hesabu ya mtu; Hiyo ni Mungu kumhesabia mtu haki kwa njia ya haki ya Kristo. Kifungu hiki humwonyesha mtu kuwa chanzo pekee cha haki ni kutoka kwa Mungu.
+
+### Njia ya Mungu kumhesabia mtu haki (mst. 24)
+
+#### Imetolewa kwa neema ya Mungu
+
+Mwenye dhambi hasitahili kupata haki. Mtu anasitahili kwa ajili ya dhambi. Mungu kwa uhuru huwahesabia haki wale ambao wanapokea utoaji ya Kristo kwa imani. Wokovu ni zawadi ya Mungu kwa wale wanao pokea utoaji wa Kristo kwa imani.
+
+#### Kwa njia ya ukombozi katika Kristo Yesu
+
+Ukombozi humaanisha kununuliwa, kuwekwa huru kwa malipo ya fidia. Yesu alilipa gharama kwa ajili ya wokovu wetu katika damu yake. Mtu anatangazwa kuwa haki kipekee kwenye stahili ya Yesu Kristo.
+
+### Matakwa ya sheria yametimizwa (mst. 25)
+
+#### Mungu bado anadai haki
+
+Kuhesabiwa haki sio tu Mungu kuonyesha huruma juu ya mwenye dhambi na kumwacha huru bila malipizi kulipwa. Neno uheri limetumika katika rejea kwa Kristo kukidhi matakwa ya sheria. Uheri sio sababu utekelezaji wa hukumu iliositahili. Huelezewa kwenye neno la kiebrania kumaanisha kiti ccha rehema ambacho kilikuwa kikiwekwa damu ya malipizi na kunyunyizwa ili kukidhi hukumu ya Mungu. Hii damu ya kunyunyiza ilifunika vibao vya sheria ikiwa nipamoja na sanduku la agano. Huu ni mfano wake yeye ambaye angekuja kumwaga damu ya kiungu kukidhi sheria. Damu ya Yesu ni sababu ya hukumu kutotekelezwa kuhusu mwenye kutubu.
+
+#### Kipatanisho
+
+> Kipatanisho kihalisi humaanisha kuonyesha uondoaji wa ghadhabu kwa utoaji zawadi. Katika Angano la Kale huelezwa kwa tendo la kukausha samaki (malipo). Jambo la kipanisho huinuka kwa ukubwa wa jambo kutoka kwenye dhana nzima ya ghadhabu ya Mungu, ambao watetezi wa mtazamo huu huwakilisha jamii na msemo wa kale. Wanahisi watu wa sasa hawawezi kushikilia dhana hii. Lakini watu wa Agano wa la kale hawakuwa na makatazo kama hayo. Kwa wao Mungu hukasirishwa na uovu kila siku (Zab. 7:11). Wao hawakuwa na shaka kwamba dhambi kwa kutoepuka huamsha mwitikio wenye nguvu kutoka kwa Mungu. Yeye kwa ujasiri yuko kinyume uovu katika kila muonekano na mundo wakati yeye huo huo yeey anaweza kuwa mpole wa hasira.  
+> -Kamusi mpya ya Biblia
+
+#### Hebu tuangalie kifungu kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
+
+Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Ebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na Jipya.
+
+### Mtu anahesabiwa haki kwa imani pasipo matendo ya sheria (mst. 28)
+
+#### Imani ni kigezo cha kupokea kutoka kwa Mungu
+
+#### Matendo ya sheria hayawezi kumhesabia mtu haki
+
+## Kuthibitishwa kwa sheria (mst. 31)
+
+Kuhesabiwa haki kwa imani huthibitisha sheria. Sheria ya imani haifanyi sheria isitumike au kuepukika, bali huithibitisha. Imani haiondoi wala kuharibu sheria, bali kuiboresha.
+
+Sheria huleta kuijuwa dhambi kwa mtu, na huyo mtu ambaye ameitambua hali yake awezekuhesabiwa haki kwa imani. Pasipo sheria mtu hangeweza kuijua dhambi, na kwa hiyo hangekuwa na hitaji kwa ajili ya kuhesabiwa haki, ukombozi au malipizi ya dhambi. Sheria ambayo kwa mara ya kwanza ilivunjwa imethibitishwa kwa njia ya imani katika kazi iliomalizika ya Kristo kwa maana kwa njia ya haki yake imetosheleza.

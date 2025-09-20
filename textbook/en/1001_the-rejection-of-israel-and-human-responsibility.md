@@ -1,24 +1,4 @@
-# The rejection of Israel and human responsibility (9:30—10:21)
-
-## Stumbling and overcoming: The conclusion of chapter 9 (9:30—33)
-
-### Righteousness through faith (9:30)
-
-The Gentiles, not following after righteousness (righteousness by the law), attain to it by faith. Faith is contrasted in the text in this way: seeking righteousness by the keeping of the law versus seeking righteousness through faith in Jesus Christ.
-
-### No righteousness through the law (9:31)
-
-Israel followed after the law of righteousness, but could not attain it (they could not keep the law). Israel, following after the law stumbled at the way.
-
-### Must seek righteousness by faith (9:32)
-
-Israel did not seek it by faith.
-
-### A stumblingblock is Laid (9:33)
-
-They stumbled over the rock of offense. They stumbled over Jesus. He offended the leaders of Israel by exposing sin.
-
-What is the message of the Gospel that is open to all? "And whosoever believeth on him shall not be ashamed." God's mercy is illustrated by His dealings with both Jew and Gentile. Humility and awe are the proper attitudes for both Jew and Gentile who experience the mercy and kindness of God. Whether a man is a Jew or a Gentile, his salvation depends upon more or less than what he thinks and does with Jesus. Submission to God's way of righteousness by personal acknowledgement of Jesus as the risen Lord, brings a man into "Right standing with God."
+# Chapter 10: The rejection of Israel and human responsibility
 
 ## Salvation for the Jews (10:1—21)
 

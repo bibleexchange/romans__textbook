@@ -74,3 +74,23 @@ Katika mstari ya 27 mtume ananukuu na nabii mwingine, Isaiah, kuhusiana na mabak
 Njia za Mungu sio zetu. Yeye husubiri - na huchukuliana - na yeye ni mkimya - kisha kwa ghafula huweka kusudi lililo kusudiwa la milele.
 
 Mstari 29 umenukuliwa toka Isaya 1:9 unaonyesha kuwa kama Mungu asingalifupisha kwa neema yake, wote wangekuwa kama Sodoma na Gomora (2 The. 2:7).
+
+## Kujikwaa na kushinda: Hitimisho la sura 9 (9:30—33)
+
+### Haki kwa njia ya imani (9:30)
+
+Mataifa hawafuati haki (haki kwa sheria), hupatikana kwa imani. Imani imetofautishwa katika kifungu kwa njia hii: Kutafuta haki kwa kushika sheria dhidi ya kutafuta haki kwa njia imani katika Kristo Yesu.
+
+### Hakuna haki kwa njia ya sheria (9:31)
+
+Israeli alifuatasheria ya haki, lakini hakujipatia (hangeweza kuitunza sheria). Israeli anafuata sheria, lakini alijikwa njiani.
+
+### Lazima kutafuta haki kwa njia ya imani (9:32)
+
+Israeli hakutafuta kwa imani.
+
+### Jiwe likwazalo limewekwa (9:33)
+
+Walijikwaa kwenye mwamba uchukizao. Walijikwaa kwa Yesu. Alichukiza viongozi wa Israeli kwa kukemea dhambi.
+
+Ni ujumbe gani wa injili uliofunuliwa kwa wote? "Na yeyote aminiye hata aibika." Huruma Mungu imeonyeshwa kwa kazi zake kwa Wayahudi na wamataifa. Unyenyekevu na uchaji ni misimamo maalum kwa ajili yao wote ambao wanaipokea huruma na wema wa Mungu. Iwe mtu ni myahudi au wamataifa, wokovu wake hutegemea zaidi au kidogo kuliko vile anavyofikiri na kufanya pamoja na Yesu. Kujishusha chini ya njia ya Mungu kwaq ukiri binafsi wa Yesu kama Bwana mfufuka, na kumleta mwanadamu katika "haki na kusimama pamoja na Mungu."

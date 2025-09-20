@@ -34,6 +34,9 @@ Christ is a rock of stumbling to the Jew (Gal. 5:6; John 14:15; 1 Peter 2:7—8)
 
 ## The inclusion of Gentiles in the promise (9:6—29)
 
+<!--Although Israel is composed of the descendants of a particular family line and is in that sense biological, its origin is not in the first instance biological because its creation and sustenance come from God.
+Gaventa, B. R. (2024). Romans: A Commentary (C. C. Black, J. T. Carroll, & S. E. Hylen, Eds.; First edition, p. 274). Westminster John Knox Press.-->
+
 ### The true Israel is according to the promise (v. 6—10)
 
 The majority of Israel has missed the point. Christ is the fulfillment of the law, but Israel stumbles over him as if a stone and hold to their laws and religion. They think they are the children of God because they are the children of Abraham and Isaac and that they are the ones to whom the law was revealed.
@@ -76,3 +79,23 @@ In verse 27 the apostle quotes another prophet, Isaiah, concerning a remnant (Is
 The ways of God are not our ways. He waits long - He forbears - He is silent: then suddenly puts into execution an eternally formed purpose.
 
 Verse 29 is a quote from Isaiah 1:9 shows that if God had not intervened by his grace, they would have all become as Sodom and Gomorrah (2 Thess. 2:7).
+
+## Stumbling and overcoming: The conclusion of chapter 9 (9:30—33)
+
+### Righteousness through faith (9:30)
+
+The Gentiles, not following after righteousness (righteousness by the law), attain to it by faith. Faith is contrasted in the text in this way: seeking righteousness by the keeping of the law versus seeking righteousness through faith in Jesus Christ.
+
+### No righteousness through the law (9:31)
+
+Israel followed after the law of righteousness, but could not attain it (they could not keep the law). Israel, following after the law stumbled at the way.
+
+### Must seek righteousness by faith (9:32)
+
+Israel did not seek it by faith.
+
+### A stumblingblock is Laid (9:33)
+
+They stumbled over the rock of offense. They stumbled over Jesus. He offended the leaders of Israel by exposing sin.
+
+What is the message of the Gospel that is open to all? "And whosoever believeth on him shall not be ashamed." God's mercy is illustrated by His dealings with both Jew and Gentile. Humility and awe are the proper attitudes for both Jew and Gentile who experience the mercy and kindness of God. Whether a man is a Jew or a Gentile, his salvation depends upon more or less than what he thinks and does with Jesus. Submission to God's way of righteousness by personal acknowledgement of Jesus as the risen Lord, brings a man into "Right standing with God."
