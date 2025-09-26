@@ -68,16 +68,16 @@ The just refers to those who have been set in a right relationship with God thro
 
 The just remain so by the keeping power of God. In this world of sin, the Christian needs the preserving power of God to keep him on the straightway that leads unto life. Jesus said that no man could pluck the sheep out of His hand (Jn. 10:28). This does not mean that God ever takes away the choice of man. Christians must choose to serve God, to live is an everyday experience (The just shall live) that requires a continual receiving of God's power by faith.
 
-# the sin of the gentiles (1:18–32)
+## the sin of the gentiles (1:18–32)
 
-## All are guilty (1:18)
+### All are guilty (1:18)
 
 All mankind needs to be justified through Jesus, or the wrath of God will be revealed against it (1:18). Jesus is the only way to salvation and those who do not chose to accept the provision of Christ are condemned (John 3:18).
 
-## Gentile guilt (1:19–32)
+### Gentile guilt (1:19–32)
 
 The conclusion of this chapter continues on describing this people who are guilty and worthy of the wrath of God. They are without excuse.
 
-### They knew God (1:19–23)
+#### They knew God (1:19–23)
 
 God has manifested Himself to them (v. 19). Creation itself clearly declares the things of God (v. 20). Even those who did not receive the Law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v. 21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.

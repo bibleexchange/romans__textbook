@@ -19,3 +19,7 @@ Need to figure out how to make it easier for the students to follow. Going verse
 - Should "gentile" be capitalized?
 - Should "law" be capitalized?
 - When should the word "law" be used and when should "Torah" be used?
+
+## Compile
+
+cat \*.md >> romans-en.md

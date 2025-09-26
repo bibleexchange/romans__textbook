@@ -62,16 +62,16 @@ Wenye haki hurejelea kwa wale ambao wamewekwa katika uhusiano sahihi pamoja na M
 
 Mwenye haki hubakia kwa kulindwa na nguvu za Mungu. Katika ulimwengu huu wa dhambi, Mkristo anahitaji kutunza nguvu ya Mungu ilikumlinda kwenye njia nyoofu ambayo humwoongoza kwwenda uzimani. Yesu alisema kwamba hakuna mtu anayeweza kumpokonya kondoo toka kwenye mkono wake (Yn. 10:28). Hii haimanishi kwamba Mungu ataliondoa mbali chaguo la mtu. Wakristo lazima wachague kumtumikia Mungu, kuishi ni uzoevu wa kila siku (Mkristo ataishi) hiyo hudai upokeaji endelevu wa nguvu ya Mungu kwa imani.
 
-# Dhambi ya wamataifa (1:18—32)
+## Dhambi ya wamataifa (1:18—32)
 
-## Wote wana hatia (1:18)
+### Wote wana hatia (1:18)
 
 Mahitaji ya wanadamu wote ni kuhesabiwa haki kwanjia ya Yesu vinginevyo ghadhabu ya Mungu itafunulliwa dhidi ya hatia (1:18). Yesu ni ndio njia pekee ya wokovu na wale wasio chagua kukubali utoaji wa Kristo wamehukumiwa (Yn. 3:18).
 
-## Hatia ya wamataifa (1:19—32)
+### Hatia ya wamataifa (1:19—32)
 
 Hitimisho la sura hii linaendelezea watu hawa ambao wanahatia nakusitahili ghadhabu ya Mungu. Hawana udhuru.
 
-### Walimjua Mungu (1:19—23)
+#### Walimjua Mungu (1:19—23)
 
 Mungu alijidhihirisha mwenyewe kwao (mst. 19). Uumbaji wenyewe unatangaza matendo ya Mungu (mst. 20). Hiyo hata kwa wale wasio pokea sheria au kamwe hawajawahi kuisikia injili wamepewa ufunuo wa Mungu kwa njia ya asili kwa hiyo hawana udhuru. Kwa mara ya kwanza walimjua Mungu lakini hawakumtukuza kama Mungu (mst. 21). Picha za sanamu ni matokeo ya kuukataa ukweli na kutomtukuza Mungu.

@@ -6,7 +6,7 @@ Waraka wa Warumi ni hazina ya kweli ambayo hupaswa kueleweka kwa watakatifu wa M
 
 ### Ushahidi wa milele wa waraka wa Warumi inaunga mkono mamlaka ya waraka wa Paulo
 
-Paulo alidai kuuandika (1:1). Mtindo wa waraka wa Warumi ni sawa na ule unaopatikana katika Wakorintho 1 na 11 hasahasa kwa Wagalatia. Mtindo wa waraka wa Paulo na mtindo wa Warumi ni wakipekee. Kusoma waraka wa Paulo sawa kama vile unasikia sauti yake. Paulo aliandika kama alivyokuwa anaongea.
+Paulo alidai kuuandika (1:1). Mtindo wa waraka wa Warumi ni sawa na ule unaopatikana katika 1 na 2 Wakorintho hasahasa kwa Wagalatia. Mtindo wa waraka wa Paulo na mtindo wa Warumi ni wakipekee.
 
 Hatua ya maendeleo ya mafundisho ya Mkristo ambayo herufi inafunua usawa kwa asili kwenye wakati wa Paulo. Paulo alikuwa katika kiwango cha juu cha huduma katika katikati ya karine ya kwanza kwa wakati ambao maswala ya kawaida yalilisumbua kanisa ndio mambo yaleyale ambayo yalilikumba Warumi.
 
@@ -14,20 +14,19 @@ Hatua ya maendeleo ya mafundisho ya Mkristo ambayo herufi inafunua usawa kwa asi
 
 Paulo alijulikana kama mwandishi wa waraka kwa Warumi mapema mnamo 95 BK. Baadhi ya waandishi walitambuliwa katika mamlaka ya msatari wa Paulo kwa Warumi walikuwa ni:
 
-1. Waandishi wa Agano Jipya hasahasa Petro (2 Pet. 3:15)
-2. Klementi wa Rumi (95 BK)
-3. Ignatio wa Antiokia (110 BK)
-4. Polikapi, Askofu wa Simirna (Baada 110 BK)
+1. Klementi wa Rumi (95 BK)
+2. Ignatio wa Antiokia (110 BK)
+3. Polikapi, Askofu wa Simirna (baada 110 BK)
 
 ## Nani alilianzisha Kanisa la Rumi
 
-Paul aliandika hii waraka, lakini yeye hakuanzisha Kanisa la Rumi, walakulitembelea hili Kanisa hadi wakati fulani baada kuandika barua hii. Kanisa la Kikristo katika Rumi lilikuwepo tayari kabla ya kuandika waraka kwa Warumi pamoja na kundi ka waamini kukutana majumbani kama vile kwa Priskila na Akula. Kama tutalinganisha Rum. 1:8, 1:11, na sura ya 16, kwa usalama tunaweza kuhitimisha kwamba kulikuwa na kanisa Rumi kabla ya Paulo hata Petro.
+Paul aliandika hii waraka, lakini yeye hakuanzisha Kanisa la Rumi, walakulitembelea hili Kanisa hadi wakati fulani baada kuandika barua hii. Kanisa la Kikristo katika Rumi lilikuwepo tayari kabla ya kuandika waraka kwa Warumi pamoja na kundi ka waamini kukutana majumbani kama vile kwa Priskila na Akula. Kama tutalinganisha Warumi 1:8, 1:11, na sura ya 16, kwa usalama tunaweza kuhitimisha kwamba kulikuwa na kanisa Rumi kabla ya Paulo hata Petro.
 
-Hapakuwa na historia ilioandikwa ya kupata kanisa huko Roma, lakini tunaweza pia kuhitimisha kwamba Petro hakupata kanisa la kirumi kama inavyosemwa na kanisa la kikatoliki. Paulo hakuwahi kumtamka Petro kama ilivyothaniwa huko Roma na ngeonekana kimaantiki kama Petro angekuwa kiongozi wa kanisa Paulo angemtaja katika salamu zake katika War 16 badala yake Paulo anaorodhesha watu 28 katika salamu miongoni watu walioorodheshwa wakwanza alikuwa Priska na Akila. Zaidi ya hapo, kitabu cha Matendo kinamweka Petro katika Yerusalemu sio Rumi kulipata kanisa huko Yerusalemu.
+Hapakuwa na historia ilioandikwa ya kupata kanisa huko Roma, lakini tunaweza pia kuhitimisha kwamba Petro hakupata kanisa la kirumi kama inavyosemwa na kanisa la kikatoliki. Paulo hakuwahi kumtamka Petro kama ilivyothaniwa huko Rumi na ngeonekana kimaantiki kama Petro angekuwa kiongozi wa kanisa Paulo angemtaja katika salamu zake katika Warumi 16 badala yake Paulo anaorodhesha watu 28 katika salamu miongoni watu walioorodheshwa wakwanza alikuwa Priska na Akila. Zaidi ya hapo, kitabu cha Matendo kinamweka Petro katika Yerusalemu sio Rumi kulipata kanisa huko Yerusalemu.
 
 ## Kuzaliwa kwa kanisa la Rumi
 
-Utawala wa kirumi ulikuwa katika madaraka wakati wa kuandikwa waraka huu na Roma ilikuwa mji mkuu wa utawala huu ulikuwa mji mkuu wa ulimwengu. Imesemekana kuwa barabara zote zilielekezwa Roma—hii ndio ilikuwa sababu kwa warumi kutambulisha na kujenga utaratibu mpya wa barabara kuunganishwa kutoka Mji mkuu wa Roma wenyewe. Rumi ilikuwa mji wa katikati ya ulimwengu na mahali pakimkakati ambapo tokea hapo injili ingeenea.
+Utawala wa kirumi ulikuwa katika madaraka wakati wa kuandikwa waraka huu na Rumi ilikuwa mji mkuu wa utawala huu ulikuwa mji mkuu wa ulimwengu. Imesemekana kuwa barabara zote zilielekezwa Roma—hii ndio ilikuwa sababu kwa warumi kutambulisha na kujenga utaratibu mpya wa barabara kuunganishwa kutoka Mji mkuu wa Rumi wenyewe. Rumi ilikuwa mji wa katikati ya ulimwengu na mahali pakimkakati ambapo tokea hapo injili ingeenea.
 
 Kutoka makutano ya watumwa wa Kiyahudi kuletwa Rumi na baadaye kuachwa huru, ongezeko (labda wengi kama watu 5) Masinagogi ya Kiyahudi yalivunjika. Mwishowe Wakristo wa Kiyahudi walisafiri kwenda Rumi kama ilivyo na kusababisha ukimya wa usumbufu uliokuwa nadani ya haya masinagogi ya Kiyahudi. Kwa kadiri Warumi walivyo tishwa na idadiya Wayahudi ndani ya mji na makelekele yao kuongeza, hatua zilichukuliwa ilikuvunja ukuaji wa idadi yao. Hatua za kwanza zilizochukuliwa hazikujimuishwa na kuharimisha kwa dini ya Kiyahudi, lakini ilizuia makusanyiko yenye mamlaka.
 
@@ -35,11 +34,11 @@ Mwana historia Cassius Dio anatoa taarifa ya tendo lilochukuliwa na Kilaudio dhi
 
 > "Kwa ajili ya Wayahudi, yeye ambaye alikuwa tena aliongezeka kwa ukubwa ambayo kwa sababu ya makutano yao igekuwa ngumu pasipo kuinua makelele kuwapinga kutoka mjini, yeye hakuwakufuza, bali aliwaagiza, wakati wakiendeleza mtindo wao maisha, sio kushikilia makutano."
 
-Kutokea hapo wasimamizi waliamriwa na serikali walikuwa ni kanisa la wamataifa. Ni Kanisa hili ambalo lilipokea barua ya paulo mudafulani takribani 57—58 BK. Badala ya masinagogi ya kati au mahali pa mikutano mikubwa, kanisa hili lilikutana katika makundi madogo kuzunguka mji wa Rumi kama majumbani mwa waamini. Kwa kupitia mahali pa makusanyiko yao walipewa madaraka hasa kwa barua ya Warumi, tunaweza kuona kanisa la Kikristo likidumisha mawasiliano na umuhimu wa mwili moja katika Kristo.
+Kutokea hapo wasimamizi waliamriwa na serikali walikuwa ni kanisa la wamataifa. Ni kanisa hili ambalo lilipokea barua ya paulo mudafulani takribani 57—58 BK. Badala ya masinagogi ya kati au mahali pa mikutano mikubwa, kanisa hili lilikutana katika makundi madogo kuzunguka mji wa Rumi kama majumbani mwa waamini. Kwa kupitia mahali pa makusanyiko yao walipewa madaraka hasa kwa barua ya Warumi, tunaweza kuona kanisa la Kikristo likidumisha mawasiliano na umuhimu wa "mwili moja" katika Kristo.
 
 ## Wakati na mahili
 
-Warumi iliandikwa kutoka Korinto mnamo 57—58 BK. Katika War 15:19, Hebu jue kuhusu Paulo kwamba yeye alikuwa amekaribia katika hali ya mwisho katika maisha ya kupanda na kushuka kwenye mwisho wa safari yake tatu umisheni. Alikuwa amekwisha kuhubiri injili, anasema kutokea Yerusalemu hata sehemu za Mbali na anaenda kufanya uamuzi wa ajabu kwamba yeye hakuwa tena na nafasi ya kuendelea kufanya kazi katika hiyo sehemu kubwa mno. Anataka kwenda Span kwakuwa Itali ilikuwa imekwisha hubiriwaa Alihubiri, na kutembelea katika kanisa la Rumi katika safari. Lakini hangeweza kufanya kwa mara moja; Yeye aliazimia kwenda Yerusalemu kwanza. Sababu ya hili ni wazi na lina ushahidi. Kwa muda fulani, (2 Wakrinto angependekeza angalau mwaka moja). Paulo anatanagaza kwamba, yeye amejitoa kwa ajili ya kukusanya mchango kwa ajili ya maskini wa Yerusalemu. Wakati wa kuandikwa kitabu cha Warumi, ule mkusanyiko ni kwa bayana, kama haijakamilika kabisa, Paulo anasubiri fursa ya kupokea sadaka kwenda Yerusalemu. 1 na ya 11 Wakorintho hurejea kwenye mkusanyo kama ilikuwa ikifanyiwa kazi (I Kor. 16:1—4; 2 Kor. 8:1—7) na Rum. 15:25—28 inaonekana kwa kile kilicho kamilika. Kwa kuwa katika I Corinthians 16:3—4, Paulo alionyesha mpango wake wa kukamilisha kazi kwa ajili ya mchango wa Wakorintho na kisha kuondoka kutoka katika mji ule wa Yerusalemu ni nitu cha kawaida kudhani kwamba aliwaandikia warumi wakati akiwa Korinto. Wasomi wengi huweka wakati wa utume wake takribani 57—58 BK.
+Warumi iliandikwa kutoka Korinto mnamo 57—58 BK. Katika Warumi 15:19, Hebu jue kuhusu Paulo kwamba yeye alikuwa amekaribia katika hali ya mwisho katika maisha ya kupanda na kushuka kwenye mwisho wa safari yake tatu umisheni. Alikuwa amekwisha kuhubiri injili, anasema kutokea Yerusalemu hata sehemu za Mbali na anaenda kufanya uamuzi wa ajabu kwamba yeye hakuwa tena na nafasi ya kuendelea kufanya kazi katika hiyo sehemu kubwa mno. Anataka kwenda Span kwakuwa Itali ilikuwa imekwisha hubiriwaa Alihubiri, na kutembelea katika kanisa la Rumi katika safari. Lakini hangeweza kufanya kwa mara moja; Yeye aliazimia kwenda Yerusalemu kwanza. Sababu ya hili ni wazi na lina ushahidi. Kwa muda fulani, (2 Wakorintho angependekeza angalau mwaka moja). Paulo anatanagaza kwamba, yeye amejitoa kwa ajili ya kukusanya mchango kwa ajili ya maskini wa Yerusalemu. Wakati wa kuandikwa kitabu cha Warumi, ule mkusanyiko ni kwa bayana, kama haijakamilika kabisa, Paulo anasubiri fursa ya kupokea sadaka kwenda Yerusalemu. 1 na ya 2 Wakorintho hurejea kwenye mkusanyo kama ilikuwa ikifanyiwa kazi (1 Kor. 16:1—4; 2 Kor. 8:1—7) na Warumi 15:25—28 inaonekana kwa kile kilicho kamilika. Kwa kuwa katika 1 Wakorintho 16:3—4, Paulo alionyesha mpango wake wa kukamilisha kazi kwa ajili ya mchango wa Wakorintho na kisha kuondoka kutoka katika mji ule wa Yerusalemu ni nitu cha kawaida kudhani kwamba aliwaandikia warumi wakati akiwa Korinto.
 
 ## Kuhusu
 
@@ -47,71 +46,63 @@ Paulo alitaka kujitambulisha kwa Wakristo walikuwa Rumi kabla ya kusimama pale a
 
 Ni matengenezo ya kitheologia kwa maana ya Injli. Ingawa kanisa lilikuwa limeongezwa na wamataifa, Uyuda ulikuwa ni nguvu yaziada iliongezwa. Kulikuwa na Wayahudi wengi katika Rumi kwa wakati wa kuandikwa kwa waraka huu kwa warumi hata Wakristo wa Kiyahudi walikuwa wamefungwa na mapokeo na urithi wa Kiyahudi, Wayahudi waliamini kwa sababu walikuwa na sheria za Musa na agano la tohara ambayo walikuwa wamewekeana na Mungu kwa ajili ya uzima wa milele. Wao waliamini na wao walikuwa bora katika wapagani wa mataifa na kwa hiyo wao hawakuwa na haja ya kujinyenyekeza kwa watawala wapagani. Paulo anakanusha mafundisho ya Wayahudi ambayo hayakuhusiana na maandiko matakatifu.
 
-# Utangulizi wa Paulo kwa Warumi (1:1–17)
+# Sura ya 1: Utangulizi wa Paulo na dhambi ya wamataifa
 
-## Salamu za Paulo 1:1–7
+## Utangulizi wa Paulo kwa Warumi (1:1–17)
+
+### Salamu za Paulo 1:1–7
 
 Mtume ni mtu aliyetumwa kwenda kama mjumbe au mwakilishi wa mamlaka halisi ya mtumaji; mjumbe au balozi (Mdo. 9:3—9, 15—22, 28). Wito wa kitume wa Paulo haukuwa wa kidunia. Wala hakuwa mgombea kwa wale waliopigiwa kura katika Matendo sura ya kwanza, bali wito wakitume wa Paulo ni kwenda mbele kama mtume aliyekuja toka kwa Kristo (1:5). Paulo anasisitiza kuwa yeye alikuwa ameitwa kuwa mtume; na wito huu ulikuwa wa kimungu na sio wa kibinadamu.
 
 Uwekwaji wakifu kamili umezungumzwa katika maneno haya. Paulo alitengwa kuhubiri ujumbe moja na wa pekee. Paulo hakutangaza kwamba ujumbe huo ungemtukuza yeye wala hakufanya zaidi ya nafasi yake mbele ya macho ya watu. Paulo alitangaza kwamba kusudi lake katika maisha llilikuwa ni Injili ya Mungu, na kwahiyo hili lingepaswa kuwa kusudi letu kama wa hudumu Injili.
 
-### Ujumbe wake (mst. 1–5)
+#### Ujumbe wake (mst. 1–5)
 
-Ujumbe wa Paulo ni injili. Injili haikutokana na Paulo injili yote inamhusu Yesu Kristo.
+Ujumbe wa Paulo ni Injili. Injili haikutokana na Paulo Injili yote inamhusu Yesu Kristo.
 
-### Wasomaji wake (mst. 6–7a)
+#### Wasomaji wake (mst. 6–7a)
 
 Wale waliounganishwa na Yesu wameungwa pamoja naye katika wito wake. Walioitwa ambao Paulo anaandika haimanishi waalikwa, bali humaanisha wale walioalikwa ambao wamekuja tayari.
 
 Haina shaka kwamba waandikiwa wa waraka huu walikuwa ni Wakristo Warumi (mst. 7, 15). Kanisa lilikuwa na Wakristo Wayahudi na Wamataifa.
 
-### Salamu zake (mst. 7b)
-
-> Neema na iwe kwenu na amani itokayo kwa Mungu Baba yetu, na kwa Bwana Yesu Kristo.
+#### Salamu zake (mst. 7b)
 
 Hii ni salamu ya kawaida kwa Paulo katika nyaraka zake. Jina Yesu Kristo au Bwana au Bwana Yesu Kristo limetajwa mara kumi katika Warumi. Yesu ni jina binafsi kama mwokozi (Mat. 1:21). Kristo ni mpakwa mafuta wa Mungu Bwana anadokeza kusema kuwa yeye ni Bwana wa vyote vya mbinguni na duniani (Mdo. 10:36).
 
-## Utayari wa Paulo kutembelea, kupasha, na kuhubiri (1:8–15)
+### Utayari wa Paulo kutembelea, kupasha, na kuhubiri (1:8–15)
 
 Mstari ya 8—15 inaelezea hisia binafisi za Paulo kwa ajili ya watakatifu wa Rumi.
 
-### Paulo anatoa shukurani kwa ajili imani ya watakatifu wa Rumi na kuwaombea (mst. 8–9)
+#### Paulo anatoa shukurani kwa ajili imani ya watakatifu wa Rumi na kuwaombea (mst. 8–9)
 
 Dunia yote ni rejea kwa umiliki wa utawala wa kirumi ambao siku zote hujirelea kama dunia yote. Ilikuwa ni Augusto alitoa amri wakati wa kuzaliwa Kristo ambao dunia yote ingetoa ushuru, ambayo ilikuwa ni rejea ya utawala wa Kirumi.
 
 Imani ya watakatifu wa Rumi katika utawala wote. Hawa wakridto wa kirumi walikuwa ni "wapendwa wa Mungu," "walioitwa kuwa watakatifu," wapokeaji wa neema na amani "kutoka kwa Mungu Baba yetu, na Bwana Yesu Kristo." Ushuhuda wao ulitoka kwamba walikuwa wametengwa kwa ajili ya Mungu na kumwakilishi mfalme wa utukufu. Hazina nzuri ya ushuhuda ni Paulo anasimama juu ya uwanja vita katika maombi ambaye imani yao na ushuhuda wao ungeendelea.
 
-### Yeye amekuwa na shauku ya kutembelea watakatifu wa Rumi na kuwatakia karama za roho kwa kusudi lake kuliona kanisa likiwa limethibitika (mst. 10–12)
+#### Yeye amekuwa na shauku ya kutembelea watakatifu wa Rumi na kuwatakia karama za roho kwa kusudi lake kuliona kanisa likiwa limethibitika (mst. 10–12)
 
-Roma ilikuwa ya kimkakati, lakini Paulo anaongozwa na Roho na sio takwimu. Inawezekana kwamba Paulo alitambua thamani ya kimkakati ya kujenga kanisa katika mji mkuu wa Dola la Kirumi, lakini Paulo alikuwa aina ya mhubiri ambayo ingewekeza sana katika jiji ambalo hakuna mtu aliyewahi kusikia. Alibarikiwa kusikia kwamba kulikuwa na watakatifu kule Roma na alitamani kuwatembelea ili kufanya sehemu yake kuimarisha kanisa huko. Ni mantiki kwamba uamsho katika mji wa Roma ungeathiri Dola yote, lakini ukweli ni, Mungu angechagua mahali popote kuwa mwanzo wa uamsho ambao ungeugeuza ulimwengu (Mdo. 17:6).
+Rumi ilikuwa ya kimkakati, lakini Paulo anaongozwa na Roho na sio takwimu. Inawezekana kwamba Paulo alitambua thamani ya kimkakati ya kujenga kanisa katika mji mkuu wa Dola la Kirumi, lakini Paulo alikuwa aina ya mhubiri ambayo ingewekeza sana katika jiji ambalo hakuna mtu aliyewahi kusikia. Alibarikiwa kusikia kwamba kulikuwa na watakatifu kule Rumi na alitamani kuwatembelea ili kufanya sehemu yake kuimarisha kanisa huko. Ni mantiki kwamba uamsho katika mji wa Rumi ungeathiri Dola yote, lakini ukweli ni, Mungu angechagua mahali popote kuwa mwanzo wa uamsho ambao ungeugeuza ulimwengu (Mdo. 17:6).
 
-### Paulo alikuwa amezuiliwa kwenda Roma (mst. 13–15)
+#### Paulo alikuwa amezuiliwa kwenda Rumi (mst. 13–15)
 
-Alikuwa anataka na hata alipanga kwenda, lakini alikuwa amezuiliwa. Paulo siku moja angeenda Roma kama mfungwa kusimama mbele ya viongozi wa Warumi na kutangaza Injili ya Yesu Kristo. Kitabu cha Matendo kinatuambia kwamba Paulo alikaa miaka miwili huko Roma. Inaaminika kwamba alikuwa chini ya kukamatwa kwa nyumba wakati huu wa kuwa Roma. Alikatwa kichwa huko Roma mnamo 67 BK.
+Alikuwa anataka na hata alipanga kwenda, lakini alikuwa amezuiliwa. Paulo siku moja angeenda Rumi kama mfungwa kusimama mbele ya viongozi wa Warumi na kutangaza Injili ya Yesu Kristo. Kitabu cha Matendo kinatuambia kwamba Paulo alikaa miaka miwili huko Roma. Inaaminika kwamba alikuwa chini ya kukamatwa kwa nyumba wakati huu wa kuwa Roma. Alikatwa kichwa huko Rumi mnamo 67 BK.
 
-Paulo alikuwa na hamu kubwa ya kuhubiri Injili huko Roma. Yeye hutumia neno "mdaiwa" akimaanisha mwenyewe kuonyesha kuwa amejitolea kuwahubiria watu wote (mst. 14). Alikuwa na deni kwa mwenye dhambi kumwambia juu ya Kristo. "Wayunani" hutumiwa kurejelea Mataifa wenye busara ambao wameelimishwa kwa tamaduni na falsafa ya Uigiriki. "Wasio Wayunani" hutumiwa kurejelea wale walio nje ya tamaduni ya Uigiriki, ambayo isingeelimishwa. Paulo yuko tayari kuhubiria kila mtu.
+Paulo alikuwa na hamu kubwa ya kuhubiri Injili huko Roma. Yeye hutumia neno "mdaiwa" akimaanisha mwenyewe kuonyesha kuwa amejitolea kuwahubiria watu wote (mst. 14). Alikuwa na deni kwa mwenye dhambi kumwambia juu ya Kristo. "Wayunani" hutumiwa kurejelea Mataifa wenye busara ambao wameelimishwa kwa tamaduni na falsafa ya Ugiriki. "Wasio Wayunani" hutumiwa kurejelea wale walio nje ya tamaduni ya Ugiriki, ambayo isingeelimishwa. Paulo yuko tayari kuhubiria kila mtu.
 
-## Dhamira ya Paulo: Injili (1:16—17)
+### Dhamira ya Paulo: Injili (1:16—17)
 
-Mistr ya 16 na 17 ni mistr ya ufunguo wa waraka huu na vifupusho vingi vya waraka.
-
-### Injili ni uwezo wa Mungu kwa ajili ya wokovu
+#### Injili ni uwezo wa Mungu kwa ajili ya wokovu
 
 Mtu hawezi kufanya chochote kwa ajili ya kujiokoa. Alizaliwa katika dhambi pamoja na njia zisizo na matumaini za mwanadamu. Mtu hana wema wakutosha kukidhi matakwa ya sheria ya Mungu. Yeye ana hatia na amehukumiwa kwenda jehanamu. Hakuna gharama ambayo mtu anaweza kulipa ilikununua wokovu wake. Wokovu ni kazi ya Mungu iliotolewa kwa neema na kupokelewa kwa njia ya imani katika kumwamini Yesu Kristo. Wengi huchanganywa na urahisi wa injili na hawezi kukubali mwenye dhambi anaweza kufanywa upya na kubadilishwa kwa nguvu za Mungu kadiri anavyoifikisha imani katika mikono ya Yesu iliopigwa misumari.
 
-### Injili hufunua haki ya Mungu toka imani hata imani
+#### Injili hufunua haki ya Mungu toka imani hata imani
 
-Haki hupokelewa kwa imani kwenye wokovu. Kuna tofauti kati ya haki iliowekwa na haki ya kupewa. Kupewa humaanisha kuweka kwenye. Mungu huweka haki yake ndani ya mtu kwenye wokovu. Kuna badiliko la asili ambalo huambatana na kuzaliwa upya (Wafl 3:9).
+Maelezo "toka imani hadi imani" hurejea kwenye ongezeko la imani; kuonyesho ukuaji kutoka imani ya mwanzo ya wokovu kwenda imani kubwa katika Mungu ambayo huja pamoja na ukuaji wa Mkristo. Maandiko hutuambia kwamba kila mtu amegawiwa kipimo cha imani (Rum. 12:3). Watu wote wana uwezo wa kuamini, lakini bado hawafanyii kazi imani yao kumwamini Yesu Kristo. Mitume waliuliza Bwana tuongezee imani (Lk. 17:5). Imani huongezeka kwa kadir inavyo fanyiwa kazi. Kwa ukomavu wa Mkristo huja ongezeko la imani. Haki ya mungu hufunuliwa toka imani hata imani kwa njia ya Injili.
 
-Maelezo "toka imani hadi imani" hurejea kwenye ongezeko la imani; kuonyesho ukuaji kutoka imani ya mwanzo ya wokovu kwenda imani kubwa katika Mungu ambayo huja pamoja na ukuaji wa Mkristo. Maandiko hutuambia kwamba kila mtu amegawiwa kipimo cha imani (Rum. 12:3). Watu wote wana uwezo wa kuamini, lakini bado hawafanyii kazi imani yao kumwamini Yesu Kristo. Mitume waliuliza Bwana tuongezee imani (Luka 17:5). Imani huongezeka kwa kadir inavyo fanyiwa kazi. Kwa ukomavu wa Mkristo huja ongezeko la imani. Haki ya mungu hufunuliwa toka imani hata imani kwa njia ya Injili.
-
-Ufunuo wa tabia ya Mungu na asili sio kitu cha kutenga mbali na Injili, bali yamefungana katika Injili kwamba sisi kama wasikiaji tuweze KUISHI. Uzima huu na haki sio vitu vinavyopokelewa kwa mara moja, bali hufunuliwa kwetu toka imani hata imani, kadiri tunavyotii na kufanyia kazi yale tuliyo ya pokea, Mungu hutupa zaidi na mchakato wake endelevu katika haki ni njia ya mwenye HAKI. Ufunguo wa kudumisha uzoevu wetu na Mungu ni mchakato endelevu. Paulo anatangaza katika Ebr.6:1, "tukaze mwendo ili tuufikilie utimilifu."
-
-### Mwenye haki ataishi kwa imani
+#### Mwenye haki ataishi kwa imani
 
 Paulo anajenga dhamira ya waraka kwenye msingi wa maandiko. "Kama ilivyo andikwa" iko kwenye rejea ya Habakuki 2:4 kutoka ambako taarifa hii imechukuliwa.
-
-#### Wenye haki ni wale ambao wamehasabiwa haki na Mungu kwa njia ya imani
 
 Wenye haki hurejelea kwa wale ambao wamewekwa katika uhusiano sahihi pamoja na Mungu kwa njia ya malipo yaliyotolewa na yesu Kristo. Wale waliokoka ni wenye haki au wamekwisha hesabiwa haki.
 
@@ -119,81 +110,73 @@ Wenye haki hurejelea kwa wale ambao wamewekwa katika uhusiano sahihi pamoja na M
 
 Mwenye haki hubakia kwa kulindwa na nguvu za Mungu. Katika ulimwengu huu wa dhambi, Mkristo anahitaji kutunza nguvu ya Mungu ilikumlinda kwenye njia nyoofu ambayo humwoongoza kwwenda uzimani. Yesu alisema kwamba hakuna mtu anayeweza kumpokonya kondoo toka kwenye mkono wake (Yn. 10:28). Hii haimanishi kwamba Mungu ataliondoa mbali chaguo la mtu. Wakristo lazima wachague kumtumikia Mungu, kuishi ni uzoevu wa kila siku (Mkristo ataishi) hiyo hudai upokeaji endelevu wa nguvu ya Mungu kwa imani.
 
-# Wote wanahatia na wako chini ya dhambi (1:18—32; 2:1—29)
+## Dhambi ya wamataifa (1:18—32)
 
-> Warumi 3:9—...Kwa maana tumekwisha kuwashitaki Wayahudi na Wayunani ya kwamba pia wamekuwa chini ya dhambi;
-
-## Wote wana hatia (1:18)
+### Wote wana hatia (1:18)
 
 Mahitaji ya wanadamu wote ni kuhesabiwa haki kwanjia ya Yesu vinginevyo ghadhabu ya Mungu itafunulliwa dhidi ya hatia (1:18). Yesu ni ndio njia pekee ya wokovu na wale wasio chagua kukubali utoaji wa Kristo wamehukumiwa (Yn. 3:18).
 
-## Hatia ya Wamataifa (1:19—32)
+### Hatia ya wamataifa (1:19—32)
 
 Hitimisho la sura hii linaendelezea watu hawa ambao wanahatia nakusitahili ghadhabu ya Mungu. Hawana udhuru.
 
-### Walimjua Mungu (1:19—23)
+#### Walimjua Mungu (1:19—23)
 
 Mungu alijidhihirisha mwenyewe kwao (mst. 19). Uumbaji wenyewe unatangaza matendo ya Mungu (mst. 20). Hiyo hata kwa wale wasio pokea sheria au kamwe hawajawahi kuisikia injili wamepewa ufunuo wa Mungu kwa njia ya asili kwa hiyo hawana udhuru. Kwa mara ya kwanza walimjua Mungu lakini hawakumtukuza kama Mungu (mst. 21). Picha za sanamu ni matokeo ya kuukataa ukweli na kutomtukuza Mungu.
 
-## Hatia ya kidini/ya Kiyahudi (2:1—29)
+# Sura ya 2: Dhambi ya Wayahudi
 
-Warumi sura ya pili inazungumzzia juu ya myahudi mwenye hatia au hatia ya mtu wa kidini. Myahudi aliyekataa nuru ya Ufunuo. Katika sura hii tunaona Wayahudi wakiwalaumu wengine, kama mafarisayo walivyofanya. Vilevile sura hii inazungumzia kuhusu tohara ya moyo, ambayo ni ya muhimu sana.
+Warumi sura ya pili inazungumzzia juu ya myahudi mwenye hatia au hatia ya mtu wa kidini. Myahudi aliyekataa nuru ya Ufunuo. Katika sura hii tunaona wayahudi wakiwalaumu wengine, kama mafarisayo walivyofanya. Vilevile sura hii inazungumzia kuhusu tohara ya moyo, ambayo ni ya muhimu sana.
 
-### Kanuni za hukumu za Mungu (2:1—16)
+## Kanuni za hukumu za Mungu (2:1—16)
 
-#### Hukumu ya Mungu ni kweli (2:2)
+### Hukumu ya Mungu ni kweli (2:2)
 
 Hukumu ya Mungu nikulinga na ukweli haina upendeleo, na ni halisi. Mwanadamu anaweza kujisikia kuridhika na kuwa na hakika na mahali pake kwa wakati anapo mhukumu mwingine, na bila shaka yeye yuko yuko bila kinga ya kutosamehewa wakati hukumu ya Mungu itakapokuja.
 
-#### hukumu ya Mungu ni ya adili (2:3—11)
+### hukumu ya Mungu ni ya adili (2:3—11)
 
-#### Kwa kuwa wote waliokosa pasipo sheria watapotea pasipo sheria, na wote waliokosa, wenye sheria, watahukumiwa kwa sheria (2:12)
+### Kwa kuwa wote waliokosa pasipo sheria watapotea pasipo sheria, na wote waliokosa, wenye sheria, watahukumiwa kwa sheria (2:12)
 
-Haitoshi kuifahamu sheria, lazima KUITIMIZA. Ujinga wa sheria hautawaokoa watu wamataifa. Hii inarejea kwa watu wamataifa ambao hawakuipokea sheria ya Musa. Ingawa wao hawakuwa na sheria ya Musa, watu wote wamekwisha pewa habari kuhusu uumbaji na kuwa na sheria ya Mungu, iliofunuliwa na dhamiri ya mwanadamu, ilioandikwa katika moyo. Paulo ameshaonyesha kwamba watu wote wako chini ya hukumu kwa hiyo kuna hitaji la wokovu.
+Haitoshi kuifahamu sheria, lazima kuitimiza. Ujinga wa sheria hautawaokoa watu wamataifa. Hii inarejea kwa watu wamataifa ambao hawakuipokea sheria ya Musa. Ingawa wao hawakuwa na sheria ya Musa, watu wote wamekwisha pewa habari kuhusu uumbaji na kuwa na sheria ya Mungu, iliofunuliwa na dhamiri ya mwanadamu, ilioandikwa katika moyo. Paulo ameshaonyesha kwamba watu wote wako chini ya hukumu kwa hiyo kuna hitaji la wokovu.
 
-Wale ambao wamefanya dhambi katika sheria watahukumiwa kwa sheria. Yeye husimama mahali pa faraja kuu na haki yake kwa yeye ANAJUA sheria, lakini HAKUNA HAKI KWA KUIJUA SHERIA. Paulo anajiwakilisha kama mmataifa mwenye hatia kwasababu yeye hakuifanya sheria na sio kwamba yeye hakuwa na sheria, kama Wayahudi wafanyavyo, na Wayahudi pia hawakusamehewa kwasababu ya hatia yao walionao na sio sheria, na wao pia watahukumiwa kwa kutoifanya sheria. Ushuhda wao ni uovu, hujivuna kwakuijua sheria, lakini kutomheshimu Mungu ni KUVUNJA sheria.
+Wale ambao wamefanya dhambi katika sheria watahukumiwa kwa sheria. Yeye husimama mahali pa faraja kuu na haki yake kwa yeye anajua sheria, lakini hakuna haki kwa kuijua sheria. Paulo anajiwakilisha kama mmataifa mwenye hatia kwasababu yeye hakuifanya sheria na sio kwamba yeye hakuwa na sheria, kama wayahudi wafanyavyo, na wayahudi pia hawakusamehewa kwasababu ya hatia yao walionao na sio sheria, na wao pia watahukumiwa kwa kutoifanya sheria. Ushuhda wao ni uovu, hujivuna kwakuijua sheria, lakini kutomheshimu Mungu ni kuvunja sheria.
 
-#### Utii ni kigezo kwa ajili ya kuhesabiwa haki (2:13)
+### Utii ni kigezo kwa ajili ya kuhesabiwa haki (2:13)
 
 Kuhesabiwa kwasasa inatolea kwa imani katika Kristo Yesu. Kristo ni utimilifu wa sheria. Chini ya agano la neema watu wanaweza kuhesabiwa haki kwa njia ya Yesu Kristo. Dhabihu za sheria zilitazama mbele kwenye ukombozi kwa njia ya damu ya Kristo. Na kuhesabiwa haki ambayo ni kwa njia ya imani. Kwa hiyo leo njia pekee ya mtu kuweza kumtii Mungu ni kukubali malipo ya Yesu Kristo (Gal. 3:24).
 
-### Sheria ya Mungu imeandikwa kwenye mioyo ya wanadamu (2:14—16)
+## Sheria ya Mungu imeandikwa kwenye mioyo ya wanadamu (2:14—16)
 
-Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama Wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika MIOYO yao na dhamiri yao zinashuhudia.
+Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika mioyo yao na dhamiri yao zinashuhudia.
 
 Paulo anakabiliana na udhuru wa mwanadamu, kujibu swali: Jinsi gani Mungu anaweza kuhukumu mataifa ambao hawakuwa na sheria? Mungu atamhukumu mtu kulingana na ukweli ambao aliutoa kwake. Wamataifa wanaotenda dhambi watapotea, lakini sheria ya Musa haitatumika kama kiwango cha hukumu dhidi yao. Watu wote bado walikuwa na sheria ya dhamiri zao na ushuhuda wa uumbaji. Mtenda dhambi yuko chini ya hukumu hata kama bila sheria ya Musa.
 
-Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. Mungu tu ndio mwenye kiwango cha maadili. Hakuna sheria moja kwa ajili ya Wayahudi na nyingine kwa ajili ya wamataifa.
+Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. Mungu tu ndio mwenye kiwango cha maadili. Hakuna sheria moja kwa ajili ya wayahudi na nyingine kwa ajili ya wamataifa.
 
-#### Mungu atahukumu siri za wanadamu (2:16)
+### Mungu atahukumu siri za wanadamu (2:16)
 
-### Myahudi asiye mwaminifu yuko chini ya hukumu (Mst. 17—25)
+## Myahudi asiye mwaminifu yuko chini ya hukumu (Mst. 17—25)
 
-#### Wayahudi walitua kwenye sheria (2:17—18)
+### Wayahudi walitua kwenye sheria (2:17—18)
 
-Wayahudi walidai kusamehewa kutoka kwenye hukumu iliojikita kwenye urithi. Wakati Yesu anawalaumu Wayahudi, wao walijibu: sisi ni wa uzao wa Ibrahimu; Yesu aliitikia:ikiwa ninyi wa uzao wa Ibrahimu, mngefanya kazi za Ibrahimu (Yn. 8:33—39). Wayahudi waliamini wao wangepokea uzima wa milele juu ya stahili ya kuwa myahudi na agano la tohara. Maandiko ya zamani ya kirabi huelezea kwamba mtu aliyetahiriwa hatapotea. Wayahudi walikuwa na mapokeo kwamba Ibrahimu alisimama kwenye malango ya kuzimu kuhakikisha kwamba hakuna mtu aliyetahiriwa ambaye ingia hapo.
+Wayahudi walidai kusamehewa kutoka kwenye hukumu iliojikita kwenye urithi. Wakati Yesu anawalaumu wayahudi, wao walijibu: sisi ni wa uzao wa Ibrahimu; Yesu aliitikia:ikiwa ninyi wa uzao wa Ibrahimu, mngefanya kazi za Ibrahimu (Yn. 8:33—39). Wayahudi waliamini wao wangepokea uzima wa milele juu ya stahili ya kuwa myahudi na agano la tohara. Maandiko ya zamani ya kirabi huelezea kwamba mtu aliyetahiriwa hatapotea. Wayahudi walikuwa na mapokeo kwamba Ibrahimu alisimama kwenye malango ya kuzimu kuhakikisha kwamba hakuna mtu aliyetahiriwa ambaye ingia hapo.
 
-Ujuzi wa sheria hauwezi kumuokoa Myahudi. Myahudi anayejivuna katika sheria huamini yeye ni kiongozi kwa kipofu, bali yeye mwenyewe ni kipofu. Kwamba yeye anaijua njia, kwamba hakuna mwingine ajuaye zaidi. Anasimama katika sehemu hii kwa ujasiri mkubwa wa binafsi kwasababu yeye ANAJUA sheria, lakini HAKUNA HAKI KATIKA KUJUA SHERIA. Paulo naongea mojo kwa moja kwa msisitizo kuelekea pointi yake, wewe uhubiriye kwamba mtu asiibe, mbona wewe waiba? Paulo kwa wazi anawakilisha kwamba eti mmataifa anahatia kwasababu hafanyi matakwa ya sheria bali si hivyo kwa kuwa yeye hana sheria, kama Wayahudi wafanyavyo, vilevile Wayahudi hawasamehewi hatia yao kwasababu wanao sheria na wanaijua, bali hatahivyo wanahukumiwa kwasababu hawatimizi. Ujasiri wao ni ujinga wa moyo kwakuwa wao ni vipofu na wanaongoza kipofu.
+Ujuzi wa sheria hauwezi kumuokoa Myahudi. Myahudi anayejivuna katika sheria huamini yeye ni kiongozi kwa kipofu, bali yeye mwenyewe ni kipofu. Kwamba yeye anaijua njia, kwamba hakuna mwingine ajuaye zaidi. Anasimama katika sehemu hii kwa ujasiri mkubwa wa binafsi kwasababu yeye anajua sheria, lakini hakuna haki katika kujua sheria. Paulo naongea mojo kwa moja kwa msisitizo kuelekea pointi yake, wewe uhubiriye kwamba mtu asiibe, mbona wewe waiba? Paulo kwa wazi anawakilisha kwamba eti mmataifa anahatia kwasababu hafanyi matakwa ya sheria bali si hivyo kwa kuwa yeye hana sheria, kama wayahudi wafanyavyo, vilevile wayahudi hawasamehewi hatia yao kwasababu wanao sheria na wanaijua, bali hatahivyo wanahukumiwa kwasababu hawatimizi. Ujasiri wao ni ujinga wa moyo kwakuwa wao ni vipofu na wanaongoza kipofu.
 
-#### Wayahudi wanamini wao wako juu ya wamataifa (2:19—24)
+### Wayahudi wanamini wao wako juu ya wamataifa (2:19—24)
 
-#### Myahudi wa kweli ni yule ambaye ni kwa ndani (moyoni, rohoni) (2:25—29)
+### Myahudi wa kweli ni yule ambaye ni kwa ndani (moyoni, rohoni) (2:25—29)
 
 Tohara ilikuwa ni ishara ya kuondoa hali dhambi. Mmataifa asiyetahiriwa aliyetii sheria ya Mungu alipata faida zaidi kuliko myahudi aliye tahiriwa asiyetii sheria
 
 Tohara ni ya moyo. Kwa swala la kuhesabiwa haki sio juu ya mtu aliyezali akiwa myahudi au mmataifa, wala aliyetahiriwa au la, au kama anasheria au la bali moyo wake unatohara? Ana ugumu wa moyo na dhambi imeondolewa toka moyoni mwake, Paulo kwa hitimisha anasema myahaudi wa kweli ana imani kwa ndani, ambaye moyo wake umeshabadilishwa, sio yule ambaye kwa inje anafuata sherehe kwa njia ya kimwili. Kila myahudi anahitaji kuongeza kwenye tohara yake ya kimwili, tohara ya moyo kwa njia ya toba na maisha yaliyo badilika.
 
-# Sheria ni taswira sahihi (sura ya 3)
-
-Kuhesabiwa haki ni kwa imani pasipo matendo ya sheria. Sheria ni: faida kwao wanaoijua (mst. 1–2), kwa uhalisi katika asili yake (mst. 3–8), pasipo kupinda katika mamlaka yake (mst. 9–19), kuna kusudi tofauti (mst. 20–30), hakufaywa kwa kuepuka, bali zaidi huthibitishwa kwa imani yetu, (mst. 31).
+# Sura ya 3: Kusudi la Sheria
 
 ## Utangulizi
 
-### Katika sura ya 3, tuna kanuni tano kuhusiana na sheria:
-
-Paulo anaiweka sheria katika taswira yake ilio sahihi. Myahudi wa kidini anatoa sauti ya mgongano katika ujuzi wake wa sheria ya Musa kana kwamba ilikuwa kitu cha kuwahesabia haki mbele za Mungu. Wao walikuwa wamefunika taswira ya kile ambacho sheria hufanya. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
-
-Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wayahudi kwa Kristo. Roho mtakatifu alijuwa Wayahudi walikuwa wanashikiliwa katika ukubwa wao na kjaribu kuhalalisha ukataaji wao kwa Injili. Katika Rum. 3, tunakutana na ukanushi wa udhuru wa Wayahudi kwa kuendelea kuonyesha kwamba wako chini ya hukumu na wanamhitaji Yesu.
+Katika sura ya 3, tuna kanuni tano kuhusiana na sheria:
 
 1. Faida ya kweli ya kuwa na sheria (mst. 1—2)
 2. Uhalisi wa sheria (mst. 3—8)
@@ -201,11 +184,13 @@ Ushawishi katika ukuu wa pili wa sheria ni kile ambacho kililisha upinzani wa Wa
 4. Kusudi la kweli la sheria (mst. 20—30)
 5. Kuthibitishwa kwa sheria (mst. 31)
 
+Paulo anaiweka sheria katika taswira yake ilio sahihi. Yesu hakuitoa wala Paulo hakuitoa sheria kama kitu kisicho faa, bali anakiweka katika nafasi sahihi katika taswira iliotolewa na ufunuo wa msalaba. Katika uyahudi sheria ni mfalme, bali kulingana na Injili kuna haki na kuhesabiwa haki pasipo matendo ya sheria.
+
 ### Sheria ni nini?
 
 Neno "sheria" kwa ujumla humaanisha kanuni "maandishi ya maelekezo." Ingawa ilikuwa imetolewa kwa Wayahudi na Mungu kwa kupitia Musa, wote Wayahudi na wamataifa walikuwa na sheria ya Mungu katika dhamiri zao (Iwe isiwe wanachagua kuipokea ilikuwa chaguo lao).
 
-Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado kwa wakati huo huo anathibitisha thamani yake ya ukweli. Sheria iliotolewa kwa Musa kwakweli ni mapenzi ya Mungu, lakini haikuwa jumla ya maelekezo yake. Kosa la Wayahudi lilikuwa kwamba walifanya zile kanuni pamoja na sherehe zake na kuambatanisha mapokeo kwenye jumla ya kusudi la Mungu mbele ya ubinadamu.
+Kote katika Warumi, Paulo anaelezea udhaifu wa sheria iliotolewa na Musa na bado kwa wakati huo huo anathibitisha thamani yake ya ukweli. Sheria iliotolewa kwa Musa kwakweli ni mapenzi ya Mungu, lakini haikuwa jumla ya maelekezo yake.
 
 Ingawa tunaweza kupata neno lilelile "sheria" limetumika katika mistr 52 katika Warumi, Paulo mda wote hajadili kanuni zilezile au maelekezo.
 
@@ -224,37 +209,21 @@ Musa alikuwa ametumiwa kama mwaaguzi wa Mungu, lakini yeye hakuwa mjumbe pekee n
 
 Mtu anaweza kuhesabiwa haki mbele za macho ya Mungu pasipo matendo ya sheria ya Musa (mwizi msalabani). Mtu hawezi kamwe kuhesabiwa ikiwa anakinzana na mawazo ya Mungu.
 
-> Rum. 7:22—Kwa maana naifurahia sheria ya Mungu kwa utu wa ndani,
-
 ## Faida ya kweli ya kuwa na sheria (mst. 1—2)
 
 ### Faida sio ile ambayo wao kwakurithi ni kuu kwa mataifa
 
-Kuhesabiwa haki kwa imani ni fundisho la usawa wa watu wote ambao Wayahudi walidharau kutokana na msisitizo wao wa kuwa na ukuu kwa mataifa. Wayahudi walitaka kuringia ukuu wao juu ya mataifa. Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
+Wayahudi wengi waliendelea kukataa injili na kushikilia ukuu wao na sehemu ya kujitukuza katika Yehova kirahisi kwa sababu msitari wao kwa Ibrahimu. Wayahudi wengi walitishwa na dhana ya mataifa kuwa sawa na wao kwa njia ya imani kwa njia ya Yesu.
 
-### Faida ni kwamba wao walipokea kwanza mambo ya Mungu.
+### Faida ni kwamba wao walipokea kwanza mambo ya Mungu
 
-"Ndio myahudi anafaida, lakini sio ile unayofikiri!" Uaguzi kihalisi humaanisha usemi na uliotumika hapa unarejea kama maneno ya usemi wa Mungu uliotangazwa kwa njia ya manabii na kuhifadhiwa katika Maandiko matakatifu. Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yn. 1:11).
+Wayahudi walikuwa wamepokea unabii wa masiha na kwa hiyo walikuwa na faida ya kuongeza ufunuo wa masiha ambawo mataifa hawakuwa nao. Faida waliokuwa nao Wayahudi ilikuwa ni kitu ambacho kiliwahukumu kwa wengi ambawo waliendelea kumkataa Yesu kama masiha (Yn. 1:11).
 
 Faida ya kuijua sheria sio kile ambacho hutuhesabia sisi haki, bali ile kusikia kwetu neno la Mungu linalo funua fursa ya kupokea imani kutoka kwa Mungu. Tunaweza kujua zaidi na kutamani kumpendeza Mungu.
 
 ## Uhalisia wa sheria (3:3—8)
 
-### Kiwango ni Kristo asiyebadillika
-
-Tumeshafanya udhahiri kati ya maagizo maalumu yaliyotolewa kwa njia ya Musa yaakijumuishwa na Kusudi la Mungu. Ni kosa kubwa kuifanya sheria ya Musa kuwa ni maagizo ya mwisho ya mapenzi ya Mungu. Ukamilifu wa mapenzi ya Mungu ni mkubwa sana kuliko sheria iliotolewa kwa njia ya Musa.
-
-Iko katika Yesu, tunaona ukamilifu wa mapenzi ya Mungu. Bwana Yesu Kristo ni kiwango cha tarajio la Mungu (Waef. 4:11—16).
-
-Kwa maana makusudi ya somo letu tumefafanua sheria ya Mungu kama:
-
-> Kiwango cha Mungu cha tarajio kwa ajili ya uumbaji wake.
-
-Sheria ya Mungu inatawaliwa na asili yake. Kile kilicho ndani ya sheria ya Mungu kwasababu Mungu ndivyo alivyo. Mungu ni halisi na kwa hiyo sheria yake ni halisi--matarajio yake ya tabia ya mwanadamu ni halisi. (Muda mwingi, kujitawala kwa mwanadamu ni kitu chochote bali kiwe halisi.)
-
-> 2 Samuel 22:31—Mungu njia yake ni kamilifu; Ahadi ya Bwana imehakikishwa; Yeye ndiye ngao yao Wote wanaomkimbilia. (linganisha na Zab. 101)
-
-### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst.3—4)
+### Kama baadhi hawaamini, je Mungu atavunja ahadi yake? (mst. 3—4)
 
 Ameghairi Agano lake na Ibrahimu kwasababu baadhi ya Wayahudi ni wabaya? Kama baadhi yao hawa amini je itazuia mpango wa Mungu? Je, wasio amini hufuta mpango wa Mungu? Angali 2 Tim. 2:13.
 
@@ -266,13 +235,9 @@ Kizuizi chao kilikuwa hata baadhi yao hawakuamini; hakuna kitu kinacho weza kuba
 
 > 2 Tim. 2:13—Kama sisi hatuamini, yeye hudumu wa kuaminiwa. Kwa **maana hawezi kujikana mwenyewe.**
 
-Hii sio sababu, ya baadhi ya Wayahudi ambayo hawakuwa waaminifu na ikahitajika imani katika kumwamini Yesu Kristo. Hii ni kwasababu ya ukamilifu wa mpango wa Mungu ambao muda wote uko katika Kristo.
-
 #### Ilielezewa toka maisha ya Daudi (mst. 4b)
 
-> Nimekutenda dhambi Wewe peke yako, Na kufanya maovu mbele za macho yako. Wewe ujulikane kuwa una haki unenapo, Na kuwa safi utoapo hukumu (mst. 4).
-
-Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zab. 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu Wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa Wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
+Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa Daudi alikuwa amehukumiwa kwa ajili ya dhambi yake. Kulingana na Zaburi 51:4, Mungu ni mwenye haki anapozungumza na kuwa wazi wakati anapohukumu. Hii imetumika hapa kuonyesha kwamba Mungu anahaki ya kuhukumu Wayahudi kwasababu wao walimkataa masiha ambaye alikuja kwa njia ya uzao wa Ibrahimu kulingana na ahadi. Hizi ahadi ambazo wao walizidai zingewahalalishia uhakika ulioleta hukumu kwa Wayahudi kwasababu ya kumtaa kwao Yesu Kristo.
 
 ### Ikiwa dhambi zetu zinaitukuza haki ya Mungu, je yeye atatuhukumuje? (mst. 5—7)
 
@@ -280,11 +245,9 @@ Zaburi ya Daudi ilinakiliwa kuonyesha kuwa Mungu ni mwenye haki hata ijapokuwa D
 
 Lazima tutegemee kwenye mukitadha kutusaidia kufahamu maana ya swali hili. Hii imetolewa kama maswali mawili katika kifungu na kimerahisishwa kwa ajili ya kujifunza. Swali kwa halisi huuliza:kama kutokuwa haki kwetu kumetukuzwa au kulela usikivu kwenye haki ya Mungu na huruma; je Mungu atakuwa hana haki anapotuhukumu?
 
-Hii bado iko upande wetu kufahamu. Kukumbuka kwamba Mungu anashughulika na vizuizi halisi vya Wayahudi. Kizuizi ni sawa na vizuizi vya wengi leo. Tungeuliza kwa njia hii: Ikiwa Mungu ni mwenye haki kwanini anihukumu kwa ajili ya dhambi yangu na kunitupa jehanamu? (Hasahasa tukiwa watoto wa Ibrahimu.)
-
 #### Mungu amepinga: kwahiyo basi jinsi gani atauhukumu ulimwengu?
 
-Jibu ni: kwa hakika sio. Kama kanuni hii imetumika kisha itakuwaje Mungu kuipitia hukumu juu y a ulimwengu? Ulimwengu hapa unalelewa kama mataifa. Wayahudi walikuwa bado wanajaribu kujitolea udhuru kutoka kwenye hukumu. Ni kitu maalumu kwa Mungu mwenye haki kuhukumu wasio haki wenye dhambi haijalishi ni Wayahudi ama Wamataifa.
+Jibu ni: kwa hakika sio. Kama kanuni hii imetumika kisha itakuwaje Mungu kuipitia hukumu juu y a ulimwengu? Ulimwengu hapa unalelewa kama mataifa. Ni kitu maalumu kwa Mungu mwenye haki kuhukumu wasio haki wenye dhambi haijalishi ni Wayahudi ama Wamataifa.
 
 Ukweli ni, Mungu anaweza kuuhukumu ulimwengu kwasababu yeye ni mwenye haki.
 
@@ -292,105 +255,79 @@ Ukweli ni, Mungu anaweza kuuhukumu ulimwengu kwasababu yeye ni mwenye haki.
 
 Baadhi ya watu huharibu ukweli wa huruma ya Mungu na kujivuna kwamba hali yao ya dhambi huishi na kibali cha Mungu kisicho na mashariti, kinaielezea huruma kuu ya Mungu. Paulo hakuwa anahubiri mafundisho haya potofu, lakini alikuwa ameshitakiwa kwa kufanya hivyo pia.
 
-Hili lilikuwa ni shambulio juu ya mahubiri ya Paulo ya kuhesabiwa haki kwa njia ya imani. Wayahudi walikuwa wanasema: wewe unatuambia Mungu anawahesabia haki watu waovu, kwanini wasiendelee kuwa waovu ili wema uweze kuja kutoka kwenye uovu?
-
 Maelezo ya Paulo kwa hawa aliowahubiria yalikuwa ni: wale ambao hukumu ni haki yao. Kwakuwa shitaka halikuwa kweli Paulo hakwenda ndani zaidi kwenye jibu hili; yeye anathibitisha tu kwamba hukumu ya Mungu juu yao ni sahihi.
 
-## Mamlaka yasiyopindika ya sheria (3:9—19)
+## Mamlaka yasiyopindika ya sheria (3:9—20)
 
 Dunia yote iko chini ya hukumu.
 
-## Shitaka limetozwa dhidi ya mwenye dhambi (mst. 9)
+### Shitaka limetozwa dhidi ya mwenye dhambi (mst. 9)
 
 Mwenye dhambi ni nani? Tumeshathibitisha kuwa wote Wayahudi na wamataifa wako chini ya dhambi kwahivyo wote wanahatia ya kuvunja sheria.
 
-## Ushahidi hutolewa mbele ya mshitakiwa
+#### Ushahidi hutolewa mbele ya mshitakiwa
 
 1. Ushahidi wa uumbaji (1:20)
 2. Ushahidi wa dhamira (2:15)
 3. Ushahidi wa amri (3:19)
 
-## Shitaka lililo somwa toka Maandiko (mst. 10—18)
+### Shitaka lililo somwa toka Maandiko (mst. 10—18)
 
-### Kulingana na sheria za kimahakama shitaka rasimi lazima liwe limeandikwa
-
-Hakimu mkuu haachi udhuru kwa ajili binadamu na Paulo ametumia neno lililoandikwa kuonyesha mshitakiwa.
-
-### Paulo alitumia maandishi yao matakatifu ya kuwahukumu Wayahudi
+Kulingana na sheria za kimahakama shitaka rasimi lazima liwe limeandikwa. Hakimu mkuu haachi udhuru kwa ajili binadamu na Paulo ametumia neno lililoandikwa kuonyesha mshitakiwa.
 
 Myahudi alitamka kwamba alikuwa na Maandiko; sasa Mungu anatumia Neno lile lile kufungua dhambi zao. Mungu anawafanya kuwajibika kwa Neno Lake.
 
-## Ulinzi wa mshitakiwa (mst. 19)
+### Ulinzi wa mshitakiwa (mst. 19)
 
 Ulinzi wa mshitakiwa ni nini? Mshitakiwa hana la kusema; kila kinywa kimefungwa. Siku ya hukumu itakuwa ni siku ya kunyamaza kimya.
 
-## Uamuzi (mst. 20)
+### Uamuzi (mst. 20)
 
-### Hatia kama ilivyo shitakiwa!
+Hatia kama ilivyo shitakiwa!
 
-### Hakuna mwenye mweili atakaye hesabiwa haki kwa matendo sheria
+#### Hakuna mwenye mweili atakaye hesabiwa haki kwa matendo sheria
 
 Sheria inarejea zaidi ya sheria ya Musa; vilevile pia kwenye sheria ya maadili na sheria ya dhamiri. Watu wamataifa hawakuimiliki sheria ya Musa, lakini kila mtu anasheria ya maadili ya Mungu ilioandikwa katika moyo wake na kuthibitishwa na dhamiri yake.
 
-### Malipo ya kifo yameshatolewa dhidi ya mhukumiwa (Rum. 6:23)
+#### Malipo ya kifo yameshatolewa dhidi ya mhukumiwa (Rum. 6:23)
 
-# Kusudi la kweli la sheria (mst. 20—30)
+## Kusudi la kweli la sheria (mst. 21—30)
 
-## Sheria haijawahi kumhesabia haki mtu yeyote (mst. 20)
-
-Sheria ni shitaka kwa asili dhidi ya wanadamu wote. Kusudi la kweli la sheria sio kumhesabia mtu haki, bali ni kuleta kuijua dhambi. Kipekee, sheria haiwezi kuzalisha wokovu au haki katika macho ya Mungu. Wokovu ni kwa neema kwa njia ya imani katika Yesu Kristo.
-
-## haki ya Mungu imedhihirishwa kwa wanadamu (mst. 21—23)
+### haki ya Mungu imedhihirishwa kwa wanadamu (mst. 21—23)
 
 Kudhihirisha ni kuonyesha au kutangaza
 
-### Mwenye haki aliyetangazwa
+#### Mwenye haki aliyetangazwa
 
-Maana ya "kuhesabiwa" haki ni kutangazwa kuwa mwenye haki. Kuhesabiwa ni kuwekwa mahali penye uhusiano sahihi pamoja na Mungu. Paulo anaongea na watu jinsi gani wataweza kuhesabiwa haki au kutangazwa haki; kwa njia Yesu Kristo.
+Maana ya "kuhesabiwa" haki ni kutangazwa kuwa mwenye haki. Kuhesabiwa ni kuwekwa mahali penye uhusiano sahihi pamoja na Mungu. Paulo anaongea na watu jinsi gani wataweza kuhesabiwa haki au kutangazwa haki: kwa njia Yesu Kristo.
 
-> Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi.  
-> — Wiersbe, W. W. (1996). The Bible Exposition Commentary
+> Umuhimu mkubwa, kuhesabiwa haki haimaanishi kwamba Mungu hutufanya haki, bali hututangaza kuwa wenye haki. Kuhesabiwa haki ni jambo la kisheria. Mungu huweka ya Kristo kwenye hesabu yetu ya wenye dhambi.<sup>[1]</sup>
 
-Bado, Wokovu haujakamilika katika maelezo haya. Kwa kuwa katika tangazo la Mungu la kuhesabiwa haki, kwa kutupa haki yake ametufanya wenye haki (Rum. 5:19).
+### Njia ya Mungu kumhesabia mtu haki (mst. 24)
 
-### Haki hurejea usafi wa maadili
-
-Kirahisi humaanisha kuwa haki ni kuwa kinyume cha ubaya. Dhambi ni ubaya na Mungu ni haki. Ilivyotumika kwa Mungu inarejea kuwa kamili au utakatifu wa asili yake; Mungu muda wote ni mwenye haki.
-
-### haki hii hutoka kwa Mungu
-
-Hii sio haki ya kuifanyia kazi au hata matendo ya haki. Kuhesabiwa haki ni haki ya Mungu kuwekwa kwenye hesabu ya mtu; Hiyo ni Mungu kumhesabia mtu haki kwa njia ya haki ya Kristo. Kifungu hiki humwonyesha mtu kuwa chanzo pekee cha haki ni kutoka kwa Mungu.
-
-## Njia ya Mungu kumhesabia mtu haki (mst. 24)
-
-### Imetolewa kwa neema ya Mungu
+#### Imetolewa kwa neema ya Mungu
 
 Mwenye dhambi hasitahili kupata haki. Mtu anasitahili kwa ajili ya dhambi. Mungu kwa uhuru huwahesabia haki wale ambao wanapokea utoaji ya Kristo kwa imani. Wokovu ni zawadi ya Mungu kwa wale wanao pokea utoaji wa Kristo kwa imani.
 
-### Kwa njia ya ukombozi katika Kristo Yesu
+Hii sio haki ya kuifanyia kazi au hata matendo ya haki. Kuhesabiwa haki ni haki ya Mungu kuwekwa kwenye hesabu ya mtu; Hiyo ni Mungu kumhesabia mtu haki kwa njia ya haki ya Kristo. Kifungu hiki humwonyesha mtu kuwa chanzo pekee cha haki ni kutoka kwa Mungu.
+
+#### Kwa njia ya ukombozi katika Kristo Yesu
 
 Ukombozi humaanisha kununuliwa, kuwekwa huru kwa malipo ya fidia. Yesu alilipa gharama kwa ajili ya wokovu wetu katika damu yake. Mtu anatangazwa kuwa haki kipekee kwenye stahili ya Yesu Kristo.
 
-## Matakwa ya sheria yametimizwa (mst. 25)
+### Matakwa ya sheria yametimizwa (mst. 25)
 
-### Mungu bado anadai haki
+#### Mungu bado anadai haki
 
 Kuhesabiwa haki sio tu Mungu kuonyesha huruma juu ya mwenye dhambi na kumwacha huru bila malipizi kulipwa. Neno uheri limetumika katika rejea kwa Kristo kukidhi matakwa ya sheria. Uheri sio sababu utekelezaji wa hukumu iliositahili. Huelezewa kwenye neno la kiebrania kumaanisha kiti ccha rehema ambacho kilikuwa kikiwekwa damu ya malipizi na kunyunyizwa ili kukidhi hukumu ya Mungu. Hii damu ya kunyunyiza ilifunika vibao vya sheria ikiwa nipamoja na sanduku la agano. Huu ni mfano wake yeye ambaye angekuja kumwaga damu ya kiungu kukidhi sheria. Damu ya Yesu ni sababu ya hukumu kutotekelezwa kuhusu mwenye kutubu.
 
-### Kipatanisho
+#### Kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
 
-> Kipatanisho kihalisi humaanisha kuonyesha uondoaji wa ghadhabu kwa utoaji zawadi. Katika Angano la Kale huelezwa kwa tendo la kukausha samaki (MALIPO). Jambo la kipanisho huinuka kwa ukubwa wa jambo kutoka kwenye dhana nzima ya ghadhabu ya Mungu, ambao watetezi wa mtazamo huu huwakilisha jamii na msemo wa kale. Wanahisi watu wa sasa hawawezi kushikilia dhana hii. Lakini watu wa Agano wa la kale hawakuwa na makatazo kama hayo. Kwa wao Mungu hukasirishwa na uovu kila siku (Zab. 7:11). Wao hawakuwa na shaka kwamba dhambi kwa kutoepuka huamsha mwitikio wenye nguvu kutoka kwa Mungu. Yeye kwa ujasiri yuko kinyume uovu katika kila muonekano na mundo wakati yeye huo huo yeey anaweza kuwa mpole wa hasira.  
-> -Kamusi mpya ya Biblia
+Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Ebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na Jipya.
 
-### Hebu tuangalie kifungu kwa ajili ya ondoleo la dhambi zile zilizotangulia kufanywa
+### Mtu anahesabiwa haki kwa imani pasipo matendo ya sheria (mst. 28)
 
-Katika kipindi cha Agano la Kale, damu ya wanyama haikuweza kuondoa dhambi (Ebr. 10:4). Damu ya wanyama ni kivuli cha damu ya Yesu, ilikuwa ni kitu cha muda mfupi hadi pale Yesu alipokuwa amekuja na kujitoa mwenyewe kama dhabihu ya kiwango cha juu kwa ajili ya dhambi. Tafasiri halisi ya fungu hiki ni kwamba Mungu alizipitia juu dhambi ambazo zilitangulia kufanywa. Yeye akijua kwamba Yesu angekuja kulipa gharama yote hapo msalabani. Damu ya wanayama ilikuwa kama hati ya malipo hadi gharama yote iishe kulipwa. Hapakuwa na mtu aliyekuwa ameokolewa kwa wanyama Watu wote wanaokolewa kwa damu ya Yesu Agano la Kale na jipya.
-
-## Mtu anahesabiwa haki kwa imani pasipo matendo ya sheria (mst. 28)
-
-### Imani ni kigezo cha kupokea kutoka kwa Mungu
-
-### Matendo ya sheria hayawezi kumhesabia mtu haki
+Imani ni kigezo cha kupokea kutoka kwa Mungu. Matendo ya sheria hayawezi kumhesabia mtu haki.
 
 ## Kuthibitishwa kwa sheria (mst. 31)
 
@@ -398,27 +335,20 @@ Kuhesabiwa haki kwa imani huthibitisha sheria. Sheria ya imani haifanyi sheria i
 
 Sheria huleta kuijuwa dhambi kwa mtu, na huyo mtu ambaye ameitambua hali yake awezekuhesabiwa haki kwa imani. Pasipo sheria mtu hangeweza kuijua dhambi, na kwa hiyo hangekuwa na hitaji kwa ajili ya kuhesabiwa haki, ukombozi au malipizi ya dhambi. Sheria ambayo kwa mara ya kwanza ilivunjwa imethibitishwa kwa njia ya imani katika kazi iliomalizika ya Kristo kwa maana kwa njia ya haki yake imetosheleza.
 
-# Imani, Neema, na kuhesabiwa haki (sura ya 4)
+---
 
-## Utangulizi
+<small>
+  - [1] Wiersbe, W. W. (1996). The Bible Exposition Commentary
+</small>
+# Sura ya 4: Kuhesabiwa haki kwa imani
 
 Kazi ya sheria katika kuhesabiwa haki ni ile inayoleta kuijua dhambi. Mtu haihesabiwi haki kwa njia ya matendo sheria. Kwasababu kuhesabiwa haki inachukua nafasi katika muumini "kwa neema kwa njia ya imani." Kwa Neema zawadi ya uzima wa milele imetolewa bure kwa ulimwengu wote ni kwa njia ya imani ambayo zawadi hupokelewa. Mungu amefanya ya kwanza kuondoka kwenye ukombozi na kwa ajili ya ule mpango kuwa wamanufaa kwangu, lazima nichague kupokea zawadi kwa imani. (Neema ya Mungu husaidiana na asili ya mapenzi huru ya Mungu aliyoyatoa kwa mwanadamu.) Angalia pia Waefeso 2:8 na Warumi 4:16. Kuhesabiwa haki kwa njia ya imani imeonyeshwa katika maisha ya Ibrahimu.
 
 ## Abrahimu alihesabiwa haki kwa njia ya imani na sio kwa matendo (mst. 1—8)
 
-> Rum. 4:3—...Ibrahimu alimwamini Mungu, ikahesabiwa kwake kuwa haki.
+Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Ibrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Ibrahamu kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa.
 
-Kwa nini Paulo anaongelea kuhusu Ibrahimu? Paulo anaelezea swali la Wayahhudi. Wayahudi walihusiana na Ibrahimu kwa undani. Ibrahamu alirejewa kama baba yetu katika mistri ya 1, 12, na 17. Ibrahamu alikuwa baba yetu kama alivyofungamana katika mwili, baba wa tohara, baba wa imani yetu, baba wa mataifa (hii ilikuwa ni ahadi ya Mungu kwake).
-
-Wayahudi walikuwa wameshikiliwa katika uhusiano wao na Ibrahamu ("wana wa Ibrahamu kimwili") kama dhamana yao kwa uzima wa milele. Wayahudi waliweka faraja kubwa kwa Abrahimu baba wa taifa. Paulo anajibu maswali ya Wayahudi:
-
-- Ni nini kuhusu Ibrahimu Baba yetu?
-- Ni agano gani la tohara lililotolewa kwa Abrahimu, lisilo tufanya sisi kuwa haki?
-
-War sura ya 4 inashughulika na "haki ya Ibrahimu." Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
-
-1. katika sura ya 3, Paulo anathibitisha kwamba imani haipuki sheria bali zaidi ya hapo inaithibitisha.
-2. Katika sura ya 4 ahadi iliotolewa kwa Ibrahimu haikuwa kwa njia ya sheria (tohara) bali kwa njia ya haki ya imani.
+Ibrahimu ni mfano wa kuhesabiwa kwa neema kupitia imani. Paulo anatumia maisha ya Ibrahimu kama yalivyoonyeshwa katika maandiko matakatifu kuelezea fundisho la haki kwa njia ya imani. Katika sura sura zote mbili ya 3 na ya4 Paulo anautoa ukweli kwamba yeye hahubiri injili ya kushindanisha maandiko ya (Agano la Kale), bali za ni injili ambayo mwendelezo wa kusudi la Mungu la milele.
 
 ### Kabla ya Torati kutolewa, Ibrahimu alihesabiwa kama mweye haki (mst. 4)
 
@@ -444,7 +374,7 @@ Wayahudi walitazamia tohara na sheria kama chanzo cha haki yao. Ibrahimu alihesa
 
 Tohara haikumhesabia Ibrahimu haki. Tohara ilikuwa imetolewa kama ishara ya ahadi. Ilikuwa imetolewa kama mhuri wa haki ya imani. Ni alama ya kuindoa sehemu ya mwili. Hakuna nguvu ya haki katika tendo la kimwili. Hii kwa uhalisi ni kazi ya Mungu mara nyingi katika njia hiyo hiyo ubatizo ni alama ya kazi kamili.
 
-Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria hakuna uasi inarejea kwenye ukweli kwamba ikiwa hakuna sheria basi hakuna kuivunja sheria. Hii pia lazima inarejea kwenye sheria ya maadili kama ilivyo kwa sheria Musa. Ibrahimu alikuwa amehesabiwa kwa imani kwa njia ya neema (mst. 16). Hakujipatia haki kwa uwezo wake mwenyewe;Itolewa pasipo kusitahili kwasababu ya imani yake.
+Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria hakuna uasi inarejea kwenye ukweli kwamba ikiwa hakuna sheria basi hakuna kuivunja sheria. Hii pia lazima inarejea kwenye sheria ya maadili kama ilivyo kwa sheria Musa. Ibrahimu alikuwa amehesabiwa kwa imani kwa njia ya neema (mst. 16). Hakujipatia haki kwa uwezo wake mwenyewe; Itolewa pasipo kusitahili kwasababu ya imani yake.
 
 ## Mungu atatimiza ahadi yake (4:18—25)
 
@@ -452,7 +382,7 @@ Sheria inaleta kuitambua dhambi (mst. 15). Inasema mahali ambapo hakuna sheria h
 
 Ibrahamu alipewa ahadi ya Mungu. Mungu alimwahidi kuwa atakuwa na mwana. Pia Mesiha angekuwa mwana wa Ibrahimu. Yesu alitimiza unabii na aliziwa kulingana na ukoo wa mababu wa Ibrahamu.
 
-### Ahadi ya kkuhesabiwa haki (mst. 23—24)
+### Ahadi ya kuhesabiwa haki (mst. 23—24)
 
 ### Shariti la kuhesabiwa haki (mst. 24)
 
@@ -464,9 +394,7 @@ Ibrahamu aliamini ahadi ya Mungu. Dhidi ya tumaini aliamini katika tumaini. Ibra
 
 Kuhesabiwa haki ni kazi ya kimungu. Mtu hawezi kujihesabia haki mwenyewe zaidi ya kule Ibrahimu kupata mwana. Kuhesabiwa haki ni kazi ya Mungu inayotolewa kwa neema katika kuitikia kwa imani.
 
-# Utawala wa Neema "kupitia bwana wetu Kesu Kristo" (sura ya 5)
-
-## Utangulizi Introduction
+# Sura ya 5: Mambo tunayopokea katika Kristo
 
 Mtu akifanikiwa kuifikia Neema ya Mungu na kuhesabiwa haki kwa imani kwa kupewa na Mungu. Nafasi muhimu sana kwa imani kupokea huu utoaji inawezekana kama matokeo ya upendo wa Mungu na neema iliyoonyeshwa katika kifo cha Kristo. Tulinyamazishwa na sheria kwa hukumu yake juu ya dhambi, lakini uwepo na na ufahamu mzuri wa Mungu, ulipatikana kwa imani katika Yesu Kristo. Katika sura hii Paulo anasisitiza jukumu la Bwana wetu Yesu Kristo kwa waamini kuhesabiwa haki na kupata upendeleo kwa Mungu au "neema."
 
@@ -493,7 +421,7 @@ Pia angalia 2 Kor. 1:22; Gal. 4:4—7; Efe. 1:13—14.
 
 ### Yesu alihamishwa na upendo (mst. 6)
 
-Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, n.k.) yaliwezekana kwasababu, "Hatukuwa na nguvu bado, mpaka wakati wa kufa kwake Kristo kwa ajili ya wenye dhambi." Ni damu ya Yesu Kristo iliyoishinda sheria na msukumo wa upendo wa matendo yake.
+Baraka zote zilizotangulia (kuhesabiwa haki, amani, upatikanaji, N. K.) yaliwezekana kwasababu, "Hatukuwa na nguvu bado, mpaka wakati wa kufa kwake Kristo kwa ajili ya wenye dhambi." Ni damu ya Yesu Kristo iliyoishinda sheria na msukumo wa upendo wa matendo yake.
 
 ## Ni upendo usio wa kawaida (mst. 7—8)
 
@@ -512,7 +440,7 @@ Yesu alisukumwa na upendo, na alituokoa kutoka kwenye laana na akatupa kuhesabab
 
 _Upatanisho_ maana yake "huja kwa maneno; makubaliano." Nilipopatanishwa kwa Mungu, alirekebisha maneno na kunibadilisha. Soma 2 Wakorintho 5:17 na Isaya 1:18—20
 
-Upatanisho ni lazima kufanyika kwa mahusiano ya mtu na Mungu. Tunatakiwa kupokea huduma ya upatanisho (2 Wak. 5:16—21). Mungu humbadilisha mtu vizuri kupitia upatanisho, na haya mabadiliko ni **kazi ya Mungu**. "Vitu vipya" huumbwa na Mungu, kama vile katika uumbaji Mungu alisema na iwepo dunia. Dunia katika chanzo chake. Wokovu ni Mungu aliupatanisha ulimwengu Mwenyewe.
+Upatanisho ni lazima kufanyika kwa mahusiano ya mtu na Mungu. Tunatakiwa kupokea huduma ya upatanisho (2 Kor. 5:16—21). Mungu humbadilisha mtu vizuri kupitia upatanisho, na haya mabadiliko ni **kazi ya Mungu**. "Vitu vipya" huumbwa na Mungu, kama vile katika uumbaji Mungu alisema na iwepo dunia. Dunia katika chanzo chake. Wokovu ni Mungu aliupatanisha ulimwengu Mwenyewe.
 
 Tumekuwa mabalozi wa ofisi ya upatanisho (Rum. 5:19—20). Dhambi ya mtu humtenga yeye kutoka kwa Mungu, lakini hutufanya sisi tukubali maneno ya upatanisho (Rum. 5:21).
 
@@ -547,7 +475,7 @@ Paulo aliandika tofauti yenye nguvu sana ya utawala wa dhambi na utawala wa neem
 | Wenye dhambi                                        | Walio okolewa                                                                      |
 | Utawala wa dhambi                                   | Neema imeongezeka                                                                  |
 
-# Utawala wa neema katika utumishi wa haki (sura ya 6)
+# Sura ya 6: Wafu kwa dhambi, lakini wanaishi ndani ya Kristo
 
 Katika sura ya sita, Paulo alianza kwa kuweka wazi mahusiano ambayo waumini waliokuwa na dhambi na kuhitimisha kwamba dhambi haitaendelea kutawala juu ya waumini na wale waumini wasiendelee katika dhambi. Paulo alijibu swali "Tufanye dhambi?" kwa kuwaliza na alitoa majibu mawili ya kufanana lakini maswali tofauti:
 
@@ -575,11 +503,11 @@ Agano Jipya linaeleza Wokovu katika nyakati tatu: uliopo, uliopita, na ujao:
 | Tumeokolewa: alimaliza kwa wakati uliopita                                               | Tunaokolewa: kitendo kinachoendelea                                                                                 | Tutaokolewa: itakamilika kwa wakati ujao                                                                                                                                                                                     |
 | Tumeokolewa kutoka kwenye adhabu ya dhambi na hatia: Kuhesabiwa haki, msamaha, kuokolewa | Kutoka nguvu ya dhambi: endelevu -> kutakaswa, kusafishwa                                                           | Kuokolewa mbali na dhambi kwa wakati uliopo: Alitukuzwa, imekamilika                                                                                                                                                         |
 | Nafsi, mwili, roho                                                                       | Uzima, mazungumzo, mwenendo                                                                                         | Kukamilishwa, fanikishwa, kumaliza                                                                                                                                                                                           |
-| 2 Tim. 1:9; Tit.3:5; Efe. 2:8—9; Lk.7:50; Yn.5:24; 6:47;                                 | I Kor. 1:18 ("Tumeokolewa"), Flp. 2:12 2 Kor. 2:15; 2 Kor. 15:2; Efe. 2:5, 8; Rum. 6:14; Gal. 2:19–20; 2 Kor.. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yn. 10:9; Rum. 10:13; 1 Kor.. 3:15, 5:15; Efe. 1:13, 14; 1 The. 5:8; Ebr. 10:36; 1 Tim. 2:4; 1 Pet. 1:5, 4:18; 1 Yn. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
+| 2 Tim. 1:9; Tit. 3:5; Efe. 2:8—9; Lk. 7:50; Yn. 5:24; 6:47;                              | I Kor. 1:18 ("Tumeokolewa"), Flp. 2:12 2 Kor. 2:15; 2 Kor. 15:2; Efe. 2:5, 8; Rum. 6:14; Gal. 2:19–20; 2 Kor.. 3:18 | Rum. 5:9; 8:23, 24; 13:11; Mat. 10:22 (24:13; Mark. 13:13); Yn. 10:9; Rum. 10:13; 1 Kor.. 3:15, 5:15; Efe. 1:13, 14; 1 The. 5:8; Ebr. 10:36; 1 Tim. 2:4; 1 Pet. 1:5, 4:18; 1 Yn. 3:2–3; Mat. 25:46; Mark. 10:30; Tit. 1:2–3. |
 
 Tunaweza kupata maelezo ya muhtasari katika 2 Wakorintho 1:10:
 
-> 2 Wakorintho 1:10—Aliyetuokoa sisi [WAKATI ULIOPITA] katika mauti kuu namna ile [WAKATI ULIOPO]: ambaye tumemtumaini kwamba atazidi kutuokoa [WAKATI UJAO];
+> 2 Wakorintho 1:10—Aliyetuokoa sisi [wakati uliopita] katika mauti kuu namna ile [wakati uliopo]: ambaye tumemtumaini kwamba atazidi kutuokoa [wakati ujao];
 
 #### Tutakuaje wafu wa dhambi?
 
@@ -630,7 +558,7 @@ Chukua mamlaka juu ya akili yako katika jina la Yesu. Mstari wa 12 unasema, "Bas
 
 Mtakatifu amewekwa huru kutoka kwa bwana wae wa zamani aliposulibishwa pamoja na Kristo, lakini alipata bwana mpya. Ubwana wa maisha ya muumini yamemilikiwa na Kristo. Tuko huru mbali na dhambi, lakini hii pia maana yake tumefungwa kwenye haki. Dhambi ni mtego wa utumwa wa Shetani, bali haki ni huduma ya Kristo. Basi mkifanya dhambi ninyi ni watumishi wa Shetani, na sio watumishi wa Mungu. Huwezi kutumikia dhambi na pia kuwa mtumishi wa Mungu.
 
-Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi (damu ya Yesu) (Efe.1:7). Neema itatawala kwa njia ya haki (Rum. 5:21). Neema ya Mungu haiwezi kutusaidia sisi kutumikia dhambi, bali inatuwezesha kumtumikia Mungu. Watumishi wa Mungu wajitakase" wajitenge mbali na dhambi na wajitenge kwa Mungu. Neema ya Mungu ni **ushawishi wa Mungu** juu ya moyo na fikra zake katika maisha (Lk. 2:40; Yn. 1:14; 1:17; Mdo. 4:33).
+Neema ya Mungu ni udhihirisho katika kutupatia upatanisho, kwa kuifunika dhambi (damu ya Yesu) (Efe. 1:7). Neema itatawala kwa njia ya haki (Rum. 5:21). Neema ya Mungu haiwezi kutusaidia sisi kutumikia dhambi, bali inatuwezesha kumtumikia Mungu. Watumishi wa Mungu wajitakase" wajitenge mbali na dhambi na wajitenge kwa Mungu. Neema ya Mungu ni **ushawishi wa Mungu** juu ya moyo na fikra zake katika maisha (Lk. 2:40; Yn. 1:14; 1:17; Mdo. 4:33).
 
 ### Sisi ni watumishi wa dhambi au wa Mungu (mst. 6)
 
@@ -640,7 +568,7 @@ Maisha ya Mkristo ni ya hiyari, lakini tuwe wazalishaji wa hiyari sisi wenyewe k
 
 "Tabia ya zamani ni ngumu kufa." Kitu kinachobadilisha utumishi wetu kutoka kwenye dhambi ni wewe mwenyewe kwa Mungu, tunatakiwa tuwe na tahadhari katika jitihada zetu za kumtumikia Bwana wetu kwa uaminifu. Tunaelekezwa kufanya baadhi ya mambo:
 
-Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efe.5:12).
+Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako. Mkristo lazima atahayarishwe kwa utu wa zamani na kutumikia dhambi kwasababu dhambi humfanya mshtuko kwa kila mmoja (Efe. 5:12).
 
 ### Linganisha matokeo ya dhambi na matokeo ya haki (mst. 20—23)
 
@@ -651,7 +579,7 @@ Matunda gani mtakayoyapata? Faida gani ya hudumu yako? Ni mshahara wa kazi yako.
 | Kifo                        | Uzima wa milele                                                     |
 | Mshahara wa dhambi ni mauti | Karama ya Mungu ni uzima wa milele kupitia: Yesu Kristo BWANA Wetu. |
 
-# Sheria (torati) ilitawala juu ya mtu aishiye katika dhambi (sura ya 7)
+# Sura ya 7: Sheria na dhambi
 
 Sheria kwa amri zake za hukumu zilitawala juu ya mtu yule anayeishi ndani ya dhambi. Maisha ya haki hayawezekani kwa kupitia kazi ya sheria kama wenye dhambi walivyofungwa dhambi zao. Hii sura inahusu umwili na mahusiano ya dhambi (kama waishivyo) kwenye dhambi na mauti. Sura hii pia inasisitiza kwamba sheria ya Mungu ni utakatifu. Kuna vitu vitatu katika sura hii:
 
@@ -799,14 +727,14 @@ Mwili wa kifo hiki ukiwa na hofu! hauja kombolewa, hauja badilishwa, na uko chin
 
 > Warumi 6:14—Kwa maana dhambi haitawatawala ninyi: Kwa maana hamwi chini ya sheria, bali chini ya neema.
 
-Naweza kuepuka uovu? Ndio! Njia tumepewa kwa dhambi kutokaa (Efe. 6:13; 2 Pet. 2:20; 1 Yn. 2:13; Col. 3:1—3). Akili zetu haziwezi kuwa mateka kwa dhambi (Warumi 12:2). Mstari wa 25 unasema, "Namshukuru Mungu, kwa Yesu Kristo Bwana Wetu." Kwa kifupi, Paulo alijua:
+Naweza kuepuka uovu? Ndio! Njia tumepewa kwa dhambi kutokaa (Efe. 6:13; 2 Pet. 2:20; 1 Yn. 2:13; Kol. 3:1—3). Akili zetu haziwezi kuwa mateka kwa dhambi (Rum. 12:2). Mstari wa 25 unasema, "Namshukuru Mungu, kwa Yesu Kristo Bwana Wetu." Kwa kifupi, Paulo alijua:
 
 1. Ile dhambi ilikaa kwake, hata kama alifurahia sheria ya Mungu.
 2. Yale mapenzi yake hayakuwa na nguvu ya kupigana na dhambi.
 3. Wale wenye dhambi haikuwa dhambi halisi (ilikuwa ni mfano wa Mungu).
 4. Hiyo ni tofauti kupitia Bwana Wetu Yesu Kristo.
 
-# Sheria ya Roho ya uzima ni Kristo Yesu (sura ya 8)
+# Sura ya 8: Uzima kupitia Roho
 
 ## Walioko katika Kristo hawako kwenye hukumu ya adhbu (mst. 1—9)
 
@@ -827,17 +755,13 @@ Mapenzi yangu mara zote yanafanya kinyume cha mapenzi ya Mungu, lakini ukiutangu
 
 #### Kuna sheria tatu zilizotajwa hapa
 
-1. **Sheria ya dhambi na kifo**. Ilikuwa ni kama sheria ya mvutano daima ikikuvuta chini. Inapinga ile ambaye ni ya njema na ya Kimungu. Inatuleta katika kifungo na hukumu. Kufungwa kwenye dhambi hutufanya tuwe watumishi wa shetani. Kuitumikia sheria ya dhambi huleta mauti. (7:22—23)
+1. **Sheria ya dhambi na kifo**. Ilikuwa ni kama sheria ya mvutano daima ikikuvuta chini. Inapinga ile ambaye ni ya njema na ya Kimungu. Inatuleta katika kifungo na hukumu. Kufungwa kwenye dhambi hutufanya tuwe watumishi wa shetani. Kuitumikia sheria ya dhambi huleta mauti (7:22—23).
 2. **Sheria ya Mungu** (aliyopewa kupitia Musa). Ni haki, nzuri, na takatifu. Inapinga dhambi na kazi za mwili. Inakuletea kushawishika na uamuzi. Sheria ikiwa dhaifu haiwezi kuokoa lakini inaelekeza kwa Kristo.
 3. **Sheria ya uzima wa Roho**. Sheria hii ni kuliko sheria ya dhambi na kifo. Ni maisha ya Yesu yalitolewa kwa waamini wa imani. Uhuru ni hali ya kuzaliwa kwa mtu upya, uhuru wa kumtumikia Yesu Kristo. Kumtumikia Bwana huleta wingi wa uzima. Kila muumini lazima adhihirishe maisha ya Yesu zaidi na zaidi.
 
-#### Asili ya "sheria ya Roho wa uzima"
+#### Utimilifu wa "sheria ya roho wa uzima" (mst. 4)
 
-Huleta kuhesabia haki pale katika sheria ya zamani ilipokua inatufunga. Sheria hii inafanya kazi njema kwa muumini, bali sheria ya zamani inaweza kutambua tu uovu. Uzima huu ni somo la shreia ya Mungu, ambapo mwili hautaweza na hauwezi kuwa adui wa Mungu.
-
-#### Utimilifu wa "sheria ya Roho wa uzima" (mst.4)
-
-Ilitimilizwa kati ya mmoja ambaye alitembea si kwa mwili, bali kwa Roho. Kama Roho wa Mungu akikaa ndani yako ndipo uzima wake utakamilika kwako. Usijaribu kumtumikia Mungu katika hali ya mwilini, bali unaye Roho wa Kristo atakye kuvuvia na kuhakikishia uzima. Huu uzima si wako mwenyewe, bali ni uzima wa Kristo (Gal.2:20). Huu uzima haudaiwi kwenye mwili, bali kwa kumtumikia Mungu na kumtii Yeye (mst. 12). Huu uzima ulitimilika kwa kupoteza matendo ya mwili (mst. 13).
+Ilitimilizwa kati ya mmoja ambaye alitembea si kwa mwili, bali kwa Roho. Kama Roho wa Mungu akikaa ndani yako ndipo uzima wake utakamilika kwako. Usijaribu kumtumikia Mungu katika hali ya mwilini, bali unaye Roho wa Kristo atakye kuvuvia na kuhakikishia uzima. Huu uzima si wako mwenyewe, bali ni uzima wa Kristo (Gal. 2:20). Huu uzima haudaiwi kwenye mwili, bali kwa kumtumikia Mungu na kumtii Yeye (mst. 12). Huu uzima ulitimilika kwa kupoteza matendo ya mwili (mst. 13).
 
 ### Tembea katika akili mpya (mst. 5—6)
 
@@ -868,13 +792,11 @@ Roho Mtakatifu alimfufua Yesu kutoka wafu. Mwili wa kufa unayo hesabiwa kufa uta
 
 ### Kwa kuwa tumepokea roho wa uhuisho, nimekwisha kuwa katika familia mpya (mst. 14—17)
 
-Je, sisi sote ni watoto wa Mungu? Watu wote ni viumbe wa Mungu, bali wale tu waliozaliwa mara ya pili ndio watoto wa Mungu. (Yn. 1:12, 13; Gal. 3:26; Col. 1:16).
+Je, sisi sote ni watoto wa Mungu? Watu wote ni viumbe wa Mungu, bali wale tu waliozaliwa mara ya pili ndio watoto wa Mungu. (Yn. 1:12, 13; Gal. 3:26; Kol. 1:16).
 
-#### Roho atatupa mwomgozo (mst. 14)
-
-#### Roho atatuhuisha (mst. 15)
-
-#### Roho atatushuhudia (mst. 16)
+1. Roho atatupa mwomgozo (mst. 14)
+2. Roho atatuhuisha (mst. 15)
+3. Roho atatushuhudia (mst. 16)
 
 #### Urithi wa Mungu (mst. 17a)
 
@@ -921,82 +843,82 @@ Mwisho wa sura unahusu tumaini la Mkristo, ambaye ni "Mungu akiwa upande wetu ni
 
 Vifungu viwili ya vya siri ya maisha ya Mkristo yanaelezwa kwa misemo miwili katika mstari wa 1 na mstari wa 10: "Kwa Yesu Kristo" na "kama Kristo akiwa ndani yako." Mapenzi ya Kristo ni kuishi ndani ya Kristo na maisha ya kumpendeza Mungu. Roho Mtakatifu hukaa ndani yetu, akituongeza nguvu za kuishi kama vile uzima.
 
-# Upendo unaoendelea wa Paulo kwa watu wa Kiyahudi (9:1—5)
+# Sura ya 9: Nguvu ya Mungu ya kuchagua
+
+## Upendo unaoendelea wa Paulo kwa watu wa Kiyahudi (9:1—5)
 
 Paulo alikuwa mtume kwa Mataifa na hakuamini kwamba sheria inaweza kuokoa mtu yeyote, lakini bado alikuwa Myahudi na aliwapenda sana Wayahudi. Warumi sura ya tisa inaongelea kuhusu masikitiko ya Paulo kwa ajili ya Wayahudi. Tunapatakuwa sio wazao wote wa Ibrahimu walikuwa wana wa ahadi (9:7—8).
 
-## Unyofu wa hisia yake (mst. 1)
+### Unyofu wa hisia yake (mst. 1)
 
 Masikitiko yake kwa waliopotea ilikuwa unyofu na uvuvio wa Kimungu.
 
-## Mkazo wa hisia yake (mst. 2—3a)
+### Mkazo wa hisia yake (mst. 2—3a)
 
 **Paulo aliubeba mzigo!** Masikitiko yake yalikuwa mkazo - uzito mkubwa wa kuendelea, kujitoa dhabihu - binafisi.
 
-Paulo alipotia uzito mkubwa kwa kuisikitikia hali ya Waisrael kwa ujumla. Paulo akajikuta mahali ambapo angekuwa na hiari ya kushitakiwa kwa ajili ya Kristo kwamba ndugu zake wange patikana katika Kristo. Hili ni tangazo dogo la kibinafsi, bali tamko hatahivyo halikuwezekana. Nuru ya wenye dhambi katika giza lao ni kuhesabiwa haki, waliotakaswa, maisha matakatifu ya waamini kwamba wanatembea kwa kudumu katika Kristo na wokovu wao wenyewe uko katika Kristo tu. Tamko la Paulo ni nukuu ya Musa katika Kut. 32:32, 33.
+Paulo alipotia uzito mkubwa kwa kuisikitikia hali ya Waisrael kwa ujumla. Paulo akajikuta mahali ambapo angekuwa na hiari ya kushitakiwa kwa ajili ya Kristo kwamba ndugu zake wange patikana katika Kristo. Hili ni tangazo dogo la kibinafsi, bali tamko hatahivyo halikuwezekana. Nuru ya wenye dhambi katika giza lao ni kuhesabiwa haki, waliotakaswa, maisha matakatifu ya waamini kwamba wanatembea kwa kudumu katika Kristo na wokovu wao wenyewe uko katika Kristo tu. Tamko la Paulo ni nukuu ya Musa katika Kutoka 32:32, 33.
 
-Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe (Rum. 9:1—5; 11:26; 10:1). Shauku ya Mungu ni kwamba wenye dhambi wote waokolewe (1 Tim. 2:4; 2 Pet. 3:9; Ezekiel 18:23; Mat. 23:37). Paulo ni mwenye haki katika shauku yake na sio kwamba anapingana ufahamu na mapenzi ya Mungu.
+Paulo anaweka wazi kwamba lengo lake na shauku yake nikwamba Waisraeli waokolewe (Rum. 9:1—5; 11:26; 10:1). Shauku ya Mungu ni kwamba wenye dhambi wote waokolewe (1 Tim. 2:4; 2 Pet. 3:9; Eze. 18:23; Mt. 23:37). Paulo ni mwenye haki katika shauku yake na sio kwamba anapingana ufahamu na mapenzi ya Mungu.
 
-## Msingi wa hisia yake (mst. 3b-5)
+### Msingi wa hisia yake (mst. 3b-5)
 
 Wayahudi bado ni watu wa pekee kwa sababu Mungu amewapa baraka nyingi. Paulo anatoa urithi wa Wayahudi kama kuwa na sehemu ya saba. Kwa mafungamana ya Wayahudi:
 
 1. **Kukubaliwa** - faida ya kukubaliwa - uwana
 2. **Utukufu** - Shekinah ya uwepo wa Mungu
-3. **Maagano** - Ahadi za Mungu zilifanywa kwa Israel
+3. **Maagano** - Ahadi za Mungu zilifanywa kwa Israeli
 4. **Sheria** - Sheria ilitolewa kwenye mlima Sinai
 5. **Huduma** - Ibada yenye mamlaka kama ilivyo amriwa na Mungu
 6. **Ahadi** - Ahadi ya Mungu ni (ndio na amini) kwa wale waaminio. Wayahudi walikuwa na ahadi za Mungu, hata walimtumaini katika sheria.
-7. **Masiha wa Israel**
+7. **Masiha wa Israeli**
 
 Kristo ni mwamba wa kujikwaa kwa Wayahudi (Gal. 5:6; Yn. 14:15; 1 Pet. 2:7—8)
 
-# Kujumuishwa kwa Mataifa katika ahadi (9:6—29)
+## Kujumuishwa kwa Mataifa katika ahadi (9:6—29)
 
-## Mwisraeli wa kweli ni kulingana na ahadi (mst. 6—10)
+### Mwisraeli wa kweli ni kulingana na ahadi (mst. 6—10)
 
 Wengi wa Waisraeli wamekosea lengo. Kristo ni ukamilifu wa sheria, lakini Waisraeli wamejikwa kwake kama kwenye jiwe na kjishikisha kwe sheria na dini. Wanadhani wao ni wana wa Mungu kwasababu wao ni wana wa Ibrahimu na Isaka na kwamba wao ndio sheria ilifunuliwa kwa ajili yao.
 
 Ukweli kwamba Mataifa walijumuishwa katika ahadi unazua maswali kwamba "je neno la Mungu lilishindwa?" na "Je Mungu alishindwa kutimiza ahadi zake?"
 
-Mwiisraeli wa kweli ni mteule, sio kwa mbegu ya asili. Tunaona mpango wa Mungu ambao haujafungwa. Sio kila mtu ambaye hajazaliwa katika taifa la Israel ametengwa na Israel ya kiroho. Wana Waisraelii ni wale tu wa kimwili, bali wana wa ahadi ni wana wa Mungu (Yn. 3:6 "walio zaliwa kwa Roho"). Kanisa la Agano Jipya lina rejelewa kama israeli wa Mungu (Gal. 6:16) kwasababu ya imani yao kwa Mungu na mwanae, Yesu kristo na sio kwasababu ya ukoo wao (10:1—4).
+Mwisraeli wa kweli ni mteule, sio kwa mbegu ya asili. Tunaona mpango wa Mungu ambao haujafungwa. Sio kila mtu ambaye hajazaliwa katika taifa la Israel ametengwa na Israel ya kiroho. Wana Waisraelii ni wale tu wa kimwili, bali wana wa ahadi ni wana wa Mungu (Yn. 3:6 "walio zaliwa kwa Roho"). Kanisa la Agano Jipya lina rejelewa kama israeli wa Mungu (Gal. 6:16) kwasababu ya imani yao kwa Mungu na mwanae, Yesu kristo na sio kwasababu ya ukoo wao (10:1—4).
 
-## Uteuzi na nadharia sio kazi yake aliyeita (mst. 11—13)
+### Uteuzi na nadharia sio kazi yake aliyeita (mst. 11—13)
 
 Uteuzi umetajwa katika mistari kumi na moja. Uteuzi na nadharia sio tendo lisilo la haki la Mungu anaweza kumhesabia haki yeye atakaye na kumuhukumu atakaye. Matendo yote mema haya wezi kuwafanya wao kuwa watoto wa ahadi, bali hayo mashariti yanategemea Mungu kuonyesha huruma.
 
 Ni muhimu kufahamu kutoka maandiko jinsi gani nadharia au uteuzi unavyo fanya kazi. Nadharia na uteuzi yana msingi juu ya ukiri wa Mungu. Yeye hujua mwisho kutokea mwanzo hujua nani atapokea na nani atakataa kabla hata ya wao kuzaliwa (8:29). Baadhi wamepewa miaka 100 na wengine michache tu. Hii ni jukumu la mwanadamu kuitikia wakati wa huruma ya Mungu kumgeukia haiwezi kutokea kwa muonekano wa haraka wa mtu, bali ni lazima avutwe na Baba (Yn. 6:44).
 
-## Mungu ni mwenye haki katika huruma na ugumu (mst. 14—18)
+### Mungu ni mwenye haki katika huruma na ugumu (mst. 14—18)
 
 Utawala wa Mungu umeelezwaje? Mungu ni mtawala na kwahiyo ni Mungu wa haki.
 
-## Udongo wa mfinyazi katika mkono wa mfinyazi (mst. 19—24)
+### Udongo wa mfinyazi katika mkono wa mfinyazi (mst. 19—24)
 
-### Mungu ni mwenye haki (mst. 19)
+#### Mungu ni mwenye haki (mst. 19)
 
-### Mungu ni mtawala (na mwanadamu ni wa kutekeleza) (mst. 20)
+#### Mungu ni mtawala (na mwanadamu ni wa kutekeleza) (mst. 20)
 
-### Mungu ni mwenye makusudi (mst. 21)
+#### Mungu ni mwenye makusudi (mst. 21)
 
-### Mungu ni haki
+#### Mungu ni haki
 
 - Kinadharia "A" mst. 22
 - Kinadharia "B" mst. 23—24
 
-## Wito wa Mungu kwa watu wake (mst. 25—29)
+### Wito wa Mungu kwa watu wake (mst. 25—29)
 
-Katika mstari ya 25 Paulo, anachukua kutoka nabii Hosea (2:23) kifungu ambacho hasahasa kiliongelea Waisrael, bali hakupatta utimilifu kwa Waisraeli bali zaidi ya hapo inaonekana kutimilizwa kwa mataifa kupokea injli. Sentensi katika sehemu ya mwisho ya msitari huu ni za mkato sana, na zinajieleza kwa kuendelea; zikiacha yale maneno yaliyotumiwa na Watafasiri: nitasema kwa watu ambao HAWAKUWA WATU WANGU, NINYI NI WATU WANGU na wao watasema, MUNGU WETU (1 Pet. 2:9—10).
+Katika mstari ya 25 Paulo, anachukua kutoka nabii Hosea (2:23) kifungu ambacho hasahasa kiliongelea Waisrael, bali hakupatta utimilifu kwa Waisraeli bali zaidi ya hapo inaonekana kutimilizwa kwa mataifa kupokea injli. Sentensi katika sehemu ya mwisho ya msitari huu ni za mkato sana, na zinajieleza kwa kuendelea; zikiacha yale maneno yaliyotumiwa na Watafasiri: nitasema kwa watu ambao hawakuwa watu wangu, ninyi ni watu wangu na wao watasema, Mungu wetu (1 Pet. 2:9—10).
 
-Katika mstari ya 26, tunaona watu wa mataifa. Neema ya kwanza ya Mungu imewapata wale ambao mara ya kwanza waliitwa "mbwa" (Mat. 15:26) na kuwapa wao wito "waliitwa kuwa wana Mungu aliye hai."
+Katika mstari ya 26, tunaona watu wa mataifa. Neema ya kwanza ya Mungu imewapata wale ambao mara ya kwanza waliitwa "mbwa" (Mt. 15:26) na kuwapa wao wito "waliitwa kuwa wana Mungu aliye hai."
 
 Katika mstari ya 27 mtume ananukuu na nabii mwingine, Isaiah, kuhusiana na mabaki (Isa. 10:22).
 
 Njia za Mungu sio zetu. Yeye husubiri - na huchukuliana - na yeye ni mkimya - kisha kwa ghafula huweka kusudi lililo kusudiwa la milele.
 
-Mstari 29 umenukuliwa toka Isaya 1:9 unaonyesha kuwa kama Mungu asingalifupisha kwa neema yake, wote wangekuwa kama Sodoma na Gomora (2 Wath 2:7).
-
-# Ukataaji wa wanaisrael na jukumu la mwanadamu (9:30—10:21)
+Mstari 29 umenukuliwa toka Isaya 1:9 unaonyesha kuwa kama Mungu asingalifupisha kwa neema yake, wote wangekuwa kama Sodoma na Gomora (2 The. 2:7).
 
 ## Kujikwaa na kushinda: Hitimisho la sura 9 (9:30—33)
 
@@ -1018,54 +940,43 @@ Walijikwaa kwenye mwamba uchukizao. Walijikwaa kwa Yesu. Alichukiza viongozi wa 
 
 Ni ujumbe gani wa injili uliofunuliwa kwa wote? "Na yeyote aminiye hata aibika." Huruma Mungu imeonyeshwa kwa kazi zake kwa Wayahudi na wamataifa. Unyenyekevu na uchaji ni misimamo maalum kwa ajili yao wote ambao wanaipokea huruma na wema wa Mungu. Iwe mtu ni myahudi au wamataifa, wokovu wake hutegemea zaidi au kidogo kuliko vile anavyofikiri na kufanya pamoja na Yesu. Kujishusha chini ya njia ya Mungu kwaq ukiri binafsi wa Yesu kama Bwana mfufuka, na kumleta mwanadamu katika "haki na kusimama pamoja na Mungu."
 
-## Wokovu kwa ajilli ya Wayahudi (10:1—21)
+# Sura ya 10: Kutokuamini kwa sasa kwa Israeli
 
-#### Hawaja okolewa (10:1)
+## Hawaja okolewa (10:1)
 
 Injili ni kwa ajili ya Wayahudi (Rum. 1:16; 2:9—10). Wayahudi wengi walikataa Injili (Mdo. 2:22—23). Mateso ya kwanza ya Wakristo kwa ukubwa yalitokea kwa Wayahudi (Mdo. 9:1—2).
 
-### Uzembe wakijinga wa Wayahudi (10:2)
+## Uzembe wakijinga wa Wayahudi (10:2)
 
 Mafarisayo: Maagizo madogomadogo yaliongezwa katika sheria (Mdo. 23:6; 26:5; Fil. 3:5—6). Paulo hadharau juhudi zao. Anashuhudia kwenye ari yao "kwa Mungu."
 
-### Dharau ya Wayahudi (10:3—11)
+## Dharau ya Wayahudi (10:3—11)
 
 Walikuwa na ari ya Mungu, lakini walipoteza ukweli wa muhimu: Haki ya Mungu ambayo ni kwa imani. Na lengo la imani hii ni Yesu Kristo mwana pekee wa Mungu ni mwisho wa sheria kwa njia ya Imani. Imani hii huja kwa neno la Mungu haihitaji mpaka ufike mbinguni au jehanamu kwanza, bali ni sasa hivi.
 
-### Njia ya Wayahudi kwenda kwa Mungu (10:12—15)
+## Njia ya Wayahudi kwenda kwa Mungu (10:12—15)
 
-### Kukataa injili kwa Wayahudi (10:16—21)
+## Kukataa injili kwa Wayahudi (10:16—21)
 
-**Soma Isaya 65:1—10**. Mungu atuma mhubiri -> mhubiri ahubiri -> wasikiaji wanasikia -> wasikiaji wanaamini -> muumini analiita jina la Bwana -> Bwana ana mwokoa. KUTOKUUNGANIKA kuko wapi? "Hawaja itii injili au kuisikiliza."
+**Soma Isaya 65:1—10**. Mungu atuma mhubiri -> mhubiri ahubiri -> wasikiaji wanasikia -> wasikiaji wanaamini -> muumini analiita jina la Bwana -> Bwana ana mwokoa. Kutokuunganika kuko wapi? "Hawaja itii injili au kuisikiliza."
 
-- Je Mungu alituma mhubiri? Ndio (mst. 19, 20, Musa, Isaya, n.k.)
+- Je Mungu alituma mhubiri? Ndio (mst. 19, 20, Musa, Isaya, n. k.)
 - Mhubiri alihuri? Ndio (mst. 16)
-- Kusanyiko lilisikia? Ndio (Musa alisimulia na Isaya pia alisimulia, n.k.)
+- Kusanyiko lilisikia? Ndio (Musa alisimulia na Isaya pia alisimulia, n. k.)
 
 Wasikiaji walikataa kuamini. Tunajukumu katika mpango wa Mungu kwa ajili ya ukombozi. Mungu anawatumia wa mataifa kuwaachokoza Wayahudi kwenye wivu (10:19).
 
-# Warumi sura ya 11
+# Sura ya 11: Wokovu wa baadaye wa Israeli
 
-## Kukataa kwa wa Waisraeli na kusudi la Mungu na msitakabali wao (11:1—32)
-
-### Kukataa kwa Waisraeli sio kitu cha kidunia (11:1—10)
+### Mabaki ya Israeli (11:1—10)
 
 Ukataaji ni kutokuamini kwa Wayahudi (Mdo. 14:2; Ufu. 21:8).
 
-### Upofu ulikuwa kwa kusudi na sio kitu cha kudumu (11:11—21)
+### Watu wa Mataifa wamepandikizwa (11:11—24)
 
-### Mapenzi ya Mungu ni kuwa na huruma juu ya wote (11:22—32)
+### Israeli wote wataokolewa (11:25—36)
 
-Rehema ya Mungu (Zab. 13:5; 89:2; Yak. 5:11).
-
-## Maneno ya Mtume ya sifa za Mungu (11:33—36)
-
-> Dini inayostahili kuabudiwa kwa hekima, furaha, na haki ya Mungu.  
-> —Matthew Henry
-
-# Dhabihu iliyohai (sura ya 12)
-
-## Utangulizi
+# Sura ya 12: Maisha ya Kikristo
 
 Warumi sura ya 12—16 kamilisha mwisho wa sehemu ya kitabu hiki. Hii sehemu ni ya vitendo zaidi katika maelezo yake. Tunaona Haki ya Mungu inatumika katika maisha ya kila siku ya Muumini.
 
@@ -1090,7 +1001,7 @@ Katika mstari wa 1 anatuambia kutoa miili yenu, "hii inamaanisha kutoa sio nafsi
 
 ### Kutojifananisha na dunia
 
-Muumini na mtindo wake wa maisha lazima yawe tofauti zaidi kuliko ulimwengu. Ulimwengu unatumia kanuni za Mungu kwa ajili ya mafanikio yao katika kujipatia mapato. Tuzitumie kanuni za Mungu kwa ajili ya mafanikio sio kwa ajili yetu bali kwa ajili yake na ufalme wake. Kwanini nataka kuwa Mkristo mwenye mafaniko?mafanikio ni kujifunza jinsi ya kuongoza wengine kwa Kristo. Maisha yetu yawe mfano wa Kristo.
+Muumini na mtindo wake wa maisha lazima yawe tofauti zaidi kuliko ulimwengu. Ulimwengu unatumia kanuni za Mungu kwa ajili ya mafanikio yao katika kujipatia mapato. Tuzitumie kanuni za Mungu kwa ajili ya mafanikio sio kwa ajili yetu bali kwa ajili yake na ufalme wake. Kwanini nataka kuwa Mkristo mwenye mafaniko? Mafanikio ni kujifunza jinsi ya kuongoza wengine kwa Kristo. Maisha yetu yawe mfano wa Kristo.
 
 ### Kuwa aliyegeuzwa
 
@@ -1099,7 +1010,7 @@ Muumini na mtindo wake wa maisha lazima yawe tofauti zaidi kuliko ulimwengu. Uli
 
 ### Kufanywa upya katika nia
 
-Kufanywa upya kwa ufahamu hutokea kwa Neno la Mungu (Zab. 119:9, 105). Ni kazi ya Roho. Ufahamau mzima lazima uje chini ya uongozi wa Roho (Waefeso 5:17—20). Ufahamu uliofanywa upya ni ufahamu wa Kristo. Sio kwamba ni ufahamu tofauti au mwingine, bali ni kazi ya Mungu ndani inayo zalisha ufahamu wa Kristo (Waflp. 2:5; 1 Cor. 2:14—16; Luka 19:10; 2 Tim. 1:7; Yn. 8:50).
+Kufanywa upya kwa ufahamu hutokea kwa Neno la Mungu (Zab. 119:9, 105). Ni kazi ya Roho. Ufahamau mzima lazima uje chini ya uongozi wa Roho (Efe. 5:17—20). Ufahamu uliofanywa upya ni ufahamu wa Kristo. Sio kwamba ni ufahamu tofauti au mwingine, bali ni kazi ya Mungu ndani inayo zalisha ufahamu wa Kristo (Flp. 2:5; 1 Kor. 2:14—16; Lk. 19:10; 2 Tim. 1:7; Yn. 8:50).
 
 ## Msimamo wa Mkristo kwa wengine (mst. 3—8)
 
@@ -1109,31 +1020,31 @@ Tu mwili mmoja katika Kristo, wenye karama mbali mbali. Kila moja ni kiungo cha 
 
 ### Penda kikwelii (mst. 9a)
 
-_Kutokuiga_ humaanisha "kutochukua wazo la mtu, hisia, au tabia; kujifanya." Upendo usioshindwa umeshuhudiwa kwa wema (2 Wakor 6:6).
+_Kutokuiga_ humaanisha "kutochukua wazo la mtu, hisia, au tabia; kujifanya." Upendo usioshindwa umeshuhudiwa kwa wema (2 Kor. 6:6).
 
 ### Kupenda wema na kuchukia uovu (mst. 9b)
 
 > Zaburi 34:14—Uache mabaya ukatende mema, Utafute amani ukaifuatie.
 
-"Uovu" ni kile kinacho umiza, kuzuia uzalianaji katika asili, ya shetani, anasa au ubaya. Tunahitaji kukimbia uovu na kukimbilia mema. Hii sio hofu ya uovu kama ilivyo kwa ushirikina,lakini ni utakaso au mgawanyiko wa mwenendo wetu na maisha ya mawazo kutoka kwa vitu hivyo ambavyo ni kinyume na utakatifu wa Mungu. Je, tunawezaje "kuchukia" na "kuachana" na uovu? (Zab. 37:27; Is. 1:16)
+"Uovu" ni kile kinacho umiza, kuzuia uzalianaji katika asili, ya shetani, anasa au ubaya. Tunahitaji kukimbia uovu na kukimbilia mema. Hii sio hofu ya uovu kama ilivyo kwa ushirikina, lakini ni utakaso au mgawanyiko wa mwenendo wetu na maisha ya mawazo kutoka kwa vitu hivyo ambavyo ni kinyume na utakatifu wa Mungu. Je, tunawezaje "kuchukia" na "kuachana" na uovu? (Zab. 37:27; Is. 1:16)
 
-## Hitimisho la War 12
+## Hitimisho la Warumi 12
 
 Kuwa Mkristo inajumuisha kila eneo la maisha ya mtu. Nia na mwili hutolewa kwa Mungu kwa kujikabithi kimaadili kama sadaka ya kiroho. Kwa msimamo wake na matendo mbele ya Wakristo wengine yeye ni wakuonyesha ukweli kwamba yeye ni mfuasi na wengine katika mwili wa Kristo. Katika uhusiano wake na mwenye dhambi, yeye hufanya katika upendo na kumwachia Mungu ulipizaji kisasi kwa ajili ya uovu.
 
-# Utii wa Mkristo (sura ya 13)
+# Sura ya 13: Utii wa Mkristo
 
 ## Pitio la sura ya 13
 
-Warumi sura ya 13 inaelezea kazi yetu katika amri na sheria, vilevile kazi za kiraia. Ndani yake tunaona kwamba upendo ni utimilifu wa sheria na kwamba hatuhitaji utoaji wowote kwa ajili ya mwili (mst.14).
+Warumi sura ya 13 inaelezea kazi yetu katika amri na sheria, vilevile kazi za kiraia. Ndani yake tunaona kwamba upendo ni utimilifu wa sheria na kwamba hatuhitaji utoaji wowote kwa ajili ya mwili (mst. 14).
 
-Kwa kuwa sisi tunapokea ahadi ilioko kwenye Zaburi 47:3 (yeye atawashusha watu chini yetu na mataifa chini ya miguu yetu.) sasa tunaenda kujiunza kwenda kuwa watiifu sisi wenyewe kwa Mungu kwenye mamlaka yake. Hebu tuchunguze "utii wa Mkristo" (utii kwa watawala kama walivyo agizwa na Mungu) katika War sura ya kumi na tatu.
+Kwa kuwa sisi tunapokea ahadi ilioko kwenye Zaburi 47:3 (yeye atawashusha watu chini yetu na mataifa chini ya miguu yetu.) sasa tunaenda kujiunza kwenda kuwa watiifu sisi wenyewe kwa Mungu kwenye mamlaka yake. Hebu tuchunguze "utii wa Mkristo" (utii kwa watawala kama walivyo agizwa na Mungu) katika Warumi sura ya 13.
 
 ## Vifungo vya utiifu wetu (mst. 1)
 
 Sura ya 12 husisitiza hitaji letu la kukabithi miili yetu kama dhabihu iliohai, na sura ya 13 inafundisha juu ya umuhimu wa utii kwa wenye mamlaka.
 
-Sehemu ya pili ya mstari wa 2 hutuambia kwamba mamlaka yote hutoka kwa Mungu. Mamlaka yote ni ya Mungu (Zab. 62:10–11; 29:10; Mat. 19:26). Mamlaka ya kidunia lazima yapokee msukumo toka kwa Mungu mtawala (Kol. 1:16–17; Dan. 2:21). Tunainamishwa na Mungu kuwa katika utii wa mamlaka. Amri hii hutoka kwa Mungu.
+Sehemu ya pili ya mstari wa 2 hutuambia kwamba mamlaka yote hutoka kwa Mungu. Mamlaka yote ni ya Mungu (Zab. 62:10–11; 29:10; Mt. 19:26). Mamlaka ya kidunia lazima yapokee msukumo toka kwa Mungu mtawala (Kol. 1:16–17; Dan. 2:21). Tunainamishwa na Mungu kuwa katika utii wa mamlaka. Amri hii hutoka kwa Mungu.
 
 ## Jaribu la utii wetu (mst. 2)
 
@@ -1166,7 +1077,7 @@ Katika mistari ya 6 na 7 tunaona mifano ya utii kwa mamlaka ya kiraia:
 
 ## Tunatii kwa kuheshimu sheria ya upendo (mst. 8–10)
 
-Upendo hutimiza sheria. Kujihusisha na upendo ni kuitimiza sheria. Katika Yn.na 14:15 Yesu anasema, "Mkinipenda, mtazishika amri zangu." Muumini yuko katika "uumbaji mpya," na kuenenda katika madarka ya "juu ya maisha" (Gal. 6:15–16) sio kwa sheria. Katika kupenda yeye ametimiza sheia ya kiwango cha chini.
+Upendo hutimiza sheria. Kujihusisha na upendo ni kuitimiza sheria. Katika Yohana 14:15 Yesu anasema, "Mkinipenda, mtazishika amri zangu." Muumini yuko katika "uumbaji mpya," na kuenenda katika madarka ya "juu ya maisha" (Gal. 6:15–16) sio kwa sheria. Katika kupenda yeye ametimiza sheia ya kiwango cha chini.
 
 ## Uwakala wa utiifu (mst. 11–12)
 
@@ -1192,27 +1103,13 @@ Fursa ni haki iliopatikana popote ulipo. Unapokuwa mtiifu na kuwa na hiari kweny
 
 Amri za sura hii huelekezwa kwetu leo kama zilivyoelekezwa katika siku za Paulo. Mkristo anapaswa kuchukuliana na kila hali kulingana na Mungu alivyo na kile Mungu afanyacho. Matazamio ya Mkristo yameelekezwa kwa mtazamo wa Mungu wa dunia na kusudi la Mungu katika dunia.
 
-# Maoni tofauti miongoni wa Wakristo (sura ya 14)
+# Sura ya 14: Maoni tofauti miongoni wa Wakristo
 
-## Utangulizi
-
-Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu.tunapaswa kuwasaidia wale ambao ni wadhaifu katika imani yao. Tunaona hitaji la kuwa na upendo. Tunapaswa kumishia Mungu, na yote tunayohitaji kwa Mungu. Hatupaswi kuhukumiana, kwa kuwa siku moja kila mmoja atatoa hesabu ya maisha yake mwenyewe.
+Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu. Tunapaswa kuwasaidia wale ambao ni wadhaifu katika imani yao. Tunaona hitaji la kuwa na upendo. Tunapaswa kumishia Mungu, na yote tunayohitaji kwa Mungu. Hatupaswi kuhukumiana, kwa kuwa siku moja kila mmoja atatoa hesabu ya maisha yake mwenyewe.
 
 ## Tunawatendeaje Wakristo wenye maoni tofauti (mst. 1)
 
-Kunatofauti katika afya za imani zetu vile vile kunatofauti za maoni (madhaifu na yenye nguvu). Kunamaelekezo yaliyo wazi yaliyotolewa katika maandiko matakatifu:
-
-- "Hutufanya" katika amri 10 (Kutoka 20:1—17)
-- Wokovu ni kwanjia ya Yesu (Yn.8:24; 14:6; Matendo 4:12)
-- Huwezi kumtumikia Mungu na mali (Mith 28:22; Waefeso 4:19; 1 Tim. 6:10; Mat 6:24)
-
-Lakini pia kuna maoni mengi na ufasiri na matumizi ambayo hujazwa kati ya mistari. Wakristo wengi hugawanyika juu ya mambo kama vile:
-
-- Wanasiasa
-- Mwanamke katika huduma (Je mwanamke anaweza kuwa mchungaji?)
-- Mamlaka ya neno la Mungu
-- Ubatizo wa Roho mtakatifu
-- Majadiliano juu ya Jumamosi/Jumapili
+Kunatofauti katika afya za imani zetu vile vile kunatofauti za maoni (madhaifu na yenye nguvu). Kunamaelekezo yaliyo wazi yaliyotolewa katika maandiko matakatifu, lakini pia kuna maoni mengi na ufasiri na matumizi ambayo hujazwa kati ya mistari.
 
 ### Mpokee aliyemdhaifu wa imani, lakini sio kuhojiana naye
 
@@ -1226,13 +1123,13 @@ Kila mtu angekuwa kama mimi?
 
 Katika Wakor wa kwanza sura ya 8 Paulo alipaswa kushughulika na swala lile lile na Kanisa la Wakoritho. Hili linaweza kusikika kama kitu kisicho na maana na sio cha kidini na mabishano kwa Mkristo wa sasa, lakini Biblia ya maoni ya Layman inatupatia mwanga kwenye ubishi huu:
 
-> Ilikuwa ni aina tofauti ya swali la kidini katika utawala wa kirumi. Uhakika ni katika soko la kirumi ungeweza kwa ugumu kupata nyama nzuri au ya kuokwa au aina yeyote ya nyama ambayo haikutokana na wanyama waliochinjwa ndani hekalu. Mnyama angeweza kuchinjwa kwa ajili ya sadaka ya kutekezwa;kisha kuhani (amabo walikuwa hawana idadi ingawa walikuwepo lakini haingwezekana kula wanyama wote walioletwa kama sadaka) wangeweza kuwauza kwa reja reja kwenye vituo. Hii ilikuwa chanzo kikuu cha nyama katika masoko, Mkristo mnunuzi angekumbana na shida: katika kununua na kuila nyama hii, nifanye au nisitoe msaada kwa ibada ya kipagani?
+> Ilikuwa ni aina tofauti ya swali la kidini katika utawala wa kirumi. Uhakika ni katika soko la kirumi ungeweza kwa ugumu kupata nyama nzuri au ya kuokwa au aina yeyote ya nyama ambayo haikutokana na wanyama waliochinjwa ndani hekalu. Mnyama angeweza kuchinjwa kwa ajili ya sadaka ya kutekezwa; kisha kuhani (amabo walikuwa hawana idadi ingawa walikuwepo lakini haingwezekana kula wanyama wote walioletwa kama sadaka) wangeweza kuwauza kwa reja reja kwenye vituo. Hii ilikuwa chanzo kikuu cha nyama katika masoko, Mkristo mnunuzi angekumbana na shida: katika kununua na kuila nyama hii, nifanye au nisitoe msaada kwa ibada ya kipagani?
 
 ### Watumishi — wewe ni nani hata umuhukumu mtumishi wa mwingine?
 
 ### Hukumu — Kila mtu atatoa hesabu kwa Mungu na sio kwa mwingine
 
-### Siku Days
+### Siku
 
 Roho ya sheria haiulizi "uliikumbuka siku?" bali huuliza kwamba je ulifanya kama kwa Bwana?" waliabudu kwa siku kadhaa, na walikuwa wanaweka umuhimu juu ya siku na sio kwa Kristo.
 
@@ -1245,7 +1142,7 @@ Ni nini tunayodhani kuwafanyia wengine:
 - **Onyesha heshima na shukurani** (12:10; 15:7)
 - **Shaurianeni** (15:14; Kol. 3:16) tunapenda mioyo ya watu, na kuifikia mioyo ya watu. Tunaweka mioyo yetu kwa watu wengine kwa kuwapenda. Tunaonyesha huruma kwa kuwatia moyo wengine. Upendo husahihisha, hutia moyo, na hufundisha. Ili tumfundishe mwingine tofauti kati ya haki na uovu, Kwanza tunapswa kujijua tofauti zetu wenyewe.
 - **Sameheaneni** (Kol. 3:13)
-- **Acha kuhukumu** (Warumi 14:13)
+- **Acha kuhukumu** (Rum. 14:13)
 - **Tunapaswa kubebeana mizigo** (Gal. 6:2)
 
 ## Usiweke kikwazo katika njia ya ndugu (mst. 13–17)
@@ -1256,11 +1153,9 @@ Ni nini tunayodhani kuwafanyia wengine:
 
 Ni baraka zaidi kuwa na uhuru mbele ya Mungu ambayo hatutumii udhaifu wa ndugu, zaidi ya kusisitiza uhuru, ingawa umetolewa kwa utofauti.
 
-# Kufanya kazi kwa ajili ya umoja (sura ya 15)
+# Sura ya 15: Wenye nguvu na dhaifu
 
-## Utangulizi
-
-Waamini ni wakukaribishana wao kwa wao, kama Kristo alivyo wapokea mataifa—kwa utukufu wa Mungu. Sehemu ya kwanza ya sura hii inaelezea mahusiano ya Kikristo, Kristo akiwa kama mfano wao mkamilifu. Ujumbe binafsi wa Paulo kwa Warumi unaanza na katika msitari wa 14. Huduma ya Paulo ilikuwa kwa wote kwa wale waliokuwa ndani (Wayahudi ambao makuu ya Mungu yalifanyika kwao na kwa wale ambao haikufanyika (wa mataifa). Kazi ya umoja kataika mwili wa Kristo ni kazi ya MUngu.
+Waamini ni wakukaribishana wao kwa wao, kama Kristo alivyo wapokea mataifa—kwa utukufu wa Mungu. Sehemu ya kwanza ya sura hii inaelezea mahusiano ya Kikristo, Kristo akiwa kama mfano wao mkamilifu. Ujumbe binafsi wa Paulo kwa Warumi unaanza na katika msitari wa 14. Huduma ya Paulo ilikuwa kwa wote kwa wale waliokuwa ndani (Wayahudi ambao makuu ya Mungu yalifanyika kwao na kwa wale ambao haikufanyika (wa mataifa). Kazi ya umoja kataika mwili wa Kristo ni kazi ya Mungu.
 
 ## Tufanye kazi ya kukaribishana pamoj an Kristo kama mfano wetu (mst. 1–12)
 
@@ -1268,7 +1163,7 @@ Waamini ni wakukaribishana wao kwa wao, kama Kristo alivyo wapokea mataifa—kwa
 
 Kuna tofauti nyingi za kidini na kimila kati ya Wayahudi na wamataifa kwa kufunguliwa injili kwa mataifa kulikuwa na ugumu mwingi wa kushinda. Paulo anaonya kwa ushupavu, tunatakiwa kufanya kazi ili kuwapokea wamataifa kama Mungu alivyo wapokea. Kiwango cha juu na kutawala kwa kile ambacho tabia zetu hupimwa "kama kristo alivyo tupokea sisi kwenye utukufu wa Mungu" (mst. 7).
 
-Kuwa myahudi kwa shaka, makanisa ya kwanza yange jisikia "kuwa ya Kiyahudi" (michanganyiko ya mila na ushawishi). Kulikuwa na ufukuzwaji kwa mara ya kwanza kutoka Roma kwa Wayahudi wote na ni mageuzi ya kiasili na kimila yaliyo tokea katika makanisa ya kirumi. Mwishowe, Wayahudi walirudi katika mji wa Roma kupata vitu tofauti zaidi ya walivyokuwa wameacha. Ilikuepuka mgawanyiko, Kanisa la kwanza lilikuwa linafanya kazi kwa pamoja ilikushinda tofauti zao za kimila kwa kujifunza vile vitu ambavyo "vinahitaji sana" (Matendo 15:28; Waefeso 4:3, 13).
+Kuwa myahudi kwa shaka, makanisa ya kwanza yange jisikia "kuwa ya Kiyahudi" (michanganyiko ya mila na ushawishi). Kulikuwa na ufukuzwaji kwa mara ya kwanza kutoka Rumi kwa Wayahudi wote na ni mageuzi ya kiasili na kimila yaliyo tokea katika makanisa ya kirumi. Mwishowe, Wayahudi walirudi katika mji wa Rumi kupata vitu tofauti zaidi ya walivyokuwa wameacha. Ilikuepuka mgawanyiko, Kanisa la kwanza lilikuwa linafanya kazi kwa pamoja ilikushinda tofauti zao za kimila kwa kujifunza vile vitu ambavyo "vinahitaji sana" (Mdo. 15:28; Efe. 4:3, 13).
 
 ### Kuna kanuni za kidunia
 
@@ -1288,7 +1183,7 @@ Sura ya kumi na tano ya Warumi inahisia nzito ya hitimisho. Kama ulivyo mtindo w
 
 Kwa nini Mkristo ni lazima kuhusika na wengine badala yake mwenyewe? Tunapaswa kumtumia Kristo kama mfano wetu, "hata Kristo hakujipendeza mwenyewe, kuhusika kwake ilikuwa ni kwa wengine alijionyesha kwa upendo, mafundisho yake na uponyaji wake."
 
-#### Neno la Mungu ni chanzo cha Mkristo kuwa na faraja kwa ajili ya maisha (mst.4)
+#### Neno la Mungu ni chanzo cha Mkristo kuwa na faraja kwa ajili ya maisha (mst. 4)
 
 Tunaweza kuwa na faraja wakati mahitaji kwa kuyasoma maandiko. Tunaweza pia kuendelea mbele kwa tumaini.
 
@@ -1335,17 +1230,17 @@ Kadiri Paulo alivyokuwa na ujasiri anaongea, haogopi kusema lakini kwa kile amba
 - Kwa uangalifu: ruhusu wale walioponywa kutoa ushuhuda.
 - Kwa uangalifu usifiche kile ambacho Mungu anafanya popote-Paulo hakutaka kujenga juu ya msingi wa mwingine (kazi).
 - Hapa watedakazi wamezuiliwa.
-- Nina ujumbe kwa ajili wale ambao hawajasikia (Mungu ameahidi hiyo! mst. 21; Isa 52:15; 65:1).
+- Nina ujumbe kwa ajili wale ambao hawajasikia (Mungu ameahidi hiyo! mst. 21; Is. 52:15; 65:1).
 
 ## Tunapaswa kufanya kazi katika kuwafikia wale ambao hawajafikiwa (mst. 22–33)
 
 ### Sio kwa kwa bahati njema ya upendo, bali kwa ajili ya sababu kubwa nimezuiliwa (mst. 22–24)
 
-Kifungu "hizi nyakati nyingi" inaonyesha jinsi gani wakisto wa Roma kwa kuendelea walivyokuwa katika moyo wake na shauku zake. Kifungu "muda mrefu unaokuja" inaonyesha kwamba yeye alikuwa shauku kubwa ya kuwatembelea watu.
+Kifungu "hizi nyakati nyingi" inaonyesha jinsi gani wakisto wa Rumi kwa kuendelea walivyokuwa katika moyo wake na shauku zake. Kifungu "muda mrefu unaokuja" inaonyesha kwamba yeye alikuwa shauku kubwa ya kuwatembelea watu.
 
 ### Ratiba ya Paulo (mst. 25–28)
 
-Paulo anaelezea tena shauku yake na kusudi lake la kutelea kanisa la Roma na ratiba yake. Alikuwa lazima kwanza aende Sipania na kukusanya sadaka kwa ajili ya watakatifu wa Yerusalemu. Yeye angeweza kuzileta Yerusalemu baada kile alichokusudia kutembelea Roma. Kwa jinsi gani Wakristo wa Makedonia na Akaya walivyohusika na maskini miongoni wa Wakristo walioko Yerusalemu? Walichangia kwa ajili ya maskini. Paulo mwenyewe pamoja na ndugu wengine walichukua hizi sadaka na kuzipeleka Yerusalemu, kupokea kwa mtu kile ambacho ni kanuni ya kiroho Paulo anawafundisha warumi kwa kuhusianisha hizi habari? Lilikuwa ni tendo la upendo juu ya sehemu ya watakatifu wa mataifa. Ilikuwa ni utimilizo wa maneno ya Bwana katika Yn. 13:17, 35.
+Paulo anaelezea tena shauku yake na kusudi lake la kutelea kanisa la Rumi na ratiba yake. Alikuwa lazima kwanza aende Sipania na kukusanya sadaka kwa ajili ya watakatifu wa Yerusalemu. Yeye angeweza kuzileta Yerusalemu baada kile alichokusudia kutembelea Roma. Kwa jinsi gani Wakristo wa Makedonia na Akaya walivyohusika na maskini miongoni wa Wakristo walioko Yerusalemu? Walichangia kwa ajili ya maskini. Paulo mwenyewe pamoja na ndugu wengine walichukua hizi sadaka na kuzipeleka Yerusalemu, kupokea kwa mtu kile ambacho ni kanuni ya kiroho Paulo anawafundisha warumi kwa kuhusianisha hizi habari? Lilikuwa ni tendo la upendo juu ya sehemu ya watakatifu wa mataifa. Ilikuwa ni utimilizo wa maneno ya Bwana katika Yn. 13:17, 35.
 
 ## Hitimisho
 
@@ -1361,15 +1256,7 @@ Katika mstari wa 30 kwa mara ya kwanza tunaona utatu:
 
 "Mungu wa amani awe nanyi nyote," inaonyesha kwa jinsi gani moyo wa mtume ulikuwa umejawa na amani na kujawa mapensi ya Mungu! Inaonyesha pia upendo unaofurika kwa ajili ya watakatifu (mara mbili katika sura hii Paulo **anaomba** kwa ajili ya kanisa la Rumi. Angalia misitari ya 13 na 33). Kusudi na nguvu ilio nyuma ya umoja wa Wakristo ni mfano wa upendo wa Kristo na huduma na dhabihu. Kuwa na msisimko kama huo miongoni mwa Wakristo, tunahitaji kuomba kama Paulo alivyofanya uwezeshaji wa Bwana. Maana ya Paulo ya agizo kuu haikumfanya kuwa wakutegemewa na Wakristo wenzake.
 
-# Hitimisho la kitabu cha warumi (sura ya 16)
-
-## Utangulizi
-
-### Utata wa kifungu hiki
-
-Inavutia kukumbuka kwamba kuna kiasi cha utata juu ya kitabu hiki cha Warumi 15:14–16:27. Swali ni kwamba "wapi warumi waliishia kiasili? je ni kwenye 15:13 kwa asili ni katika mstari wa mwisho wa Warumi?" Maandishi mengi ya zamani hayaingizi kifungu (15:14–16:27), na kwa wakati huo huo kuna mengine yanaingiza kwa njia moja au kwa njia nyingine. Baadhi huweka yaliyoko kwenye sura hii ya kumi na nne mwishoni lakini mengine huweka yote mwishoni mwa sura na mengine huweka mwisho wa kitabu. Hii haichukui msukumo wa kuafikiana na heshima ya kifungu, bali imefafanulilwa kwa mtiririko mzuri. Mtu ana nakili barua na kuwa na shauku ya kuipeleka miongoni mwa makanisa mbalimbali isinge acha nafsi ya mtu yeyote huko katika kanisa la Roma.
-
-### Utu wa kifungu hiki: ni wakibinafsi
+# Sura ya 16: Hitimisho na salamu
 
 Warumi sura ya kumi na sita inatunyesha upande binafsi wa Paulo kama anavyotuma salamu kwa waamini wanoishi Rumi. Anaongea kama mtu anayeongea na marafiki zake na sio kama kiongozi au mchungaji. Hii sura ya kumi sita mara nyingi huupuziwa na wengi. Ni kwa wale walio mbali zaidi, kwa siri, na umaaalumu wa barua ya Paulo yenye salamu (na ya pili ni Wakolosai 4). Hakuna atakaye athubutu kupoteza umwagikaji waajabu wa moyo wa mitume wetu kwa, watakatifu ambao aliwapenda sana, ambao ni kanisa la Mungu.
 
@@ -1388,29 +1275,15 @@ Roho ya kifungu hiki ni ya kipekee na maalumu unapofikiria kwamba Paulo hakukuta
 
 ## Amri ya Fibi (mst. 1–2)
 
-[Kumbuka: nukuu kadhaa katika sehemu zimechukuliwa kutoka fafanuzi za Alexander Maclaren ya maandiko matakatifu". Alexander MacClaren (February 11, 1826 - May 5, 1910) alikuwa mvuka salama na mhudumu wa injili kwa takribani miaka 65 aliyefanya kazi bila kuchoka katika kuhubiri na kuandika kuhusiana na maandiko matakatifu. Fafanuzi za MacClaren za maandiko matakatifu ni mkusanytiko wa zaidi ya hotuba 1,500]
-
 ### Paulo anamwamru dada (sio dada katika mwili bali katika Bwana)
 
 ### Cenchrea ilikuwa bandari ndogo katika Korinto
 
-> Lakini kama tutahesabu kutokuwa na maadili kwingi kuliko jificha kwa wakrinto, tutadhani labda ilikuwa hapa kulikuwa mji, wenye maji mengi, ilikuwa kama bandari nyingi, udongo ambamo wema kwa ulipandwa ilikukuwa, na kanisa lilikuwa na upinzani mwingi ambao walipaswa kupambana. Kuwa Mkristo katika Cenchrea inawezekana haikuwa kazi rahisi.
-> —MacClaren
-
 ### Fibi alikuwa mmoja wa wanawake wema wengi walio msaidia Paulo katika kazi ya injili
-
-> Jina lake kwa wazi alikuwa mwabudu sanamu, na linamwelezea kama Mgriki, na kwa kuzaliwa labda alikuwa mwabudu wa Apolo.  
-> —MacClaren
 
 ### Kwa Fibi inaaminika aliipewa hii barua ili kuiwasilisha katika kanisa la Roma
 
-> Hapa ni Paulo myahudi, Fibi mgiriki, na wasomaji wa kirumi wa barua, wote waliungana kwa pamoja katika upendo wa kimungu ambao uliyeyusha mioyo yao, na imani ya kawaida ambayo iliounganisha maisha yao. Orodha ya majina katika sura hii, yanajumuishwa kama wanaume na wanawake wenye uraia mbalimbali, na baadhi ni watumwa kama watu huru.  
-> —MacClaren
-
 > Wagalatia 3:28—Hapana Myahudi wala Myunani. Hapana mtumwa wala huru. Hapana mtu mume wala mtu mke. Maana ninyi nyote mmekuwa mmoja katika Kristo Yesu.
-
-> Kwa ulimwengu ambao Paulo alikuwa anaishi ulikuwa ni wa kigeni, wazo jipya ambalo wanawake wangeshirikisha kwa wanaume katika msisimko yake ya kifahari. Kihistoria udhaifu wa nusu ya wanadamu ni matokeo ya moja kwa moja ya kanuni ya Kikristo ambayo wote ni wamoja katika Kristo Yesu.
-> —MacClaren
 
 ## Maamukizi na salamu (mst. 3–15)
 
@@ -1419,7 +1292,7 @@ Paulo anayasalimia makundi 16 ya watu huko Rumi:
 1. **Prisila na Akila**, wasaidizi wangu katika Kristo (na kanisa la nyumbani mwa Prisila na Akila). Prisila na Akila walikuwa watengeneza hema kama Paulo alivyo kuwa. Kwa mapokeo hawa mishenari wawili wanajumuishwa katika orodha ya mitume 70 walioteuliwa na Yesu katika Luka 10. Wametajwa mara sita katika vitabu viine tofauti vya Agano Jipya. Maara zote hutajwa kama wenye ndoa na sio mtu moja moja. Kwenye rejea sita jina la Akila limetajwa mara tatu kwa mwanzoni na jina la Prisila limetajwa la kwanza katika mihula mitatu. Pirisila sio mali ya Akila bali zaidi ni wenzi katika huduma na ndoa. Pirisla na Akila walitajwa kwa mara ya mwisho katika maandiko kama walikuwa Efeso (Mdo 18:18–19). Pirisila na Akila walikuwa miongoni Wayahudi waliokuwa wamefukuzwa toka Rumi na mtawala wa kirumi Kilaudio katika mwaka 49. Wanaishia kwa Wakoritho. Paulo aliishi na Prisila na Akila kwa makadirio ya miezi 18. Kisha wale wanandoa walianza kuondoka kumsindikiza Paulo alipoendelea kwenda Siria, lakini walisimama Efeso. Kama walivyotajwa katika Warumi 16, kwa wakati mwingine 56 au 57, walikuwa wamerudi Rumi. Kanisa la wamataifa walikuwa na shukurani kwa ajili ya Prisila na Akila kwa sababu walihatarisha shingo zao kwa ajili yao.
 2. **Epaineto**, mpendwa wangu, malimbiko kwa Kristo ya Akaya.
 3. **Mariamu**, ambaye alijitoa sana kutuhudumia.
-4. **Androniko na Yunia** jamaa zangu, na waungwa wenzangu, wa mitume. Walikuwa ndani ya Kristo kabla ya Paulo. Ambao ni miongoni mwa watu ishirini na sita ambao Paulo anawatumia salamu maalumu, angalau sita kati yao ni wanawake, kuashiria nafasi na umuhimu wa wanawake miongoni wa kundi la Wakristo huko Rumi. Utata juu ya msitari huu mfupi ni maswali "ni kwamba, Yunia ( ni jina la kike) au Yunias ni (la kiume?)" na je kifungu kinachofuata majina ni tafasiri nzuri ya ambayo iliobora miongoni mwa mitume au kilieleweka vinzuri kwa mitume'?"
+4. **Androniko na Yunia** jamaa zangu, na waungwa wenzangu, wa mitume. Walikuwa ndani ya Kristo kabla ya Paulo. Ambao ni miongoni mwa watu ishirini na sita ambao Paulo anawatumia salamu maalumu, angalau sita kati yao ni wanawake, kuashiria nafasi na umuhimu wa wanawake miongoni wa kundi la Wakristo huko Rumi. Utata juu ya msitari huu mfupi ni maswali "ni kwamba, Yunia (ni jina la kike) au Yunias ni (la kiume?)" na je kifungu kinachofuata majina ni tafasiri nzuri ya ambayo iliobora miongoni mwa mitume au kilieleweka vinzuri kwa mitume?"
 5. **Ampliato**, mpendwa wangu katika Bwana.
 6. **Urbano**, msaidizi katika Bwana.
 7. **Stakisi**, mpendwa.
@@ -1436,13 +1309,13 @@ Paulo anayasalimia makundi 16 ya watu huko Rumi:
 ## Busu takatifu (mst. 16)
 
 - "Busu takatifu" ni kitu cha mapokeo ya Kiyahudi zamani na salamu za Kikristo. Vile vile huitwa "busu la amani," "Busu la kindugu," au "busu la dada" miongoni mwa wanawake.
-- Imetajwa mara 5 katika Agano Jipya: War 16:16; 1 Wakr 16:20; 2 Wakr 13:12; I Wathsl 5:26; 1 Petro 5:14. ("amani iwe nanyi", shaloomu")
+- Imetajwa mara 5 katika Agano Jipya: Rum. 16:16; 1 Kor. 16:20; 2 Kor. 13:12; 1 The. 5:26; 1 Pet. 5:14. ("amani iwe nanyi", shaloomu")
 - Angalau kwa karine kadhaa za kwanza, busu hili halikuwa la mdomo kwenda kwenye shavu bali lilikuwa la mdomo kwa mdomo. Tokea tarehe za mwanzoni, busu hili lililindwa dhidi ya uharibifu wowote wa muundo huu wa salamu, wanawake na wanume walitakiwa kukaa kwa kutengena, na busu la amani lilitolewa tu kwa wanawake kwa wanawake na wanaume kwa wanaume.
 - Makanisa mengi ya kiporostant yamechukuliana na busu takatifu kwa mfano (katika wale wanachama waliongozeka kama ukarimu safi wenye moto ambao hurejewa kama busu takatifu).
 
 ## Onyo moja la mwisho (mst. 17—20)
 
-Paulo anafuatana na baadhi miongozo ya kichungaji na maelekezo. Anasema na kuyatia "alama." Hili neno _alama_ humaanisha "kuchukua lengo, kuwa mwangalifu." Ni neno lile lile lililotumika katika Wafilippo 3:17.
+Paulo anafuatana na baadhi miongozo ya kichungaji na maelekezo. Anasema na kuyatia "alama." Hili neno _alama_ humaanisha "kuchukua lengo, kuwa mwangalifu." Ni neno lile lile lililotumika katika Wafilipi 3:17.
 
 ## Kufunga (mst. 21—27)
 
