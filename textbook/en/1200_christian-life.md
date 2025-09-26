@@ -1,4 +1,4 @@
-# A living sacrifice (chapter 12)
+# Chapter 12: Christian life
 
 ## Introduction
 

@@ -1,4 +1,4 @@
-# Sheria (torati) ilitawala juu ya mtu aishiye katika dhambi (sura ya 7)
+# Sura ya 7: Sheria na dhambi
 
 Sheria kwa amri zake za hukumu zilitawala juu ya mtu yule anayeishi ndani ya dhambi. Maisha ya haki hayawezekani kwa kupitia kazi ya sheria kama wenye dhambi walivyofungwa dhambi zao. Hii sura inahusu umwili na mahusiano ya dhambi (kama waishivyo) kwenye dhambi na mauti. Sura hii pia inasisitiza kwamba sheria ya Mungu ni utakatifu. Kuna vitu vitatu katika sura hii:
 

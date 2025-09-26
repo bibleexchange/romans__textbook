@@ -6,19 +6,7 @@ Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu. T
 
 ## Tunawatendeaje Wakristo wenye maoni tofauti (mst. 1)
 
-Kunatofauti katika afya za imani zetu vile vile kunatofauti za maoni (madhaifu na yenye nguvu). Kunamaelekezo yaliyo wazi yaliyotolewa katika maandiko matakatifu:
-
-- "Hutufanya" katika amri 10 (Kut. 20:1—17)
-- Wokovu ni kwanjia ya Yesu (Yn. 8:24; 14:6; Mdo. 4:12)
-- Huwezi kumtumikia Mungu na mali (Mit. 28:22; Efe. 4:19; 1 Tim. 6:10; Mt. 6:24)
-
-Lakini pia kuna maoni mengi na ufasiri na matumizi ambayo hujazwa kati ya mistari. Wakristo wengi hugawanyika juu ya mambo kama vile:
-
-- Wanasiasa
-- Mwanamke katika huduma (Je mwanamke anaweza kuwa mchungaji?)
-- Mamlaka ya neno la Mungu
-- Ubatizo wa Roho mtakatifu
-- Majadiliano juu ya Jumamosi/Jumapili
+Kunatofauti katika afya za imani zetu vile vile kunatofauti za maoni (madhaifu na yenye nguvu). Kunamaelekezo yaliyo wazi yaliyotolewa katika maandiko matakatifu, lakini pia kuna maoni mengi na ufasiri na matumizi ambayo hujazwa kati ya mistari.
 
 ### Mpokee aliyemdhaifu wa imani, lakini sio kuhojiana naye
 

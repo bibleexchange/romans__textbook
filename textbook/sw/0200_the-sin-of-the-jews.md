@@ -1,19 +1,3 @@
-# Wote wanahatia na wako chini ya dhambi (1:18—32; 2:1—29)
-
-> Warumi 3:9—...Kwa maana tumekwisha kuwashitaki Wayahudi na Wayunani ya kwamba pia wamekuwa chini ya dhambi;
-
-## Wote wana hatia (1:18)
-
-Mahitaji ya wanadamu wote ni kuhesabiwa haki kwanjia ya Yesu vinginevyo ghadhabu ya Mungu itafunulliwa dhidi ya hatia (1:18). Yesu ni ndio njia pekee ya wokovu na wale wasio chagua kukubali utoaji wa Kristo wamehukumiwa (Yn. 3:18).
-
-## Hatia ya Wamataifa (1:19—32)
-
-Hitimisho la sura hii linaendelezea watu hawa ambao wanahatia nakusitahili ghadhabu ya Mungu. Hawana udhuru.
-
-### Walimjua Mungu (1:19—23)
-
-Mungu alijidhihirisha mwenyewe kwao (mst. 19). Uumbaji wenyewe unatangaza matendo ya Mungu (mst. 20). Hiyo hata kwa wale wasio pokea sheria au kamwe hawajawahi kuisikia injili wamepewa ufunuo wa Mungu kwa njia ya asili kwa hiyo hawana udhuru. Kwa mara ya kwanza walimjua Mungu lakini hawakumtukuza kama Mungu (mst. 21). Picha za sanamu ni matokeo ya kuukataa ukweli na kutomtukuza Mungu.
-
 ## Hatia ya kidini/ya Kiyahudi (2:1—29)
 
 Warumi sura ya pili inazungumzzia juu ya myahudi mwenye hatia au hatia ya mtu wa kidini. Myahudi aliyekataa nuru ya Ufunuo. Katika sura hii tunaona wayahudi wakiwalaumu wengine, kama mafarisayo walivyofanya. Vilevile sura hii inazungumzia kuhusu tohara ya moyo, ambayo ni ya muhimu sana.

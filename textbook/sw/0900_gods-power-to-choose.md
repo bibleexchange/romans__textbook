@@ -1,4 +1,4 @@
-# Sura ya 9
+# Sura ya 9:
 
 ## Upendo unaoendelea wa Paulo kwa watu wa Kiyahudi (9:1—5)
 

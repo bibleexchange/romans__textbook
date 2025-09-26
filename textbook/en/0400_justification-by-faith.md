@@ -1,4 +1,4 @@
-# Faith, grace, and justification (chapter 4)
+# Chapter 4: Justification by faith
 
 ## Introduction
 

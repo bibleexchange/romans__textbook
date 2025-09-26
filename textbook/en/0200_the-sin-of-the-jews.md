@@ -1,20 +1,4 @@
-# All are guilty and under sin (1:18–32; 2:1–29)
-
-> Romans 3:9—... we have before proved both Jews and Gentiles, that they are all under sin;
-
-## All are guilty (1:18)
-
-All mankind needs to be justified through Jesus, or the wrath of God will be revealed against it (1:18). Jesus is the only way to salvation and those who do not chose to accept the provision of Christ are condemned (John 3:18).
-
-## Gentile guilt (1:19–32)
-
-The conclusion of this chapter continues on describing this people who are guilty and worthy of the wrath of God. They are without excuse.
-
-### They knew God (1:19–23)
-
-God has manifested Himself to them (v. 19). Creation itself clearly declares the things of God (v. 20). Even those who did not receive the Law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v. 21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.
-
-## Jewish/religious guilt (2:1–29)
+## Chapter 2: The sin of the Jews
 
 Romans chapter two talks about the guilty Jew or the guilty religious person. The Jew refused to obey The Light of Revelation. In this chapter we see the Jew condemning others, just as the Pharisees did. This chapter also talks about the circumcision of the heart, which is most important.
 

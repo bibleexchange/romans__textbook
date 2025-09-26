@@ -1,4 +1,4 @@
-# The Law reigns over the man living in sin (chapter 7)
+# Chapter 7: The law and sin
 
 The law with its prescription of condemnation has dominion over the man living in his sin. Righteousness in life is impossible through the works of the law as the sinner is bound to his sin. This chapter deals with carnality and the sinners relationship (so long as he lives) to sin and death. This chapter also emphasizes that the law of God is holy. There are three sections in this chapter:
 

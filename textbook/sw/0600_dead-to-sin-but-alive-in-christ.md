@@ -1,4 +1,4 @@
-# Utawala wa neema katika utumishi wa haki (sura ya 6)
+# Sura ya 6: Wafu kwa dhambi, lakini wanaishi ndani ya Kristo
 
 Katika sura ya sita, Paulo alianza kwa kuweka wazi mahusiano ambayo waumini waliokuwa na dhambi na kuhitimisha kwamba dhambi haitaendelea kutawala juu ya waumini na wale waumini wasiendelee katika dhambi. Paulo alijibu swali "Tufanye dhambi?" kwa kuwaliza na alitoa majibu mawili ya kufanana lakini maswali tofauti:
 

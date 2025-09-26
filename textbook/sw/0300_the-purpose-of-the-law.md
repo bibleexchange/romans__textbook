@@ -1,4 +1,4 @@
-# Sheria ni taswira sahihi (sura ya 3)
+# Sura ya 3:
 
 ## Utangulizi
 

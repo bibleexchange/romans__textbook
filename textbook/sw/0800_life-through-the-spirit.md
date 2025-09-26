@@ -1,4 +1,4 @@
-# Sheria ya Roho ya uzima ni Kristo Yesu (sura ya 8)
+# Sura ya 8: Uzima kupitia Roho
 
 ## Walioko katika Kristo hawako kwenye hukumu ya adhbu (mst. 1—9)
 

@@ -1,4 +1,4 @@
-# Romans chapter 11
+# Chapter 11: The future salvation of Israel
 
 ## The remnant of Israel (11:1—10)
 

@@ -1,4 +1,4 @@
-# Grace reigns in servants of righteousness (chapter 6)
+# Chapter 6: Dead to Sin, but alive in Christ
 
 In chapter six, Paul clearly establishes the relationship that the believer has with sin and the conclusion that sin no longer has dominion over the believer and that the believer should not continue in sin. Paul answers the question "Shall we sin?" by asking and answering two similar but different questions:
 

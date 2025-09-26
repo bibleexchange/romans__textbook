@@ -1,4 +1,4 @@
-# Grace reigns "through our lord Jesus Christ" (chapter 5)
+# Chapter 5: The things we receive in Christ
 
 ## Introduction
 

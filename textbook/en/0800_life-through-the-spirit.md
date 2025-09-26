@@ -1,4 +1,4 @@
-# The law of the Spirit of life in Christ Jesus (chapter 8)
+# Chapter 8: Life through the Spirit
 
 ## Those in Christ are no longer condemned (v. 1—9)
 

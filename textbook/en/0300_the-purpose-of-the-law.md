@@ -1,4 +1,4 @@
-# The Law in a right perspective (chapter 3)
+# Chapter 3: The purpose of the Law
 
 ## Introduction
 

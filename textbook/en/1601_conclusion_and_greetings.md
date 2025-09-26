@@ -1,4 +1,4 @@
-# Conclusion to the Book of Romans (Chapter 16)
+# Chapter 16: Conclusion and greetings
 
 ## Introduction
 
