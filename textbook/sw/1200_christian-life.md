@@ -1,6 +1,4 @@
-# Dhabihu iliyohai (sura ya 12)
-
-## Utangulizi
+# Sura ya 12: Maisha ya Kikristo
 
 Warumi sura ya 12—16 kamilisha mwisho wa sehemu ya kitabu hiki. Hii sehemu ni ya vitendo zaidi katika maelezo yake. Tunaona Haki ya Mungu inatumika katika maisha ya kila siku ya Muumini.
 

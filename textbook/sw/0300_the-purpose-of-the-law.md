@@ -1,4 +1,4 @@
-# Sura ya 3:
+# Sura ya 3: Kusudi la Sheria
 
 ## Utangulizi
 

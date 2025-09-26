@@ -1,12 +1,4 @@
-# Hitimisho la kitabu cha warumi (sura ya 16)
-
-## Utangulizi
-
-### Utata wa kifungu hiki
-
-Inavutia kukumbuka kwamba kuna kiasi cha utata juu ya kitabu hiki cha Warumi 15:14–16:27. Swali ni kwamba "wapi warumi waliishia kiasili? je ni kwenye 15:13 kwa asili ni katika mstari wa mwisho wa Warumi?" Maandishi mengi ya zamani hayaingizi kifungu (15:14–16:27), na kwa wakati huo huo kuna mengine yanaingiza kwa njia moja au kwa njia nyingine. Baadhi huweka yaliyoko kwenye sura hii ya kumi na nne mwishoni lakini mengine huweka yote mwishoni mwa sura na mengine huweka mwisho wa kitabu. Hii haichukui msukumo wa kuafikiana na heshima ya kifungu, bali imefafanulilwa kwa mtiririko mzuri. Mtu ana nakili barua na kuwa na shauku ya kuipeleka miongoni mwa makanisa mbalimbali isinge acha nafsi ya mtu yeyote huko katika kanisa la Roma.
-
-### Utu wa kifungu hiki: ni wakibinafsi
+# Sura ya 16: Hitimisho na salamu
 
 Warumi sura ya kumi na sita inatunyesha upande binafsi wa Paulo kama anavyotuma salamu kwa waamini wanoishi Rumi. Anaongea kama mtu anayeongea na marafiki zake na sio kama kiongozi au mchungaji. Hii sura ya kumi sita mara nyingi huupuziwa na wengi. Ni kwa wale walio mbali zaidi, kwa siri, na umaaalumu wa barua ya Paulo yenye salamu (na ya pili ni Wakolosai 4). Hakuna atakaye athubutu kupoteza umwagikaji waajabu wa moyo wa mitume wetu kwa, watakatifu ambao aliwapenda sana, ambao ni kanisa la Mungu.
 
@@ -34,9 +26,6 @@ Roho ya kifungu hiki ni ya kipekee na maalumu unapofikiria kwamba Paulo hakukuta
 ### Kwa Fibi inaaminika aliipewa hii barua ili kuiwasilisha katika kanisa la Roma
 
 > Wagalatia 3:28—Hapana Myahudi wala Myunani. Hapana mtumwa wala huru. Hapana mtu mume wala mtu mke. Maana ninyi nyote mmekuwa mmoja katika Kristo Yesu.
-
-> Kwa ulimwengu ambao Paulo alikuwa anaishi ulikuwa ni wa kigeni, wazo jipya ambalo wanawake wangeshirikisha kwa wanaume katika msisimko yake ya kifahari. Kihistoria udhaifu wa nusu ya wanadamu ni matokeo ya moja kwa moja ya kanuni ya Kikristo ambayo wote ni wamoja katika Kristo Yesu.
-> —MacClaren
 
 ## Maamukizi na salamu (mst. 3–15)
 

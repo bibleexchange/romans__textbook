@@ -1,4 +1,4 @@
-# Chapter 9:
+# Chapter 9: God's power to choose
 
 <!--Should add an introduction here that shows chapters 9-11 as a section that works together-->
 

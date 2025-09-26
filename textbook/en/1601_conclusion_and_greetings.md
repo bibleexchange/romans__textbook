@@ -1,13 +1,5 @@
 # Chapter 16: Conclusion and greetings
 
-## Introduction
-
-### The controversy of this passage
-
-It is interesting to note that there is somewhat a controversy over Romans 15:14–16:27. The question is "Where did Romans originally end? Was 15:13 originally the last verse of Romans?" Many old manuscripts do not contain this passage (15:14–16:27), and at the same time most do in one way or another. Some have it placed at the end of chapter fourteen and others both at the end of chapter fourteen and at the end of the book. This bears no influence of compromising the texts integrity, but can be logically explained. Someone copying the letter and desiring to disperse it among many different churches could have left off the parts personal to the church at Rome.
-
-### The personality of this passage: personal
-
 Romans chapter sixteen shows us the personal side of Paul as he sends greetings to believers who live in Rome. He speaks as one does to friends and not only as a leader or pastor. This sixteenth chapter is often neglected by many. It is by far the most extensive, intimate, and particular of all the words of greeting in Paul's letters (second to it is Colossians 4). No one can afford to miss this wonderful outpouring of the heart of our apostle toward the saints whom he so loved, which means all the church of God.
 
 The spirit of this chapter is exceptional particularly when you consider that Paul did not found the church at Rome and had not even visited it yet (similar to his letter to Colossae)! Despite that, Paul mentions by name 26 people in that church. Each name listed in Paul's closing remarks undoubtedly has a story of courage, love and devotion to the Lord Jesus Christ. Other than by their names, Paul identifies these people as:
@@ -34,9 +26,6 @@ The spirit of this chapter is exceptional particularly when you consider that Pa
 ### To Phebe is intrusted this letter who would personally deliver it to the church at Rome
 
 > Galatians 3:28—There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus.
-
-> To the world in which Paul lived it was a strange, new thought that women could share with man in his loftiest emotions. Historically the emancipation of one half of the human race is the direct result of the Christian principle that all are one in Christ Jesus.  
-> —MacClaren
 
 ## Greetings and salutations (v. 3–15)
 

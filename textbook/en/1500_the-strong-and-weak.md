@@ -1,6 +1,4 @@
-# Laboring for unity (chapter 15)
-
-## Introduction
+# Chapter 15: The strong and the weak
 
 Believers are to receive one another, as Christ received the gentiles—to God's glory. The first section of this chapter describes Christian relationships, with Christ as the perfect example of them. Paul's personal message to the Romans begins in Verse 14. Paul's ministry was to both those who were within (the Jews, those to whom were given the oracles of God) and to those who were without (the gentiles). The work of unity in the body of Christ is the work of God.
 

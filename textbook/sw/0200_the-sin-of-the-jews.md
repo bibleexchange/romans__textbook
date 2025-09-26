@@ -1,26 +1,26 @@
-## Hatia ya kidini/ya Kiyahudi (2:1—29)
+# Sura ya 2: Dhambi ya Wayahudi
 
 Warumi sura ya pili inazungumzzia juu ya myahudi mwenye hatia au hatia ya mtu wa kidini. Myahudi aliyekataa nuru ya Ufunuo. Katika sura hii tunaona wayahudi wakiwalaumu wengine, kama mafarisayo walivyofanya. Vilevile sura hii inazungumzia kuhusu tohara ya moyo, ambayo ni ya muhimu sana.
 
-### Kanuni za hukumu za Mungu (2:1—16)
+## Kanuni za hukumu za Mungu (2:1—16)
 
-#### Hukumu ya Mungu ni kweli (2:2)
+### Hukumu ya Mungu ni kweli (2:2)
 
 Hukumu ya Mungu nikulinga na ukweli haina upendeleo, na ni halisi. Mwanadamu anaweza kujisikia kuridhika na kuwa na hakika na mahali pake kwa wakati anapo mhukumu mwingine, na bila shaka yeye yuko yuko bila kinga ya kutosamehewa wakati hukumu ya Mungu itakapokuja.
 
-#### hukumu ya Mungu ni ya adili (2:3—11)
+### hukumu ya Mungu ni ya adili (2:3—11)
 
-#### Kwa kuwa wote waliokosa pasipo sheria watapotea pasipo sheria, na wote waliokosa, wenye sheria, watahukumiwa kwa sheria (2:12)
+### Kwa kuwa wote waliokosa pasipo sheria watapotea pasipo sheria, na wote waliokosa, wenye sheria, watahukumiwa kwa sheria (2:12)
 
 Haitoshi kuifahamu sheria, lazima kuitimiza. Ujinga wa sheria hautawaokoa watu wamataifa. Hii inarejea kwa watu wamataifa ambao hawakuipokea sheria ya Musa. Ingawa wao hawakuwa na sheria ya Musa, watu wote wamekwisha pewa habari kuhusu uumbaji na kuwa na sheria ya Mungu, iliofunuliwa na dhamiri ya mwanadamu, ilioandikwa katika moyo. Paulo ameshaonyesha kwamba watu wote wako chini ya hukumu kwa hiyo kuna hitaji la wokovu.
 
 Wale ambao wamefanya dhambi katika sheria watahukumiwa kwa sheria. Yeye husimama mahali pa faraja kuu na haki yake kwa yeye anajua sheria, lakini hakuna haki kwa kuijua sheria. Paulo anajiwakilisha kama mmataifa mwenye hatia kwasababu yeye hakuifanya sheria na sio kwamba yeye hakuwa na sheria, kama wayahudi wafanyavyo, na wayahudi pia hawakusamehewa kwasababu ya hatia yao walionao na sio sheria, na wao pia watahukumiwa kwa kutoifanya sheria. Ushuhda wao ni uovu, hujivuna kwakuijua sheria, lakini kutomheshimu Mungu ni kuvunja sheria.
 
-#### Utii ni kigezo kwa ajili ya kuhesabiwa haki (2:13)
+### Utii ni kigezo kwa ajili ya kuhesabiwa haki (2:13)
 
 Kuhesabiwa kwasasa inatolea kwa imani katika Kristo Yesu. Kristo ni utimilifu wa sheria. Chini ya agano la neema watu wanaweza kuhesabiwa haki kwa njia ya Yesu Kristo. Dhabihu za sheria zilitazama mbele kwenye ukombozi kwa njia ya damu ya Kristo. Na kuhesabiwa haki ambayo ni kwa njia ya imani. Kwa hiyo leo njia pekee ya mtu kuweza kumtii Mungu ni kukubali malipo ya Yesu Kristo (Gal. 3:24).
 
-### Sheria ya Mungu imeandikwa kwenye mioyo ya wanadamu (2:14—16)
+## Sheria ya Mungu imeandikwa kwenye mioyo ya wanadamu (2:14—16)
 
 Je mstari 12 unamaniisha wamataifa hawawezi kuhesabiwa haki kwasababu yeye hakupewa sheria ambayo yeye anaweza kuitii kama wayahudi wafanyavyo? Hapana, kwakweli sio. Mmataifa kwa asili anaweza kufanya vitu vilivyoko katika torati pasipo kuwa na hiyo sheria kwasababu Mungu anampango na kila mtu, dhamiri vivyo hivyo kadiri watu wanavyoilinda na kuihifadhi inakuwa sheria ndani yao katika maana halisi na ukweli wa kifungu. Sheria hii imeandikwa katika mioyo yao na dhamiri yao zinashuhudia.
 
@@ -28,19 +28,19 @@ Paulo anakabiliana na udhuru wa mwanadamu, kujibu swali: Jinsi gani Mungu anawez
 
 Mungu alimuumba mtu akiwa na dhamiri ambayo ni uwezo wa asili wa mema na ubaya. Mungu tu ndio mwenye kiwango cha maadili. Hakuna sheria moja kwa ajili ya wayahudi na nyingine kwa ajili ya wamataifa.
 
-#### Mungu atahukumu siri za wanadamu (2:16)
+### Mungu atahukumu siri za wanadamu (2:16)
 
-### Myahudi asiye mwaminifu yuko chini ya hukumu (Mst. 17—25)
+## Myahudi asiye mwaminifu yuko chini ya hukumu (Mst. 17—25)
 
-#### Wayahudi walitua kwenye sheria (2:17—18)
+### Wayahudi walitua kwenye sheria (2:17—18)
 
 Wayahudi walidai kusamehewa kutoka kwenye hukumu iliojikita kwenye urithi. Wakati Yesu anawalaumu wayahudi, wao walijibu: sisi ni wa uzao wa Ibrahimu; Yesu aliitikia:ikiwa ninyi wa uzao wa Ibrahimu, mngefanya kazi za Ibrahimu (Yn. 8:33—39). Wayahudi waliamini wao wangepokea uzima wa milele juu ya stahili ya kuwa myahudi na agano la tohara. Maandiko ya zamani ya kirabi huelezea kwamba mtu aliyetahiriwa hatapotea. Wayahudi walikuwa na mapokeo kwamba Ibrahimu alisimama kwenye malango ya kuzimu kuhakikisha kwamba hakuna mtu aliyetahiriwa ambaye ingia hapo.
 
 Ujuzi wa sheria hauwezi kumuokoa Myahudi. Myahudi anayejivuna katika sheria huamini yeye ni kiongozi kwa kipofu, bali yeye mwenyewe ni kipofu. Kwamba yeye anaijua njia, kwamba hakuna mwingine ajuaye zaidi. Anasimama katika sehemu hii kwa ujasiri mkubwa wa binafsi kwasababu yeye anajua sheria, lakini hakuna haki katika kujua sheria. Paulo naongea mojo kwa moja kwa msisitizo kuelekea pointi yake, wewe uhubiriye kwamba mtu asiibe, mbona wewe waiba? Paulo kwa wazi anawakilisha kwamba eti mmataifa anahatia kwasababu hafanyi matakwa ya sheria bali si hivyo kwa kuwa yeye hana sheria, kama wayahudi wafanyavyo, vilevile wayahudi hawasamehewi hatia yao kwasababu wanao sheria na wanaijua, bali hatahivyo wanahukumiwa kwasababu hawatimizi. Ujasiri wao ni ujinga wa moyo kwakuwa wao ni vipofu na wanaongoza kipofu.
 
-#### Wayahudi wanamini wao wako juu ya wamataifa (2:19—24)
+### Wayahudi wanamini wao wako juu ya wamataifa (2:19—24)
 
-#### Myahudi wa kweli ni yule ambaye ni kwa ndani (moyoni, rohoni) (2:25—29)
+### Myahudi wa kweli ni yule ambaye ni kwa ndani (moyoni, rohoni) (2:25—29)
 
 Tohara ilikuwa ni ishara ya kuondoa hali dhambi. Mmataifa asiyetahiriwa aliyetii sheria ya Mungu alipata faida zaidi kuliko myahudi aliye tahiriwa asiyetii sheria
 

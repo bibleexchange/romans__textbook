@@ -1,4 +1,4 @@
-# Christian submission (chapter 13)
+# Chapter 13: Christian submission
 
 ## Overview of chapter 13
 

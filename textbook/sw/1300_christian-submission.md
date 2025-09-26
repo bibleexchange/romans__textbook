@@ -1,4 +1,4 @@
-# Utii wa Mkristo (sura ya 13)
+# Sura ya 13: Utii wa Mkristo
 
 ## Pitio la sura ya 13
 

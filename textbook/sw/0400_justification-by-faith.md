@@ -1,6 +1,4 @@
-# Imani, Neema, na kuhesabiwa haki (sura ya 4)
-
-## Utangulizi
+# Sura ya 4: Kuhesabiwa haki kwa imani
 
 Kazi ya sheria katika kuhesabiwa haki ni ile inayoleta kuijua dhambi. Mtu haihesabiwi haki kwa njia ya matendo sheria. Kwasababu kuhesabiwa haki inachukua nafasi katika muumini "kwa neema kwa njia ya imani." Kwa Neema zawadi ya uzima wa milele imetolewa bure kwa ulimwengu wote ni kwa njia ya imani ambayo zawadi hupokelewa. Mungu amefanya ya kwanza kuondoka kwenye ukombozi na kwa ajili ya ule mpango kuwa wamanufaa kwangu, lazima nichague kupokea zawadi kwa imani. (Neema ya Mungu husaidiana na asili ya mapenzi huru ya Mungu aliyoyatoa kwa mwanadamu.) Angalia pia Waefeso 2:8 na Warumi 4:16. Kuhesabiwa haki kwa njia ya imani imeonyeshwa katika maisha ya Ibrahimu.
 

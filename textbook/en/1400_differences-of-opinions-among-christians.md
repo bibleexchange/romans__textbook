@@ -1,6 +1,4 @@
-# Differences of opinion among Christians (chapter 14)
-
-## Introduction
+# Chapter 14: Differences of opinion among Christians
 
 Romans chapter fourteen talks about how you should treat a weak brother. We need to help those that are weak in their faith. We see the need to be charitable. We need to live for God, and all that we do needs to be unto God. We should not judge one another, for one day every man will give an account of his own life.
 

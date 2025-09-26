@@ -1,7 +1,5 @@
 # Chapter 12: Christian life
 
-## Introduction
-
 Romans chapters 12—16 complete the final section of this book. This section is particularly practical in its instruction. We see the righteousness of God applied to the daily life of the believer.
 
 Romans chapter twelve deals with the Christian's duties, which ultimately leads to a surrendered life. The church is compared to the human body. There should be unity among the body, if there is no unity, the body will not function properly. This chapter also deals with the different duties of the church. This chapter ends with the Christian spirit. We are not to overcome but not with evil but we are to overcome with good.

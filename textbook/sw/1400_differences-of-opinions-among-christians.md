@@ -1,6 +1,4 @@
-# Maoni tofauti miongoni wa Wakristo (sura ya 14)
-
-## Utangulizi
+# Sura ya 14: Maoni tofauti miongoni wa Wakristo
 
 Warumi sura ya kumi na nne inaongelea kuhusu jinsi ya kumtendea ndugu mdhaifu. Tunapaswa kuwasaidia wale ambao ni wadhaifu katika imani yao. Tunaona hitaji la kuwa na upendo. Tunapaswa kumishia Mungu, na yote tunayohitaji kwa Mungu. Hatupaswi kuhukumiana, kwa kuwa siku moja kila mmoja atatoa hesabu ya maisha yake mwenyewe.
 

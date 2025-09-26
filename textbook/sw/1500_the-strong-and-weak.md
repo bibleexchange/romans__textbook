@@ -1,6 +1,4 @@
-# Kufanya kazi kwa ajili ya umoja (sura ya 15)
-
-## Utangulizi
+# Sura ya 15: Wenye nguvu na dhaifu
 
 Waamini ni wakukaribishana wao kwa wao, kama Kristo alivyo wapokea mataifa—kwa utukufu wa Mungu. Sehemu ya kwanza ya sura hii inaelezea mahusiano ya Kikristo, Kristo akiwa kama mfano wao mkamilifu. Ujumbe binafsi wa Paulo kwa Warumi unaanza na katika msitari wa 14. Huduma ya Paulo ilikuwa kwa wote kwa wale waliokuwa ndani (Wayahudi ambao makuu ya Mungu yalifanyika kwao na kwa wale ambao haikufanyika (wa mataifa). Kazi ya umoja kataika mwili wa Kristo ni kazi ya Mungu.
 

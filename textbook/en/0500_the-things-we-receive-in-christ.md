@@ -1,7 +1,5 @@
 # Chapter 5: The things we receive in Christ
 
-## Introduction
-
 A person has access into the grace of God and therefore justification by faith in God's provision. The very opportunity for faith to receive this provision is possible as a result of God's love and grace demonstrated in Christ's atoning death. We were shut out by the law in its judgment on sin, but access to and good a standing in the grace of God, is gained by faith in Jesus Christ. In this chapter Paul is emphasizing the role of our Lord Jesus Christ in the believer's justification and them having favor with God or "grace."
 
 So who get's the credit for salvation? Jesus! It is not merely even a work of faith that pleases God alone, because no such opportunity for faith to work is even possible without Christ. It is based upon the merits of Christ that God provides the opportunity for man to be saved through faith.

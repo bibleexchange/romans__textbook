@@ -1,7 +1,5 @@
 # Chapter 4: Justification by faith
 
-## Introduction
-
 The role of the law in justification is that it brings the knowledge of sin. A person is not justified through the works of the law. For justification takes place in the case of the believer "by grace through faith." By grace, a gift of eternal life is freely offered to the entire world and it is through faith that gift is received. God made the first move in the plan of redemption and for that plan to be effective in me, I must choose to receive that gift through faith. (God's grace is resistible by the nature of the free will given by God to man.) See also Ephesians 2:8 and Romans 4:16. Justification by faith is demonstrated in the life of Abraham.
 
 ## Abraham was justified by faith and not by works (v. 1—8)
