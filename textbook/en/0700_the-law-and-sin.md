@@ -39,7 +39,7 @@ Our union with sin produced death (7:5; 1:32; 6:21; 7:5; Gal. 5:19–21), but un
 
 ## The law is holy, just, and good (v. 7–13)
 
-In Romans 7:7–13, Paul establishes the goodness of God's Law and the wickedness of sin. Paul is writing to the Jew, those who understand the law (v. 1), and he properly frames the purpose and nature of the law. Service to the letter of the law cannot make one righteous, but in its exactness it awakens the sinner to his need of Christ.
+In Romans 7:7–13, Paul establishes the goodness of God's law and the wickedness of sin. Paul is writing to the Jew, those who understand the law (v. 1), and he properly frames the purpose and nature of the law. Service to the letter of the law cannot make one righteous, but in its exactness it awakens the sinner to his need of Christ.
 
 ### Question: Is the law sin? (v. 7a)
 

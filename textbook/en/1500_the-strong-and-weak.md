@@ -1,12 +1,12 @@
 # Chapter 15: The strong and the weak
 
-Believers are to receive one another, as Christ received the gentiles—to God's glory. The first section of this chapter describes Christian relationships, with Christ as the perfect example of them. Paul's personal message to the Romans begins in Verse 14. Paul's ministry was to both those who were within (the Jews, those to whom were given the oracles of God) and to those who were without (the gentiles). The work of unity in the body of Christ is the work of God.
+Believers are to receive one another, as Christ received the Gentiles—to God's glory. The first section of this chapter describes Christian relationships, with Christ as the perfect example of them. Paul's personal message to the Romans begins in Verse 14. Paul's ministry was to both those who were within (the Jews, those to whom were given the oracles of God) and to those who were without (the Gentiles). The work of unity in the body of Christ is the work of God.
 
 ## We are to labor in receiving another with Christ as our example (v. 1–12)
 
 ### There are some differences (historical background)
 
-There are many cultural and religious differences between the Jews and gentiles and with the opening of the Gospel to the gentiles there were a lot of hurdles to overcome. Paul admonishes the church adamantly, that we are to labor to receive the gentiles as God has already received them. The high standard and rule by which our conduct is measured is "as Christ also received us to the glory of God" (v. 7).
+There are many cultural and religious differences between the Jews and Gentiles and with the opening of the Gospel to the Gentiles there were a lot of hurdles to overcome. Paul admonishes the church adamantly, that we are to labor to receive the Gentiles as God has already received them. The high standard and rule by which our conduct is measured is "as Christ also received us to the glory of God" (v. 7).
 
 Being predominately Jewish, the early churches would feel "very Jewish" (a mixture of culture and conviction). There was an early expulsion from Rome of all Jews and it is only natural the cultural shift that took place in the Roman churches. Eventually, Jews began to return back to the city of Rome finding things different than when they had left. In order to not become divided, the early church had to labor together in overcoming their cultural differences by learning what things were "most needful" (Acts 15:28; Ephesians 4:3, 13).
 
@@ -65,7 +65,7 @@ At the risk of sounding unappreciative of their example and faith, Paul as a fai
 
 What does Paul refer to himself as? A minister of Jesus Christ to the Gentiles. Preaching the Word in the power of the Spirit. With signs and wonders as the result. Paul's identity is wrapped up in His call. Paul Prioritizes his call and must delay personal desires and goals. It is not that he does not have a burden for his brethren, but that he has a call that takes precedent.
 
-#### Paul had a goal (the offering up of the gentiles) (v. 16b)
+#### Paul had a goal (the offering up of the Gentiles) (v. 16b)
 
 #### Paul had an audience (God has given them to me) (v. 17–21)
 

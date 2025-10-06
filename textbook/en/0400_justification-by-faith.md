@@ -28,7 +28,7 @@ David was thanking God that his sin was forgiven and the sin was not put to his 
 
 ## Abraham was justified by grace and not circumcision (v. 9–17)
 
-The Jews looked to circumcision and the Law as their source of righteousness. Abraham was justified before he received the covenant of circumcision. He was counted as righteous in chapter 15 and he was 86 in chapter 16 when Ishmael was born. Genesis 17:24 records Abraham was circumcised when he was 99 years old. It is quite clear that he was justified before he was circumcised. This passage is telling the Jews that Abraham was counted as righteous before he received the covenant of circumcision.
+The Jews looked to circumcision and the law as their source of righteousness. Abraham was justified before he received the covenant of circumcision. He was counted as righteous in chapter 15 and he was 86 in chapter 16 when Ishmael was born. Genesis 17:24 records Abraham was circumcised when he was 99 years old. It is quite clear that he was justified before he was circumcised. This passage is telling the Jews that Abraham was counted as righteous before he received the covenant of circumcision.
 
 Circumcision did not justify Abraham. Circumcision was given as a sign of the promise. It was given as a seal of the righteousness of faith. It is a symbol of the cutting away of the flesh. There is no power of righteousness in a physical action. This is merely a sign of the work of God in much the same way that baptism is a sign of a completed work.
 

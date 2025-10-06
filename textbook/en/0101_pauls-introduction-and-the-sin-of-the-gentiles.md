@@ -1,10 +1,10 @@
-# Chapter 1: Paul's introduction and the sin of the gentiles
+# Chapter 1: Paul's introduction and the sin of the Gentiles
 
 ## Paul's introduction to Romans (1:1–17)
 
 ### Paul's salutation (v. 1–7)
 
-An apostle is one who has been sent forth as a messenger or representative of and fully authorized by the sender—a delegate or ambassador (Acts 9:3–9, 15–22, 28). Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts chapter one, but Paul's calling and sending forth as an apostle came from Christ. (1:5) Paul emphasizes that he was called to be an Apostle; this calling was by God and not by man.
+An apostle is one who has been sent forth as a messenger or representative of and fully authorized by the sender—a delegate or ambassador (Acts 9:3–9, 15–22, 28). Paul's calling was not earthly. He was not even a candidate in the vote taken in Acts chapter one, but Paul's calling and sending forth as an apostle came from Christ (1:5). Paul emphasizes that he was called to be an apostle; this calling was by God and not by man.
 
 Absolute consecration is spoken of in these words. Paul was set apart to preach one message and only one message. Paul did not declare a message that exalted himself nor did he do a work to further his position in the eyes of men. Paul declares that his purpose in life was the Gospel of God, and so should this be our purpose as ministers of the Gospel.
 
@@ -30,7 +30,7 @@ Verses 8–15 express Paul's personal feelings for the Roman saints.
 
 #### Paul is thankful for the faith of the Roman saints and so prays for them (v. 8–9)
 
-The whole world is in reference to the domain of the Roman Empire which often referred to itself as the whole world. It was Augustus who made the decree at the birth of Christ that the whole world should be taxed, which was in reference to the dominions of Rome.
+The whole world is in reference to the domain of the Roman Empire, which often referred to itself as the whole world. It was Augustus who made the decree at the birth of Christ that the whole world should be taxed, which was in reference to the dominions of Rome.
 
 The faith of the saints in Rome was spoken of throughout the entire Empire. These Roman Christians are the "Beloved of God," "Called to be saints," and recipients of the grace and peace "from God our Father, and the Lord Jesus Christ." Their testimony bears out that they are separated unto God and represent the King of Glory. What a treasure a good testimony is! Paul stands on the battleground in prayer that their faith and testimony would continue.
 
@@ -52,7 +52,7 @@ Gaventa, B. R. (2024). Romans: A Commentary (C. C. Black, J. T. Carroll, & S. E.
 
 #### The Gospel is the power of God unto salvation
 
-Man can do nothing to save himself. He was born in sin with no human means of hope. Man could not be good enough to satisfy the law of God. He is guilty and condemned to hell. There is no price that man could pay to purchase his Salvation. Salvation is a work of God given by grace and received by faith in Jesus Christ. Many complicate the simplicity of the Gospel and cannot accept that sinful man can be made new and transformed by the power of God as he reaches out in faith to the nail scarred hands of Jesus.
+Man can do nothing to save himself. He was born in sin with no human means of hope. Man could not be good enough to satisfy the law of God. He is guilty and condemned to hell. There is no price that man could pay to purchase his salvation. Salvation is a work of God given by grace and received by faith in Jesus Christ. Many complicate the simplicity of the Gospel and cannot accept that sinful man can be made new and transformed by the power of God as he reaches out in faith to the nail-scarred hands of Jesus.
 
 #### The Gospel reveals the righteousness of God from faith to faith
 
@@ -68,11 +68,11 @@ The just refers to those who have been set in a right relationship with God thro
 
 The just remain so by the keeping power of God. In this world of sin, the Christian needs the preserving power of God to keep him on the straightway that leads unto life. Jesus said that no man could pluck the sheep out of His hand (Jn. 10:28). This does not mean that God ever takes away the choice of man. Christians must choose to serve God, to live is an everyday experience (The just shall live) that requires a continual receiving of God's power by faith.
 
-## the sin of the gentiles (1:18–32)
+## The sin of the Gentiles (1:18–32)
 
 ### All are guilty (1:18)
 
-All mankind needs to be justified through Jesus, or the wrath of God will be revealed against it (1:18). Jesus is the only way to salvation and those who do not chose to accept the provision of Christ are condemned (John 3:18).
+All mankind needs to be justified through Jesus or the wrath of God will be revealed against it (1:18). Jesus is the only way to salvation, and those who do not chose to accept the provision of Christ are condemned (John 3:18).
 
 ### Gentile guilt (1:19–32)
 
@@ -80,4 +80,4 @@ The conclusion of this chapter continues on describing this people who are guilt
 
 #### They knew God (1:19–23)
 
-God has manifested Himself to them (v. 19). Creation itself clearly declares the things of God (v. 20). Even those who did not receive the Law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v. 21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.
+God has manifested Himself to them (v. 19). Creation itself clearly declares the things of God (v. 20). Even those who did not receive the law or have never heard the Gospel have been given a revelation of God through nature therefore they are without excuse. They once knew God but did not glorify Him as God (v. 21). Graven images are the result of rejecting truth and not glorifying God. Man has worshipped the creature more than the creator.

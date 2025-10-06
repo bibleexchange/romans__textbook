@@ -6,7 +6,7 @@ The Gospel is for the Jew (Rom. 1:16; 2:9—10). The majority of the Jews reject
 
 ## The Jews' zeal (10:2)
 
-The Pharisees: Minute Prescriptions added to the Law (Acts 23:6; 26:5; Php. 3:5—6). Paul does not ignore their efforts. He witnesses to their "zeal of God."
+The Pharisees: Minute Prescriptions added to the law (Acts 23:6; 26:5; Php. 3:5—6). Paul does not ignore their efforts. He witnesses to their "zeal of God."
 
 ## The Jews' ignorance (10:3—11)
 

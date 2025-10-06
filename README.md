@@ -4,7 +4,7 @@ Need to do some cultural setup: what the Roman empire was, who the Gentiles are,
 
 Need to balance the textbook better. There is too much content for the first half of the book (1-10) and too little for the last half of the book (11-16).
 
-Chapter 3 is a good place to shorten. There are five files for this chapter.
+Chapter 1 does not cover v. 24-32
 
 Chapter 7 is a little long.
 
@@ -16,8 +16,8 @@ Need to figure out how to make it easier for the students to follow. Going verse
 
 ## Questions
 
-- Should "gentile" be capitalized?
-- Should "law" be capitalized?
+- Should "gentile" be capitalized? Yes
+- Should "law" be capitalized? No
 - When should the word "law" be used and when should "Torah" be used?
 
 ## Compile

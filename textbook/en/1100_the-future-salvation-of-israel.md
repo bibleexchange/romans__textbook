@@ -17,4 +17,4 @@ God's mercy (Ps. 13:5; 89:2; James 5:11).
 ## All Israel will be saved (11:25—36)
 
 <!--My initial thought is that v. 33-36 are not disconnected from the rest of Chap. 11,
-but are a proclamation of trust in God that He knows what He is doing concerning the salvation of both the Jews and the gentiles.-->
+but are a proclamation of trust in God that He knows what He is doing concerning the salvation of both the Jews and the Gentiles.-->

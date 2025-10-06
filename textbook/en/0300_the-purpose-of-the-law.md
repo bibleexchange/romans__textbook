@@ -10,17 +10,17 @@ In Chapter 3, we have five principles concerning the Law:
 4. The true purpose of the law (v. 20–30)
 5. The establishing of the law (v. 31)
 
-Paul sets the Law in its right perspective. Jesus did not and Paul does not eliminate the law as worthless, but does position it properly in the perspective provided by the revelation of the cross. In Judaism, the law is king, but according to the Gospel there is righteousness and justification without the deeds of the law.
+Paul sets the law in its right perspective. Jesus did not and Paul does not eliminate the law as worthless, but does position it properly in the perspective provided by the revelation of the cross. In Judaism, the law is king, but according to the Gospel there is righteousness and justification without the deeds of the law.
 
 ### What Law?
 
-The word "law" generically means "a principle; a prescription". Though it was to the Jew who was given the Law of God through Moses, both Jews and Gentiles had the law of God in their conscience (whether or not they chose to receive it was their choice).
+The word "law" generically means "a principle; a prescription". Though it was to the Jew who was given the law of God through Moses, both Jews and Gentiles had the law of God in their conscience (whether or not they chose to receive it was their choice).
 
-Throughout Romans, Paul illustrates the weakness of the Law given to Moses and yet at the same time establishes its true value. The Law given to Moses is indeed the will of God, but it is not the entirety of his instruction.
+Throughout Romans, Paul illustrates the weakness of the law given to Moses and yet at the same time establishes its true value. The law given to Moses is indeed the will of God, but it is not the entirety of his instruction.
 
 Though we can find the same word "law" used in 52 verses in Romans, Paul is not always discussing the same set of principles or prescriptions.
 
-- Romans 2:12–13, 17, 18, 20, 23, 25, 26: The Jews had the Law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
+- Romans 2:12–13, 17, 18, 20, 23, 25, 26: The Jews had the law of Moses and the Gentiles did not. The Jews boasted and rested in the law given through Moses and because of the keeping of the deeds of this Law.
 - Romans 2:14–15: The Gentiles did have a law in their heart or their conscience
 - Romans 3:27: Law of faith.
 - Romans 7:2: Law of her husband
@@ -29,13 +29,13 @@ Though we can find the same word "law" used in 52 verses in Romans, Paul is not 
 - Romans 8:2: Law of the Spirit of life in Christ Jesus
 - Romans 9:31: Law of righteousness
 
-Moses was used as an oracle of God, but he was not the only nor the last of God's messengers. Ultimately, he was only trailblazer for the Living Word! The law in our conscience or the law given through Moses are both abstractions of the Law of God. God gave His eternal principles to Moses and God desires His will, His law, His prescriptions to be hidden in the heart of every person and realized in their life.
+Moses was used as an oracle of God, but he was not the only nor the last of God's messengers. Ultimately, he was only trailblazer for the Living Word! The law in our conscience or the law given through Moses are both abstractions of the law of God. God gave His eternal principles to Moses and God desires His will, His law, His prescriptions to be hidden in the heart of every person and realized in their life.
 
 > Romans 3:28—Therefore we conclude that a man is justified by faith without the deeds of the law.
 
 A man can be justified in the eyes of God without the deeds of the law of Moses (thief on the cross). A man is never justified if he is contrary to the mind of God.
 
-## The true advantage of having the Law (v. 1–2)
+## The true advantage of having the law (v. 1–2)
 
 ### The advantage is not that they are inherently superior to the Gentiles
 
@@ -47,7 +47,7 @@ The Jews had received the prophecies of the Messiah and therefore had an advanta
 
 The advantage of knowing the law is not that that knowledge justifies us, but is that by hearing of the Word of God to us is opened an opportunity to receive faith in God. We can know better and miss our opportunity to please God.
 
-## The absoluteness of the Law (Romans 3:3–8)
+## The absoluteness of the law (Romans 3:3–8)
 
 ### If some do not believe, will God break his promise? (v. 3—4)
 
@@ -83,7 +83,7 @@ Some abuse the truth of God's mercy and boast that their sinful lives and God's 
 
 Paul's description of those who did preach this was: whose damnation is just. Since the accusation was not true Paul did not go into a detailed answer; he only affirms that God's judgment on them is just.
 
-## The unbending authority of the Law (v. 9—20)
+## The unbending authority of the law (v. 9—20)
 
 The whole world is under the sentence of condemnation.
 
@@ -145,7 +145,7 @@ Redemption means to purchase, to set free by the payment of a ransom. Jesus paid
 
 #### God still requires justice
 
-Justification is not merely God showing pity on the sinner and letting him go free without the penalty being paid. The word propitiation is used in reference to Christ satisfying the demands of the law. Propitiation is a reason for not executing judgment which is deserved. It corresponds to the Hebrew word rendered mercy seat which was the place the blood of atonement was sprinkled to satisfy the judgment of God. This sprinkled blood covered the Tables of the Law contained in the Ark. This is a figure of Him who was to come and shed Divine blood to satisfy the law. The blood of Jesus is the reason that judgment is not executed on the repentant sinner.
+Justification is not merely God showing pity on the sinner and letting him go free without the penalty being paid. The word propitiation is used in reference to Christ satisfying the demands of the law. Propitiation is a reason for not executing judgment which is deserved. It corresponds to the Hebrew word rendered mercy seat which was the place the blood of atonement was sprinkled to satisfy the judgment of God. This sprinkled blood covered the tables of the law contained in the ark. This is a figure of Him who was to come and shed Divine blood to satisfy the law. The blood of Jesus is the reason that judgment is not executed on the repentant sinner.
 
 #### For the remission of sins that are past
 
@@ -155,7 +155,7 @@ In the Old Testament period, the blood of animals could never take away sin (Heb
 
 Faith is the requirement to receive from God. Works of the law cannot secure justification.
 
-## The establishing of the Law (v. 31)
+## The establishing of the law (v. 31)
 
 Justification by faith establishes the law. The law of faith does not make the law useless or void, but establishes it. Faith does not remove or destroy the law, but excels the law.
 
